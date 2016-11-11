@@ -1,3 +1,9 @@
+'''
+Simple Python file to parse the database from kaggle and create some relevant
+CSV files to use for training and testing. 
+
+Kaggle link : https://www.kaggle.com/reddit/reddit-comments-may-2015/kernels
+'''
 import sqlite3
 import pandas as pd
 
