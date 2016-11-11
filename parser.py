@@ -1,0 +1,18 @@
+import sqlite3
+import pandas as pd
+
+
+sql_conn = sqlite3.connect('database.sqlite')
+
+
+df = pd.read_sql("SELECT score, body FROM May2015 WHERE LENGTH(body) > 5 AND LENGTH(body) < 100 AND subreddit='pics' AND body!='[deleted]' LIMIT 100000",sql_conn)
+
+df.to_csv("100k_Pics_Comments.csv")
+
+df2 = pd.read_sql("SELECT score, body from May2015 WHERE LENGTH(body) > 5 and LENGTH(body) < 100 AND subreddit='pics' AND ups> 100 LIMIT 100000",sql_conn)
+
+df2.to_csv("100k_Pics_100upvotes.csv")
+
+df3 = pd.read_sql("SELECT score, body from May2015 WHERE LENGTH(body) > 5 and LENGTH(body) < 100 AND subreddit='pics' AND score < 1 LIMIT 100000",sql_conn)
+
+df3.to_csv("100k_Pics_10downvotes.csv")
