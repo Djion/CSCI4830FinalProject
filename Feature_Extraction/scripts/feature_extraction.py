@@ -42,7 +42,7 @@ def trigram_generator(onlyfiles):
 
 		create_file = "../trigram_data/trigram_"+file_name 
 		with open(create_file,'wb') as myfile:
-			myfile.write('\n'.join('%s_%s_%s' % x for x in output))
+			myfile.write('\n'.join('%s,%s,%s' % x for x in output))
 
 #####################################################################
 #Generate top 100 bigrams for all files in /Data/raw_data.
@@ -78,7 +78,7 @@ def bigram_generator(onlyfiles):
 			
 		create_file = "../bigram_data/bigram_"+file_name 
 		with open(create_file,'wb') as myfile:
-			myfile.write('\n'.join('%s_%s' % x for x in output))
+			myfile.write('\n'.join('%s,%s' % x for x in output))
 
 
 def unigram_generator(onlyfiles):	
