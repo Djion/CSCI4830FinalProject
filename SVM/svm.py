@@ -3,81 +3,100 @@ Joshua Zepf, Alex Ring, Richard Dyer, Cameron Tierney
 November/December 2016
 
 Program uses a bigram model and data from Reddit comments to predict whether a
-comment will be upvoted or downvoted
+comment will be upvoted or downvoted. This program is the same as svm.py, except
+it has a smaller data set to make for speedy testing. This file should not be
+used to actually predict, it is just to make sure code is working correctly.
 '''
 
 from sklearn import svm
 import numpy
 from numpy import genfromtxt
 
-# Extract upvote comments and scores
-upvotes_body = genfromtxt("../Data/raw_data/formatted_data/100k_upvotes_formatted.csv", delimiter=',', dtype=None, skip_header=1, usecols=(1))
-upvotes_score = genfromtxt("../Data/raw_data/formatted_data/100k_upvotes_formatted.csv", delimiter=',', dtype=None, skip_header=1, usecols=(0))
+upvotes_body = genfromtxt("../Data/raw_data/formatted_data/100k_upvotes_formatted.csv", delimiter=",", dtype=None, skip_header=1, usecols=(1), max_rows=10000)
+upvotes_score = genfromtxt("../Data/raw_data/formatted_data/100k_upvotes_formatted.csv", delimiter=",", dtype=None, skip_header=1, usecols=(0), max_rows=10000)
 
-# Extract downvote comments and scores
-downvotes_body = genfromtxt("../Data/raw_data/formatted_data/100k_downvotes_formatted.csv", delimiter=',', dtype=None, skip_header=1, usecols=(1))
-downvotes_score = genfromtxt("../Data/raw_data/formatted_data/100k_downvotes_formatted.csv", delimiter=',', dtype=None, skip_header=1, usecols=(0))
+downvotes_body = genfromtxt("../Data/raw_data/formatted_data/100k_downvotes_formatted.csv", delimiter=',', dtype=None, skip_header=1, usecols=(1), max_rows=10000)
+downvotes_score = genfromtxt("../Data/raw_data/formatted_data/100k_downvotes_formatted.csv", delimiter=',', dtype=None, skip_header=1, usecols=(0), max_rows=10000)
 
-# Extract bigram data
-bigrams = genfromtxt("../Feature_Extraction/bigram_data/bigram_100k_Pics_100upvotes.csv", dtype=None)
+# CHANGE THE PATH OF THE FOLLOWING LINE TO CHANGE BETWEEN N-GRAMS
+#bigrams = genfromtxt("../Feature_Extraction/unigram_data/unigram_100k_upvotes_formatted.csv", dtype=None)
+#bigrams = genfromtxt("../Feature_Extraction/bigram_data/bigram_combo.csv", dtype=None)
+bigrams = genfromtxt("../Feature_Extraction/trigram_data/trigram_combo.csv", dtype=None)
 for i in range(len(bigrams)):
     bigrams[i] = bigrams[i].replace(",", " ")
     bigrams[i] = bigrams[i].lower()
 
-# Size of Upvote Data: 10005
-# Size of Downvote Data: 100046
-# Set up training set arrays and size
-train_set_len = (7003 + 70032) # 70% of Upvote Data + 70% of Downvote Data
+train_set_len = 7000 # 70% of 10000 submissions
 train_set_features = numpy.zeros(shape=(train_set_len, len(bigrams)))
 train_set_score = numpy.zeros(shape=train_set_len)
 
-# Count bigrams and create feature arrays for upvotes training set
-for a in range(7003):
+for a in range(3500):
     comment = upvotes_body[a]
     for i in range(len(bigrams)):
         bigram = bigrams[i]
         num_found = comment.count(bigram)
         train_set_features[a][i] = num_found
+        '''
+        if (num_found != 0):
+            print("hit")
+        '''
     train_set_score[a] = 1
-# Count bigrams and create feature arrays for downvotes training set
-for b in range(70032):
+for b in range(3500):
     comment = downvotes_body[b]
     for i in range(len(bigrams)):
         bigram = bigrams[i]
         num_found = comment.count(bigram)
         train_set_features[a + b + 1][i] = num_found
+        '''
+        if (num_found != 0):
+            print("hit")
+        '''
     train_set_score[a + b + 1] = -1
+
+print("\nTraining Set Feature Arrays:")
+print(train_set_features)
+print("\nTraining Set Score Array")
+print(train_set_score)
 
 classifier = svm.SVC()
 print("\nClassifier:")
 print(classifier.fit(train_set_features, train_set_score))
 
-# Set up test set
-test_set_len = 3002 + 30014 # 30% of Upvote Data + 30% of Downvote Data
+test_set_len = 3000 # 30% of 10000 submissions
 test_set_features = numpy.zeros(shape=(test_set_len, len(bigrams)))
 test_set_score = numpy.zeros(shape=test_set_len)
 
-# Count bigrams and create feature arrays for upvotes test set
-for c in range(3002):
+for c in range(1500):
     comment = upvotes_body[a + c + 1]
     for i in range(len(bigrams)):
         bigram = bigrams[i]
         num_found = comment.count(bigram)
         test_set_features[c][i] = num_found
+        '''
+        if (num_found != 0):
+            print("hit")
+        '''
     test_set_score[c] = 1
-# Count bigrams and create feature arrays for upvotes test set
-for d in range(30014):
+for d in range(1500):
     comment = downvotes_body[b + d + 1]
     for i in range(len(bigrams)):
         bigram = bigrams[i]
         num_found = comment.count(bigram)
         test_set_features[c + d + 1][i] = num_found
+        '''
+        if (num_found != 0):
+            print("hit")
+        '''
     test_set_score[c + d + 1] = -1
 
-# Use test set to make predictions and count the number correctly predicted
-num_right = 0
-num_down_predicted = 0
-num_up_predicted = 0
+print("\nTest Set Feature Arrays:")
+print(test_set_features)
+print("\nTest Set Score Arrays:")
+print(test_set_score)
+
+num_right = 0.0
+num_down_predicted = 0.0
+num_up_predicted = 0.0
 for n in range(test_set_len):
     z = classifier.predict(test_set_features[n].reshape(1, -1))
     if z == -1:
@@ -87,9 +106,14 @@ for n in range(test_set_len):
     if z == test_set_score[n]:
         num_right += 1
 
-up_percent = num_up_predicted / test_set_len
-down_percent = num_down_predicted / test_set_len
-accuracy = num_right / test_set_len
-print("\nNumber of Upvotes Predicted: ", up_percent, "%")
-print("Number of Downvotes Predicted: ", down_percent, "%")
-print("Accuracy: ", accuracy, "%")
+up_percent = (num_up_predicted / test_set_len) * 100
+down_percent = (num_down_predicted / test_set_len) * 100
+accuracy = (num_right / test_set_len) * 100
+print("Number Right:")
+print(num_right)
+print("Percentage of upvotes predicted:")
+print(up_percent)
+print("Percentage of downvotes predicted:")
+print(down_percent)
+print("Accuracy:")
+print(accuracy)
