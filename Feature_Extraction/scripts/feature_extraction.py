@@ -38,7 +38,8 @@ def trigram_generator(onlyfiles):
 		fdist = nltk.FreqDist(corpus)
 
 		for gram, freq in fdist.most_common(100):
-			output.append(gram)
+			string = gram + ',' + freq
+			output.append(string)
 
 		create_file = "../trigram_data/trigram_"+file_name 
 		with open(create_file,'wb') as myfile:

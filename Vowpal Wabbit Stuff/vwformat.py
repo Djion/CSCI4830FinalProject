@@ -15,8 +15,8 @@ def formatLine(line, label):
     return label + ' | ' + line.replace(' ',' | ')
 
 if __name__ == "__main__":
-    posdata = open("../Data/raw_data/100k_Pics_100upvotes.csv", encoding='utf-8', errors='ignore')
-    negdata = open("../Data/raw_data/100k_Pics_10downvotes.csv", encoding='utf-8', errors='ignore')
+    posdata = open("../Data/raw_data/100k_Askreddit_100upvotes.csv", encoding='utf-8', errors='ignore')
+    negdata = open("../Data/raw_data/100k_Askreddit_10downvotes.csv", encoding='utf-8', errors='ignore')
     train = open("train.vw", 'w')
     test = open("test.vw", 'w')
     pos = DictReader(posdata)

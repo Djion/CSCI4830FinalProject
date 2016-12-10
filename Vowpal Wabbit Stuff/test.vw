@@ -1,0 +1,11075 @@
+1 | if | theyre | good | they | get | the | froot | loops | otherwise | cinnamon | life
+1 | you | did | the | mathltpats | on | headgt
+1 | oh | sarah | you | mean | that | bitch | who | looks | like | a | shih | tzu | with | an | underbite
+1 | im | so | full | right | now | world | hunger | is | bullshit
+1 | thats | just | hilarious
+1 | 10 | years | a | new | record
+1 | clean | the | house | make | her | breakfast | tell | her | you | love | her
+1 | how | old | was | this | kid
+1 | nah | im | kyle | and | my | dad | is | the | best
+1 | classic | danny
+1 | hustle | loyalty | amp | respect
+1 | cancan | you | charge | a | class | of | kids | with | murder
+1 | this | joke | isnt | offensive | its | heartwarming | im | amazed
+1 | stop | posting | on | reddit | and | practice | your | piano | jingmei
+1 | if | you | read | my | story | above | youre | pretty | close | to | correct
+1 | this | makes | a | lot | of | sense | thanks | for | taking | the | time | to | answer | very | interesting | to | read
+1 | unlike | those | battle | toasters
+1 | what | a | cockblock
+1 | they | didnt | let | you | throw | fruit | at | the | computer | wtf | im | sorry | you | went | through | that | bud
+1 | asking | the | important | questions
+1 | i | wasnt | allowed | to | watch | the | simpsons | but | i | could | play | the | simpsons | hit | and | run | logic
+1 | who | drinks | a | beverage | through | a | spoon | what | is | wrong | with | you | 
+1 | you | kill | it | you | eat | it | 
+1 | maybe | his | parents | just | liked | doing | it | in | the | living | room
+1 | to | shreds | you | sayedit | bite | my | glorious | golden | ass | reddit | thanks
+1 | hello | fellow | 30 | year | old
+1 | link | the | ocarina | of | time
+1 | fit | as | fuck | m8
+1 | well | they | are | right | when | you | buy | from | an | ice | cream | truck | you | are | paying | for | gas | not | ice | cream
+1 | its | an | old | one | but | i | still | love | it | deefer | as | in | d | for | dog
+1 | when | i | mistook | a | jellyfish | for | a | plastic | bag | and | went | to | grab | it | 
+1 | katy | perry | hadhas | a | cat | called | kitty | purry | which | i | thought | was | pretty | funny
+1 | the | sky | is | the | limit | there | billys | dreams | of | becoming | an | astronaut | were | crushed
+1 | damn | son | you | look | like | a | pepperoni | pizza
+1 | how | many | potatoes | does | it | take | to | kill | an | irishmannone
+1 | alsogt | dont | stick | your | dick | in | crazy | if | you | fucking | work | with | them | 
+1 | thats | what | i | keep | thinking | about | this | whole | thread
+1 | it | is | actually | just | the | theme | from | disneys | robin | hood | sped | up
+1 | the | opposite | of | the | ice | bucket | challenge | the | boiling | water | challenge | 
+1 | v | principal | is | alpha | as | fuck
+1 | i | thought | so | naming | your | kid | badasspanda | is | pretty | much | the | coolest | thing | ever
+1 | uggg730 | named | his | dog | spaghetti | thats | a | pretty | good | name | 
+1 | that | is | motherfucking | hilarious
+1 | my | friend | has | a | giant | fat | orange | cat | named | cheese
+1 | winner | winner | shittin | dinner
+1 | what | a | shitty | situation
+1 | some | guy | with | maggots | where | his | teeth | used | to | be | like | living | moving | procreating | maggots | 
+1 | as | someone | with | bpd | thanks | for | this | post | 
+1 | because | he | is | a | weakling
+1 | how | many | courics | was | it | you | may | have | set | a | new | record
+1 | dont | stick | your | dick | in | crazy | if | you | fucking | work | with | themsex
+1 | even | with | the | extra | shot | of | protein | and | electrolytes
+1 | stepping | on | a | wet | spot | on | the | floor | while | wearing | socks
+1 | test | to | see | if | you | can | survive | the | deep | web | most | likely | nsfl
+1 | didnt | kitty | purry | headline | the | puppy | bowl | xi | halftime | show
+1 | i | call | it | cockholm | syndrome
+1 | i | like | to | clap | my | hands | and | scream | and | giggle | like | im | 3 | years | old | 
+1 | daves | not | here | man
+1 | so | she | spilled | it | then
+1 | we | all | remember | that | one | comic | 
+1 | gel | pens | lisa | frank | stuff | and | wonder | balls | 
+1 | i | spend | a | lot | more | time | on | the | floori | also | dont | have | a | so | i | have | two | dogs | instead
+1 | my | music | is | where | i | like | you | to | touch
+1 | the | ocean | is | dark | and | full | of | terrors
+1 | i | cringed | at | shutter
+1 | is | it | this | urlhere |  | gif
+1 | when | i | started | up | ac | unity | and | realized | that | i | spent | money | on | it
+1 | send | help | she | knows | my | usernamek
+1 | trans | people | 
+1 | ive | gotta | tell | ya | fella | you | need | to | slow | down | and | smell | the | roses | 
+1 | i | see | absolutly | no | reason | not | to | rodeo | alligators | at | the | zoo
+1 | please | please | go | outside
+1 | took | me | a | second | 
+1 | dude | has | incredibly | infected | skin | on | his | back | with | large | holes | and | maggots | inside | him
+1 | if | thats | the | scariest | part | of | reddit | for | you | you | havent | been | here | long
+1 | gt | catticus | finchattorney | at | claw
+1 | water | bill | says | i | cant |  | 
+1 | it | was | not | the | real | kitty | purry | it | was | a | cheap | impersonator | called | katty | furry
+1 | i | love | how | you | phrased | that
+1 | more | importantly | did | he | achieve | his | dream | to | become | a | painter
+1 | wyoming | i | gotta | see | yellowstone |  | redcoat
+1 | would | still | be | cheaper | than | color | printing
+1 | did | not | know | this | was | a | thing
+1 | no | no | nononononononono
+1 | im | woody |  | howdy | howdy | howdy
+1 | thats | just | about | the | rudest | thing | i | have | ever | read | 
+1 | i | hope | its | a | boy | for | your | husbands | sake
+1 | is | it | a | rom | com
+1 | planning | ahead | i | see
+1 | i | should | not | have | come | to | this | thread | this | is | worse | than | webmd
+1 | sounds | like | she | said | yes
+1 | yeah | what | the | fuck | shes | the | one | who | fucked | a | black | guy | its | not | like | it | was | an | accident
+1 | you | got | me | good | you | fucker | 
+1 | men | only | love | you | because | of | your | pristine | vagina | didnt | you | know | that | 
+1 | macgyver | would | be | proud
+1 | green | mile | every | time
+1 | just | honk | their | boobsquishy | parts | like | oh | i | thought | you | were | ok | with | groping | strangers | 
+1 | thats | his | secret | he | is | always | mid | spank | session
+1 | somewhere | out | there | at | this | very | moment | a | lone | turtle | is | flipped | over | on | its | back
+1 | was | the | anal | good
+1 | foot | starts | uncontrollably | thumping | on | the | ground
+1 | you | suck | bro
+1 | interstellar | when | cooper | is | watching | the | messages | from | murph
+1 | no | he | was | tortured | in | it | then | thrown | off | a | cliff
+1 | was | it | special | 
+1 | upthe | beginning | is | just | brutal | emotional | roller | coaster | 
+1 | did | it | become | a | pickle
+1 | too | late
+1 | still | had | sex
+1 | no | but | she | was
+1 | hey | i | didnt | say | which | 90s | it | couldve | been | 997990bce | 
+1 | not | even | the | authenticity | of | deathbyspoon
+1 | its | eyes | glow | red
+1 | are | you | going | to | freeze | or | burn | to | death
+1 | sandpaper | 
+1 | rubbing | the | raisin | for | 14 | hours | you | deserve | more | than | an | upvote
+1 | its | extra | if | she | goes | downs | on | you
+1 | ew | his | hand | is | even | still | slimy
+1 | yes | yes | i | did | but | as | you | said | still | very | interesting
+1 | utter | torture
+1 | im | uncomfortable | with | this
+1 | wrong | preserver | kronk
+1 | the | entire | movie | revolves | around | an | easter | egg | from | a | game
+1 | vanilla | beans | packed | in | snow
+1 | why | do | we | even | have | that | preserver
+1 | the | empirebritish | masterrace
+1 | enders | game
+1 | wow | that | is | nice |  | i | could | see | that | working | but | not | all | landlords | are | as | astute | as | you
+1 | everyone | thinks | urinvalid | is | a | girlyou | hollow | out | the | cucumber | 
+1 | the | curious | incident | of | the | dog | in | the | nighttime | 
+1 | more | wishes
+1 | fuck | ing
+1 | computer | now | has | autism | got | it
+1 | can | confirm | do | want | to | cum | on | your | face | 
+1 | you | missed | the | best | part | of | him | that | designer | was | really | detailed |  | urlhere | 
+1 | link
+1 | had | she | finished | eating | it
+1 | that | there | would | come | a | day | when | the | most | important | part | of | it | would | be | the | intimacy | with | my | so | 
+1 | bro | had | his | sack
+1 | i | think | vagisil | would | fix | that | for | her | 
+1 | i | know | youre | joking | but | my | hands | still | want | to | strangle | you | its | a | reflex
+1 | for | the | glory | of | science | of | course
+1 | buy | smaller | condoms
+1 | is | the | cup | of | tea | there | just | to | mock | them
+1 | not | to | mention | tiresome | it | wears | me | out | just | reading | it | 
+1 | i | have | dune | waiting | on | my | shelf | for | finals | to | be | over | the | first | book | of | the | summer
+1 | you | just | had | to | show | off | your | set | up | didnt | you
+1 | press | a | button | to
+1 | maybe | you | would | not | make | those | horrible | spelling | errors | with | hand | writing | convenience | me | lol
+1 | wearing | their | skin | afterwards | isnt | nearly | as | comfortable | as | it | looks | in | the | movies
+1 | you | gotta | the | whole | fivepart | trilogy | its | great
+1 | the | giver
+1 | i | think | its | definitely | better | as | an | adult | 
+1 | if | you | experience | upoemforyoursprog | for | more | than | 8 | hours | appreciate | her | erudition
+1 | kim | jong | un | who
+1 | classic | aech | 
+1 | i | am | now | a | pokemon | master
+1 | the | idiot | by | dostoevskythe | plague | by | camusdisgrace | by | coetzee | 
+1 | have | done | can | confirm | source |  | urlhere | 
+1 | how | rarely | i | would | be | having | it
+1 | stephen | kings | 112263
+1 | smells
+1 | funniest | one | yet
+1 | lobsters | sure | they | taste | good | but | cray | fish | has | the | same | taste | for | 110th | the | prise
+1 | also | known | as | mozzarella | stick | throat
+1 | i | think | hes | finnish | 
+1 | supermans
+1 | parents
+1 | ahoyhoy
+1 | or | that
+1 | gtsqueaky | dag | toy
+1 | niggardly | its | time | we | reclaim | it | people
+1 | his | character | is | aware | that | hes | in | a | tv | show
+1 | twitch | donation | money
+1 | i | was | pretty | indifferent | to | it
+1 | jirble |  | to | pour | out | with | an | unsteady | handmichael | j | fox | sure | jirbled | that | milkshake
+1 | holocaust
+1 | oh | good | i | thought | it | was | gonna | be | weird | 
+1 | true | but | running | at | 99 | miles | to | the | gallon | i | save | enough | money | so | its | made | of | solid | gold
+1 | i | cant | read | the | handbook | because | the | lights | are | off
+1 | reddit | has | conditioned | me | to | assume | things | are | bullshit | until | proven | otherwise
+1 | throws | rock | collection | out | the | window
+1 | dont | know | about | cute | but | it | is | amusing
+1 | unlimited | toilet | paper | would | be | great | id | be | able | to | poop | more | than | 6 | times | a | month | 
+1 | when | people | call | me | too | skinny | you | would | never | tell | someone | they | were | too | fat | 
+1 | i | know | what | you | mean | pmmeyourbigtits | people | should | judge | on | class | more | than | how | we | look
+1 | close | its | actually | the | notebook | 
+1 | his | dick | looks | like | an | acorn
+1 | when | you | value | someones | opinion | and | they | end | up | just | making | fun | of | you | when | you | ask | for | it | 
+1 | this | kills | the | selfesteem
+1 | i | think | mostly | when | im | talking | to | someone | and | its | obvious | theyre | not | really | listening
+1 | my | crush
+1 | 100 | kilos | of | 100 | hundred | dollar | bills | 
+1 | wheres | the | chapstick
+1 | it | made | me | think | that | maybe | this | whole | time | coma | was | actually | an | acronym | 
+1 | wheres | my | husbands | namejk | im | lonely | and | single
+1 | is | this | the | real | life | is | this | just | fantasy
+1 | life | is | hard
+1 | im | american | sorry | 
+1 | how | many | animals | were | on | mosess | ark
+1 | where | am | ia | more | fun | answer | are | we | on | mars | yet
+1 | still | holding | out | for | roberts | rebellion | 
+1 | when | people | dont | text | back | it | kills | me | and | gets | me | thinking | of | what | i | couldve | done
+1 | what | city | is | farther | west | reno | or | laits | reno
+1 | hey | what | the | fuck
+1 | well | i | can | give | you | the | thoughts | of | 1 | guygtholy | shit
+1 | neat | i | assume | it | works | got | an | example | of | the | honkyell | you | can | share
+1 | oh | this |  | fuck | them
+1 | its | a | whore | stealing | our | lemons
+1 | randy | johnson | hitting | a | bird | with | a | 99mph | fastball | urlhere | 
+1 | moses | didnt | have | the | ark | noah | did | 
+1 | a | triangle | has | 3 | sides | illuminati | confirmed
+1 | there | a | cricket | one | with | a | seagull | somewhere | too
+1 | ops | momwait | im | op | damn
+1 | huh | oh | no | dont | worry | some | of | the | nurses | just | glued | pubic | hair | on | your | chin
+1 | man | that | drop | was | alllllmost | in | sync | if | only
+1 | ding | ding | ding | you | win |  | well | nothing | actually | 
+1 | illegal | bat | have | a | weight | in | the | end | for | extra | swing | power
+1 | here | i | am | 13 | years | and | some | months | later | and | that | still | makes | my | jaw | drop
+1 | whenever | the | man | tells | me | im | pretty | without | any | pushing | for | the | compliment
+1 | the | worst | was | when | my | mom | would | point | it | out | to | me
+1 | also | did | you | see | that
+1 | recognition | i | dont | need | it | all | the | time | but | it | motivates | me | to | do | better | 
+1 | its | white | isnt | it
+1 | on | the | same | baseball | related | theme | randy | johnson | disintegrating | a | bird | with | a | pitch | 
+1 | when | my | hair | is | on | point | with | minimal | effort
+1 |  |  | 
+1 | and | then | he | didnt | even | take | the | picture
+1 | followed | by | a | flexathon | in | front | of | the | mirror
+1 | i | feel | so | bad | and | yet | im | laughing
+1 | and | snow
+1 | they | definitely | dont | give | people | ostomies | just | because | they | are | in | a | comma | 
+1 | which | one
+1 | i | thought | this | said | eating | butter | at | first | 
+1 | exactly | this | it | gets | so | frustrating
+1 | i | think | ive | seen | this | on | my | moms | facebook | profile | 
+1 | you | are | probably | not | as | far | out | of | their | league | as | you | think | 
+1 | why | the | fuck | not
+1 | i | said | put | me | back | under | doc
+1 | officially | probably | to | as | a | training | exercise | unofficially | to | see | what | effect | it | had | on | them
+1 | ashley | is | ugly | as | hell | i | bet | 
+1 | rampage
+1 | shit | got | dark | quick
+1 | i | dont | know | the | accident | and | heart | attack | might | have | prepaid | some | of | that
+1 | as | an | italian | this | is | the | right | question
+1 | hasnt | mexico | surpassed | the | states | not | sure | if | its | the | fastest | thoughedit | oh
+1 | girls | love | the | 99 | fishing | right
+1 | will | you | go | to | prom | with | me
+1 | maiden | mother | crone | father | stranger | smith | warrior
+1 | well | of | course | youll | catch | them | you | have | the | speedy | advantage | of | the | riding | crop
+1 | aw | that | just | made | me | feel | all | warm | inside | good | for | you | 
+1 | its | your | daughter |  | unless | youre | fondling | her | youll | be | absolutely | fine
+1 | mom | my | barbie | cant | find | the | wifi | router | in | the | house | 
+1 | because | people | are | douchebags | 
+1 | i | want | my | copy | of | 50 | shades | back | please
+1 | i | could | let | you | use | my | work | sometime | but | then | i | would | be | directly | contradicting | my | conclusions | 
+1 | gtcontesting | majority | opinionyou | mean | posting | le | unpopular | opinion | me | me
+1 | anything | involving | feces
+1 | its | only | smellz | 
+1 | i | have | no | idea | what | language | you | are | speaking | 
+1 | before | digg
+1 | have | penis | sex | with | a | girl
+1 | anything | that | involves | food | shit | vomit | blood | or | piss
+1 | waitguys | can | make | money | off | cam | showsedit | til | i | can | get | paid | to | jack | off
+1 | can | i | hang | off | the | hoops | with | you | guys
+1 | id | offer | myself | but | id | need | to | supply | it | in | six | installments
+1 | not | allowed | to | see | the | harry | potter | movies | due | to | them | condoning | witchcraft
+1 | test | post | please | ignore
+1 | letting | them | do | anything | except | letting | them | be | themselvespretty | much | sums | up | my | life
+1 | what | if | its | not | in | the | toilet | yet | nice | loophole
+1 | i | guess | theres | always | a | loop | hole | when | it | comes | to | the | poop | hole
+1 | damn | karma | inflation | 
+1 | gta | few | years | ago
+1 | fuck | im | so | sorryhugs | hugs
+1 | i | just | got | a | letter | from | him | yesterday | so | ill | definitely | pass | the | word | along | thanks
+1 | reddit | is | moving | towards | heavy | moderation | over | the | past | 2 | years | or | so
+1 | if | you | dont | mind | me | asking | how | old | were | you | and | your | friend | when | this | happened
+1 | wow | 9 | years | on | reddit | and | less | than | 800 | combined | karma
+1 | i | wear | short | shorts | when | i | run | skies | out | thighs | out | 
+1 | thanks | for | sharing
+1 | wow | i | read | he | had | a | dysfunctnial | family | did | he | ever | mention | anything | about | that
+1 | haha | fuck | you | guysflies | away
+1 | gtthats | borderline | abuseftfy
+1 | national | treasure | so | much | murica
+1 | leaving | las | vegas | disturbing | but | good
+1 | can | confirmi | heard | this | earlier | this | month | from | my | gf | of | almost | 3 | years
+1 | con | air | is | my | favorite | lazy | sunday | film | hands | down | 
+1 | youre | a | poopyfacecuts | them | right | down | to | the | core
+1 | so | are | you | really | ugly | or | brain | dead
+1 | i | dont | really | care | anymore |  | youre | just | baggage | im | forced | to | carry
+1 | well | he | typed
+1 | takes | it | too | far | and | ruins | the | thread
+1 | gtwhen | well | shit
+1 | she | got | raped | because | you | were | too | weak | i | never | recovered | from | that | one | 
+1 | i | love | it | 
+1 | rbabykillers | 
+1 | do | you | bite | your | thumb | at | us | sir
+1 | thats | his | plan | for | the | future |  | become | a | coconut | radio | dj
+1 | floridas | penis |  | urlhere | 
+1 | game | of | thrones
+1 | yes | very | forced
+1 | whoa | man |  | you | okay | 
+1 | cowboy | bebop | obviously | youre | gonna | carry | that | weight | all | over | again
+1 | ya | then | you | get | to | realize | it | doesnt | feel | good | man
+1 | no | but | i | do | bite | my | thumb
+1 | windows | phone | is | awesome | 10 | time | out | of | 9 | its | the | user | 
+1 | tbh | odds | on | spain | winning | it | werent | even | that | big
+1 | he | just | looks | like | a | truck
+1 | a | slow | clap | what | for | being | a | completely | shitty | human | grow | up
+1 | yetedit | ffs | reddit
+1 | do | you | quarrel | sir
+1 | these | are | the | same | types | of | people | who | hate | drama | yet | are | always | surrounded | by | it
+1 | which | he | can | pay | for | with | all | the | bitcoin | he | mined
+1 | what | a | buzz | kill
+1 | i | am | the | captain | now
+1 | parlay
+1 | to | be | surrounded | by | drama | or | not | to | be | surrounded | by | drama | that | is | the | question
+1 | floyd | mayweather | 
+1 | its | okay | hes | a | tool | 
+1 | thats | the | saddest | disneyland | vacation | story | ive | ever | heard
+1 | but | wouldnt | that | mean | its | short | and | sweetps | that | was | the | fastest | gold | ive | ever | seen
+1 | 
+1 | that | guys | dumb
+1 | gt | called | me | an | idiotbbaka
+1 | look | at | you | stealing | all | the | limelight
+1 | we | need | to | limit | this | discussion | before | it | gets | out | of | hand | 
+1 | i | didnt | say | it | i | declared | it
+1 | the | code | youre | pirates | hang | the | code | and | hang | the | rules | theyre | more | like | guidelines | anyway
+1 | what | is | this | long | story | i | have | time | 
+1 | how | much | does | john | hughes | pay | to | write | your | life
+1 | its | okay | none | of | us | have | sex
+1 | bill | cosby | is | that | you
+1 | can | confirm
+1 | freshly | brushed | teeth | and | orange | juice
+1 | they | say | that | like | we | arent | all | here | procrastinating | for | something
+1 | yeah | i | read | his | comment | too
+1 | wow | flip | the | genders | on | that | one | and | see | if | it | ends | with | laughing | it | off | and | getting | drunk
+1 | the | only | right | answer
+1 | become | a | die | hard | alcoholic | and | bang | a | las | vegas | hooker | until | i | die
+1 | punch | a | pagan | wearing | a | bear | suit
+1 | procrastination | but | im | getting | rid | of | that | tomorrow
+1 | pimples | i | didnt | think | it | would | be | possible | to | have | both | pimples | and | wrinklesyet | here | i | am
+1 | last | night | because | i | am | not | happy | with | where | i | am | in | life
+1 | im | not | afraid | to | say | it | the | birth | of | my | sonwhy |  | happy | tears | 
+1 | im | sorry | to | hear | that
+1 | i | usually | cry | after | sex | so | yea | its | been | awhile | since | i | shed | a | tear | 
+1 | i | am | sorry | but | i | have | a | mac
+1 | careful | uauphorphaksache | this | burn | cream | might | bring | a | tear | to | your | eye
+1 | so | super | saiyans | cant | teleport | now
+1 | i | cried | during | interstellar | when | cooper | was | watching | the | tapes | of | murph | while | shes | growing | up | 
+1 | naked | grandma
+1 | also | bicycle | sellers | would | be | quite | happy
+1 | also | by | a | pair | of | size | 13 | boots | cover | them | in | mud | and | leave | them | on | your | front | porch | 
+1 | baby | legs | im | partnering | you | up | with | regular | legs | 
+1 | damn | that | is | harsh | i | never | picked | up | on | that | 
+1 | because | removed | from | the | scenario | its | fucking | ridiculous
+1 | 
+1 | if | you | have | a | repair | skill | of | 45 | you | should | be | fine | 
+1 | professors | will | no | longer | be | able | to | tell | if | we | are | male | or | female
+1 | first | time | on | the | freeway | i | was | sweating | 
+1 | everyone | on | reddit | is | patrick | star | except | you
+1 | i | dunno | man | i | think | denny | had | the | money | he | just | needed | a | few | mins | to | get | it | 
+1 | danny | devito | assuming | you | want | a | somewhat | serious | movie | it | would | be | hilarious
+1 | some | people | will | steal | certain | dogs | though
+1 | til | scott | pilgrim | is | greg | heffley
+1 | im | impressed
+1 | pirates | of | reddit | how | can | i | avoid | getting | plundered | out | on | the | high | seas
+1 | nice | try | it
+1 | even | worse | in | the | books | she | took | the | fool | as | a | hostage | not | the | wife
+1 | rgonewildaudio
+1 | fight | club
+1 | this | is | why | need | to | vote | yes | on | medical | cocaine
+1 | gtshower | thoughtheh
+1 | dat | scream | of | despair | after | mercy | killing | his | son | and | everyone | else | and | realize | the | fight | was | over
+1 | maybe | she | secretly | hates | all | of | you | and | knew | exactly | what | she | was | doing
+1 | probably | that | rice | thread | to | be | honest
+1 | maiq | knows | much | tells | some
+1 | i | am | the | eggman
+1 | a | mulattoan | albinoa | mosquitomy | libidoyeah | hey | yaysmells | like | teen | spirit
+1 | i | hope | this | is | his | answer | to | all | the | questions | in | the | ama | 
+1 | doesnt | he | get | mexicans | from | home | depot | to | choke | him | in | the | shower
+1 | we | dont | associate | ourselves | with | downtown | funk
+1 | it | translates | to | something | only | monkeys | and | rugrats | can | understand
+1 | things | are | going | to | change | i | can | feel | it | 
+1 | its | a | biographical | song | about | frank | reynolds
+1 | former | child | abuser | pretty | sure | they | stopped | making | him | choke | bart | a | decade | ago | 
+1 | the | fact | that | theres | so | much | porn | 
+1 | your | edits | made | me | laugh | more | than | the | comment
+1 | there | was | even | that | ship | episode | where | a | magikarp | was | cut | into | pieces | and | served
+1 | i | thought | it | was | going | to | be | a | chick | flick
+1 | also | put | a | horse | in | your | home | while | youre | away | this | will | confuse | and | scare | burglars
+1 | there | should | be | a | bot | for | rickyisms
+1 | youre | walking | in | the | woods |  | theres | no | one | around | and | your | phone | is | dead
+1 | indeed | such | verbose | brevity | is | impressive
+1 | paul | blart | bond | blart
+1 | hmmm | let | me | get | the | becktionaryedit | gonna | need | the | rhyming | becktionary | 
+1 | 10000 | blueeyes | white | dragons | vs | 1 | dragon | capture | jarthis | fight | aint | going | anywhere
+1 | uvargas | is | ron | jeremy
+1 | jesus | i | dont | even | care | about | the | possessions | dont | touch | my | fucking | dog
+1 | wow | are | there | examples | of | this | anything | to | do | to | avoid | this | from | happening
+1 | disturbeds | gibberish | writingooh | waaaaaaah
+1 | gt | hed | be | the | carpenteri | thought | the | beatles | were | bigger | than | a | certain | carpenter
+1 | individual | 
+1 | he | choked | bart | just | last | week
+1 | its | the | long | con | shes | actually | in | cahoots | with | the | woman | to | rob | them | of | everything | they | have
+1 | it | was | such | a | great | show | shame | it | isnt | on | anymore
+1 | yes | and | thats | what | makes | it | even | more | fun | to | sayalso | dibs | on | the | band | name
+1 | what | location | 3 | months | of | jail | time | seems | extreme | for | such | a | trivial | offense
+1 | now | we | wait | for | the | different | combinations | of | your | chart | to | be | posted
+1 | good | ole | pickles | i | hope | he | feasted | that | night
+1 | wow | im | almost | disappointed | this | wasnt | a | tree | fiddy | post
+1 | i | remember | that
+1 | being | smart | 
+1 | thats | a | simile
+1 | ive | been | told | its | one | hell | of | a | drug
+1 | you | cannot | get | pregnant | if | you | drink | water | before | sex
+1 | nina | hartley
+1 | are | you | asian | or | chinese | i | forgot
+1 | what | the | hell | is | wrong | with | being | a | mechanic | 
+1 | oh | shit | i | meant | astronomy | i | get | those | confused | a | lot
+1 | test | post | please | ignore | 
+1 | girl | says | omg | i | cant | wait | to | find | out | if | im | gonna | be | a | aunt | or | an | uncle
+1 | thats | almost | ralph | wiggim | stupid | 
+1 | i | hope | so | but | i | really | doubt | it
+1 | why | are | poor | people | so | poor | cant | they | just | buy | money | or | something
+1 | stoya | and | she | turned | down | free | implants | 
+1 | invading | the | us | at | any | time
+1 | sooo | fucking | with | you | guys |  | 
+1 | dani | daniels | 
+1 | rbeastialityinstructions | urlhere | 
+1 | buying | a | stuffed | grumpy | cat | and | keeping | it | on | top | of | your | collection | of | badlyprinted | rage | comics
+1 | anything | to | do | with | the | dmv
+1 | it | has | been | 11 | years | since | then | im | sure | whatever | statute | there | is | on | that | crime | has | run | out | 
+1 | i | like | both | her | talents | and | that | hot | juicy | enthusiasm | of | hers
+1 | id | be | dead | i | wouldnt | care
+1 | facebook | buying | reddit
+1 | i | say | canadia | it | started | out | as | a | joke | now | i | cant | help | it | anymore | 
+1 | i | never | said | i | sent | them | 
+1 | prions
+1 | defecting | to | north | korea | 
+1 | tell | me | more | taylor
+1 | i | feel | like | a | teachers | whole | job | is | to | interact | with | the | student | body | 
+1 | church
+1 | mall | cock
+1 | hitomi | tanakaedit | this | is | going | to | be | my | highest | comment | isnt | 
+1 | how | the | fuck | did | you | even | find | that
+1 | full | locked | in | syndrome | is | about | as | bad | as | it | gets
+1 | hiv | wasnt | discovered | until | the | 80s
+1 | oh | good | point | i | didnt | think | of | that | for | some | reasonedit | how | did | this | get | gold | lol
+1 | shh | let | me | have | my | fantasy
+1 | stop | stop | stop | saying | those | things | i | can | only | get | so | erect | 
+1 | day | dreamlook | in | your | eye
+1 | well | what | is | it
+1 | what | did | you | think | the | def | leppard | song | is | aboutpour | some | sugar | on | me
+1 | somehow | i | dont | get | the | impression | this | would | work | any | time
+1 | its | like | shes | keeping | it | prisoner
+1 | hey | what | the | fuck
+1 | what | the | fuck | do | they | need | seat | belts | for | the | car | was | parked
+1 | hate | to | break | it | to | you | but | finland | doesnt | exist
+1 | spidermen | 2 | too | many | spidermen
+1 | i | am | an | adult
+1 | stay | on | reddit | youre | bound | to | keep | hearing | about | it
+1 | taking | a | shit | without | verifying | tp | supply
+1 | its | not | rocket | appliances | you | dont | need | your | grade | 10 | to | figure | that | one | out
+1 | did | someone | say | riley | reid | urlhere | 
+1 | huh | i | should | keep | an | eye | out | for | my |  | uhh | clearly | unsuspicious | luggage | then
+1 | this | is | the | first | answer | that | didnt | pick | the | money | that | also | doesnt | see | m | like | naive | bullshit
+1 | at | least | you | would | be | in | kosovo | in | that | case
+1 | is | it | just | me | or | are | picture | 2 | and | 3 | the | same
+1 | oh | god | im | so | sorry | for | you | and | i | hate | you | 
+1 | welcome | to | the | seventh | circle | of | hell | buckle | up | and | keep | your | arms | inside | the | vehicle | at | all | times
+1 | i | choose | face | first | into | the | ground | at | terminal | velocity | personally
+1 | fucking | ellen | padeleted
+1 | thanks | but | can | we | not | shake | on | it | captaindickfingers
+1 | found | mayweather
+1 | lying
+1 | i | have | the | st | and | the | d | all | this | stud | needs | is | you
+1 | im | tired | youre | tired | we | should | sleep | together | 
+1 | swallowing | watermelon | seeds
+1 | if | you | dont | go | incognito | i | wonder | about | you
+1 | fvcking | metal | 
+1 | anyway | redditors | are | just | copying | everything | from | buzzfeed
+1 | staring | at | a | microwave | while | it | was | cooking | something | 
+1 | did | you | girls | come | together | no | did | you | want | to
+1 | ayy | girl | are | you | a | beaver | cuz | id | love | you | to | eat | my | wood
+1 | swimming | after | a | meal | apparently | just | touching | the | water | would | drown | me
+1 | gt | nice | nicethis | is | what | really | makes | it
+1 | you | want | to | see | how | much | reddit | karma | i | have
+1 | the | floor | as | it | was | lava
+1 | throws | girl | to | floor | another
+1 | chevy | silverado | gm | is | recalling | a | bunch | of | them
+1 | if | i | could | rearrange | the | alphabet | id | put | my | dick | in | your | ass
+1 | i | shouldnt | have | tried | this | line | on | kim | jong | un | 
+1 | brought | to | you | by | the | makers | of | sleep
+1 | this | is | right | up | there | with | but | where | are | you | reaaaaaaaaaaaaaaaally | from
+1 | should | have | followed | up | with | lets | be | honest | i | would | say | no | to | that | even | if | it | wasnt | true
+1 | or | that | government | debts | are | different | than | personal | debts | 
+1 | how | else | are | you | going | to | avoid | the | missiles | and | bullets
+1 | um | a | keyboard | 
+1 | goodniiightadingdingdingdingding
+1 | newspaper | delivery
+1 | gtbut | its | cheaper | to | use | peoplefor | now
+1 | andy | dick | was | never | funny
+1 | on | gone | wild | m
+1 | oh | no | i | left | my | porn | down | there
+1 | clever | girl
+1 | thats | because | we | will | make | them | unbreakable | from | the | begining | right
+1 | houston | you | have | a | problem
+1 | i | started | growing | hairs | funny | places
+1 | the | real | question | is | what | happened | to | you | that | caused | this | change | in | perspective | 
+1 | the | tip | of | his | cock | 
+1 | 24 | fps | is | superior | to | 60 | because | it | feels | more | cinematic
+1 | your | mom | definitely | did
+1 | who | does | that | fucken | weirdos
+1 | ah | yes | he | has | money | and | therefore | would | never | care | about | integrity | or | reputation | 
+1 | you | maniacs | you | blew | it | up | ah | damn | you | god | damn | you | all | to | hell
+1 | when | i | realized | you | can | call | me | al | was | a | fucking | awesome | song | 
+1 | you | could | have | any | parking | space | you | wanted
+1 | heh | i | feel | people | missread | the | key | word
+1 | no | but | some | kid | picked | it | up | thinking | it | was | part | of | a | jelly | donut | 
+1 | online
+1 | jesus | my | sides
+1 | thats | not | even | including | when | aunt | flow | is | visitingwe | use | a | lot | more | then | 
+1 | up | until | the | middle | there | i | thought | it | was | an | actual | bird | like | a | pigeon | or | something
+1 | he | was | my | inspiration | for | this | post | he | is | a | gold | mine | of | larry | king | jokes | and | has | been | for | years
+1 | im | all | for | experimentation | but | fucking | your | couch | cushions | is | just | disrespectful |  |  | 
+1 | you | only | need | a | link | to | an | imgur | image |  | urlhere | 
+1 | there | it | is | 
+1 | being | gay | is | okay
+1 | im | just | amazed | you | found | a | walmart | sack | without | a | hole | in | the | bottom
+1 | somewhere | over | the | rainbow
+1 | i | hope | he | was | thinking | my | whole | life | has | led | up | to | this | moment
+1 | you | know | youre | doing | some | pretty | serious | drugs | when | your | fallback | lie | is | acid
+1 | i | agree | yes | it | was | a | cute | entertaining | disney | movie | but | was | it | the | best | disney | movie | ever | no
+1 | who | the | fuck | got | hyped | about | segways | 
+1 | the | lion | the | witch | and | the | driveway
+1 | cloak | fashions
+1 | i | thought | the | ozone | layer | was | actually | pretty | decent | these | days
+1 | you | sound | like | horrible | people
+1 | that | shawn | michaels | kurt | angle | match | though
+1 | my | eyes | have | seen | some | shit | but | no | not | this | time | 
+1 | the | nose | in | your | winky | face | bothers | me | more | than | it | should | 
+1 | yeah | but | those | cities | today | would | be | considered | decent | sized | towns | 
+1 | to | be | fair | peeing | after | holding | it | in | for | a | long | time | can | be | orgasmic
+1 | some | say | hes | still | testing | inconclusive | to | this | day
+1 | trust | me | go | for | candidate | 1 | 
+1 | its | their | trick | to | not | get | hungover | i | know | a | couple | nurses | who | do | it
+1 | some | things | only | improve | with | age
+1 | live | in | city | can | confirm
+1 | til | i | need | to | make | friends | with | medics
+1 | nice | try | mom
+1 |  | urlhere |  | nsfw
+1 | if | i | aint | got | a | weapon | imma | pick | up | a | rock | and | when | i | bust | yo | ass | im | gonna | continue | to | rock | 
+1 | i | came | up | with | this | diagram | urlhere |  | based | on | ops | description
+1 | well | given | that | she | turned | into | a | poop | rocket | shortly | after | i | would | say | youre | right | 
+1 | god | bless | you | 
+1 | i | get | the | first | part | but | what | kind | of | disposable | sleeping | bags | are | you | using
+1 | thought | this | would | be | the | first | one | they | hyped | the | shit | out | of | that | game
+1 | but | why | male | models
+1 | kony | 2012
+1 | buffalo | was | lucky | to | get | that | 01 | this | year
+1 | id | have | a | house | designed | and | built | specifically | the | way | i | want | it
+1 | see | rthrive |  | the | game | spore | was | meant | to | be | 
+1 | werent | lucky | enough | for | mcdavid | though
+1 | stop | being | assholes | to | women | and | making | it | more | difficult | for | the | rest | of | us
+1 | 1 | sleeping | bag |  | 30 | cloth |  | 100 | wood
+1 | if | you | want | to | you | can | up | vote | this | commentjust | if | it | makes | you | feel | better
+1 | dat | doe | doh
+1 | then | we | should | create | a | new | subreddit | that | arranges | marriages | for | shy | people
+1 | guide | us | wise | one | 
+1 | check | the | changelog | they | fixed | that | bug | last | patch
+1 | whats | the | deal | with | airplane | mode
+1 | yeah | damn | goid | men
+1 | hey | baby | you | ever | had | your | asshole | licked | by | a | fat | man | in | an | overcoat
+1 | nothing | hun |  | picks | up | all | of | the | drinks | and | takes | them | back | to | her | boyfriend | 
+1 | fucking | goid | men | man | such | manipulating | weasels
+1 | you | meant | paragon | didnt | you
+1 | yeah | i | barely | pee | standing | up | anymore | instead | i | can | kill | three | birds | with | one | giant | shit
+1 | little | ballsack | big | adventure | 
+1 | but | did | the | entire | store | stand | up | and | cheer | for | you
+1 | well | red | bull | but | the | point | still | stands
+1 | thats | a | great | wingman | you | have | there
+1 | imagining | fantasy | lives
+1 | agreed | itunes | is | the | worst | 
+1 | dude | any | video | game | for | preorder | its | been | a | terrible | stretch
+1 | disposable | bic | razors | i | looked | like | freddy | kruger | after | using | those | 
+1 | please | drink | another | verification | can
+1 | fuck | ubisoft | it | has | fucked | me | over | countless | times
+1 | frig | off | ricky
+1 | gt15ply | mini | rolled | towels | as | toilet | paperyou | sure | thats | toilet | paper | and | not | a | washcloth
+1 | this | is | either | really | happy | or | really | sad
+1 | just | watch | this |  | urlhere | 
+1 | poke | my | eye | in | a | parallel | universe
+1 | well | dont | worry | most | babies | are | horribly | ugly | at | that | stage
+1 | your | insurance | was | denied | youll | be | needing | to | pay | for | all | of | this | yourself |  | heres | the | bill
+1 | bullys | dream | 
+1 | unless | thats | what | youre | into | i | guess
+1 | thats | not | a | fun | fact | thats | horrifying | you | lied | to | meyou | lied | to | us | all
+1 | have | a | good | day
+1 | jeanralphio | from | parks | and | rec | id | gladly | punch | him | in | the | face
+1 | dont | breathe | this | 
+1 | in | dublin | we | keep | dolphins | in | barns
+1 | as | a | southerner | united | states | all | i | read | was | biscuits | and | gravy | and | now | im | hungry | and | excited
+1 | yeah | blockbuster | got | erased | from | history
+1 | its | because | they | contain | lead | in | the | painted | surface
+1 | lets | be | honest | not | many | redditors | have | stats | much | over | 10
+1 | andrea | from | the | walking | dead
+1 | youre | too | sexy | and | thats | whyalso | stop | wearing | shirts | youre | too | sexy | for | that
+1 | much | like | i | would | describe | myselfhung
+1 | kirbutton
+1 | the | nintendo | games | they | just | found | at | a | yard | salegoodwill
+1 | marijuana
+1 | yeah | but | alison | brie | over | her | any | day | man
+1 | everlong | by | foo | fighters
+1 | the | only | coming | to | mind | right | now |  | semi | charmed | life | by | third | eye | blind
+1 | heres | the | thingno | shut | up | goddamnit
+1 | super | troopers | 
+1 | everytime | goodfellas | is | on | tv | i | lose | a | few | hours | of | my | life | ill | watch | it | every | time | 
+1 | whats | going | on
+1 | dae | remember | legem | well | i | found | le | gem | in | mah | moms | attic | ignore | the | fact | that | i | live | up | there
+1 | antiintellectuals | its | a | weird | kind | of | hypocritical | elitism
+1 | v | for | vendetta | i | could | watch | that | movie | again | and | again
+1 | test | child | please | ignore
+1 | this | kills | the | butthole | 
+1 | tv | version | is | lame | compared | to | the | real | movie | imo |  | its | just | missing | so | much
+1 | youre | not | a | complete | woman | if | youre | not | a | mother
+1 | gt | and | the | reddit | community | is | far | better | than | thatno | it | isnt
+1 | but | if | i | dont | bully | people | on | the | internet | how | will | they | ever | find | the | motivation | to | change
+1 | thank | you | alien | blue
+1 | good | thing | i | rented | my | spruce | goose | fleshlight
+1 | how | do | you | feel | about | dawdling
+1 | best | playoffs | of | any | sport | 
+1 | i | was | about | to | say | mine | works | great | and | is | so | easy | to | push |  | and | then | i | caught | on
+1 | nothing
+1 | ya | caught | me
+1 | ah | i | read | up | on | it | thatd | be | crazy | if | it | happens
+1 | skyrim | when | you | first | fight | that | dragon | outside | whiterun | surrounded | by | giantsgamergasms
+1 | when | someone | pretends | you | exist | only | when | they | need | something | from | you | 
+1 | for | jim | morrison | people | are | strange
+1 | i | seriously | think | everyone | should | try | lsd | at | least | once | 
+1 | 1 | in | 4 | is | not | in | the | bottom | 25 | of | average | intelligence | its | a | bell | curve
+1 | im | gunna | go | out | on | a | limb | here | and | say | penisi | in | general | are | a | bit | weird | lookin
+1 | gta | v | single | player | the | game | is | amazing | the | detail | its | insane | 
+1 | moms | spaghetti
+1 | you | havent | seen | the | fourth | one | you | dont | know | that | for | sure | 
+1 | hey | fuck | you | im | a | biologist | im | above | all | that | 
+1 | 3d | printing | weaponsedit | im | not | from | the | us | i | get | that | you | have | guns
+1 | thinking | anything | other | than | governmentapproved | thoughts | 
+1 | more | reasons | not | to | trust | him | in | civilization
+1 | blazing | saddles | or | young | frankensteinedit | fun | fact | they | were | both | released | in | 1974
+1 | right | said | fred
+1 | yes | it | had | a | sploosh | mark
+1 | like | moms | spaghetti
+1 | the | trees | have | leaves | on | them
+1 | bbut | muh | evil | sjw | overlords
+1 | i | think | the | blame | for | that | one | might | actually | fall | on | catholicism
+1 | ive | got | a | black | friend | so
+1 | as | a | straight | man | is | this | still | recommended
+1 | bill | murray
+1 | you | are | within | 20 | years | of | my | correct | age | so | i | could | be | up | to | 25 | or | as | young | as | 15 | years | old | 
+1 | no | i | draw | dicks | while | people | complain | about | life | 
+1 | touche
+1 | you | wanna | moan | hard | so | badly
+1 | so | well | make | that | a | 6 | then
+1 | good | kid | maad | city
+1 | being | anonymous | on | the | internethell | it | will | probably | be | illegal | in | less | than | 10 | years
+1 | holy | shit | the | substitute | teacher | with | the | sick | burns
+1 | rule | 34 | irl
+1 | please | directors | no | more | scenes | with | weird | sexual | tension | on | a | playground | full | of | kids
+1 | and | then | being | tried | as | a | 6 | year | old | adult
+1 | any | of | the | racist | ones
+1 | the | best | it | people | are | good | at | finding | answers | they | rarely | know | things | offhand
+1 | bill | clinton | upon | saying | i | did | not | have | sexual | relations | with | that | woman
+1 | oof | i | physically | cringed | at | this | one
+1 | streeeeeeetlaaaaaaamp
+1 | byte | like | error
+1 | he | shit | in | the | mother | fucking | kettlefuck | you | john
+1 | tom | cruise
+1 | football | coach | baseball | analogy | you | cant | explain | that
+1 | overreaction | 101
+1 | patiently | waits | for | delivery
+1 | i | need | more
+1 | i | could | see | paparazzis | getting | celebrity | sex | pics | with | drones
+1 | gt | we | gave | him | a | standing | ovationuh | huhsure
+1 | when | did | drone | become | the | new | hip | word | for | rc | helicopter | when | they | put | a | camera | on | it
+1 | oh | grandpa | you | so | silly | 
+1 | 0im | honored | thank | you
+1 | maybe | he | finds | you | beautiful
+1 | gtin | my | fucking | pillowdid | he | ever | leave | on | in | your | sleeping | pillow | instead
+1 | he | used | to | masturbate | while | i | was | in | the | room | awake | sitting | three | feet | from | him
+1 |  | poor | rabbit | thats | awful
+1 | username
+1 | that | he | pimped | out | his | wife | to | employees | and | asked | if | id | like | a | turn | edit | grammar | 
+1 | had | a | crush | on | you | and | was | in | love | with | your | fiance | covering | all | bases | 
+1 | one | bitch | two | bitch | dead | bitch | new | bitchedit | wow | thanks | for | the | gold
+1 | ah | i | heard | about | that | thanks | to | hello | kitty |  | urlhere | 
+1 | i | doubt | that | from | what | i | could | find | the | details | dont | match | up
+1 | why | the | hell | would | you | let | him | stay | for | 6 | weeks | after | all | of | that | horrible | shit
+1 | roses | are | redgas | chambers | are | greennow | come | get | some | of | this | sweet | peen
+1 | then | he | wouldnt | have | to | do | anything | at | all | genius
+1 | nah | its | pretty | fucking | weird | 
+1 | bruce | wayne | dressed | up | at | night | and | beat | people | up
+1 | its | adventure | time | ish
+1 | good | on | ya | mate
+1 | ah | the | old | dingaling
+1 | ive | got | some | bad | news | urlhere |  | for | you
+1 | hold | my | blag | blahs | going | balh
+1 | youre | good | friends | maybe | let | him | know | that | if | he | ever | wants | to | talk | youre | there | for | him
+1 | thanks | for | getting | that | sick | fuck | away | from | minors
+1 | the | ending | made | it | all | worthwhile
+1 | gurl | hold | my | weave | 
+1 | bro | its | a | social | experiment | 
+1 | he | says | he | wants | to | rape | the | best | looking | people | here
+1 | gabe | newell | try | asking | your | nongamer | friends | or | your | family | about | him
+1 | bjergsen | or | faker | outside | of | esports
+1 | i | usually | crush | pussies | with | something | rock | solid | too
+1 | people | outside | of | canada | definitely | dont | 
+1 | itt | i | dont | know | 995 | of | these | people | 
+1 | now | you | have | me | wondering | can | you | give | a | quick | explanation | to | the | proper | way | to | make | mushroom | tea
+1 | please | elaborate | i | cant | help | but | think | she | had | more | to | say
+1 | she | looks | so | majestic | standing | up | on | her | hind | legs | like | that
+1 | have | you | never | watched | the | dampd | community | episode
+1 | well | bruce | lee | is | dead | so | i | think | even | i | could | handle | him
+1 | roses | are | redviolets | are | blueim | a | schizophrenicand | so | am | i
+1 | send | it | to | the | admins | message | redditcom | and | they | should | consider | it | harassment | 
+1 | roses | are | redviolets | are | blueso | is | the | flagusa |  | usa | 
+1 |  | urlhere | 
+1 | checkmate | atheists
+1 | youd | expect | more | from | those | mothers
+1 | roses | are | redviolets | are | bluei | have | no | friendscommits | seppuku
+1 | my | rugby | team | is | more | like | a | drinking | team | with | a | rugby | problem
+1 | can | i | just | preemptively | say | george | rr | martin
+1 | really | down | to | earth
+1 | he | was | gettin | too | old | for | that | shit
+1 | came | here | to | say | the | same | thing | ive | had | two | its | hell | 
+1 | sammiches
+1 | gtwe | were | around | 9 | and | 11runexpectedjihad
+1 | the | question | should | be | what | the | hell | did | you | do | to | make | them | go | crazy | on | you
+1 | glitter | bomb
+1 | still | achieving | in | more | pg | arenas | however | 
+1 | that | takes | a | special | kind | of | bitchiness
+1 | just | in | time | for | mothers | day
+1 | a | 05 | second | lag | on | every | electronic | device | from | your | mouse | to | your | phone
+1 | and | in | the | goat
+1 | i | like | how | it | happened | every | other | wednesday
+1 | sounds | like | some | salty | mods | that | is | hilarious
+1 | super | troopers
+1 | those | two | boobs | make | the | breast | of | friends
+1 | littering | and
+1 | cracking | your | knuckles
+1 | yeah | we | can | skip | the | making | out | and | head | straight | to | the | bedroom
+1 | its | all | about | moderation | with | everything | 
+1 | the | naked | gun | urlhere | 
+1 | growing | a | beard | its | not | a | choice | really | more | of | a | lack | of | ability | to | grow | said | beard
+1 | rgetmotivated | would | rule | the | world
+1 | youre | a | big | guy
+1 | all | of | these | responses | sound | like | awesome | cards | against | humanity | cards
+1 | thats | actually | pretty | impressive
+1 | no | mention | of | the | lion | king | seriouslynaaaaaaaaaaaaaaaaaaaaa | ingonyaaaamaaaaaaa
+1 | i | dont | think | many | people | consider | it | a | fact | in | the | first | place
+1 | thats | why | the | only | animal | i | hunt | for | is | other | humans | 
+1 | of | course | they | did | havent | you | ever | seen | 10000 | bc | they | used | mammoths | to | build | the | pyramids | s
+1 | art | school | drop | out | almost | took | over | the | world
+1 | its | actually | ganhi | or | atleast | thats | what | ujstrydor | told | me
+1 | kangaroos | have | not | one | not | two | but | three | vaginas
+1 | thank | you | so | many | people | seem | to | think | eating | fat | makes | you | fat
+1 | ditto | that | sounds | fun
+1 | x2 |  | nightcrawlers | attack | on | the | white | house
+1 | gt | i | like | that | person | that | line | made | me | happy
+1 | i | loved | the | one | from | contact | urlhere | 
+1 | frat | life | those | people | will | never | be | for | me
+1 | im | a | chinese | adopted | child | my | family | is | black | and | they | the | muthafuckin | best
+1 | that | would | be | the | time | his | mom | calls | her | everything | but | jen
+1 | it | sounds | like | harry | potter | because | it | is | literally | a | harry | potter | reference
+1 | the | proper | english | term | is | acid | refluxit | literally | means | acid | going | back | out |  | which | it | does
+1 | ball | in | a | cup
+1 | drawing | a | properly | proportioned | stick | figure
+1 | im | running | away | from | hometwo | hours | latershit
+1 | i | see | mms | and | think | of | multimedia | message | 
+1 | i | like | him | already
+1 | insert | joke | about | clamshell | packaging | here
+1 | yeah | why | arent | we | outside | playing | motorized | polo
+1 | sounds | like | greek | mythology | to | me
+1 | alls | fair | in | love | and | sin
+1 | how | tall | are | you | privatesir | 59 | sir59 | i | didnt | know | they | stacked | shit | that | high
+1 | heil | myself | heil | to | meeeeeeeeim | the | kraut | whos | out | to | change | our | history | 
+1 | you | are | r | urockytheboxer | you | are | 
+1 | i | hear | he | can | go | from | flaccid | to | erect | in | a | moments | notice | 
+1 | big | point | you | missedsome | guyslike | to | get | drunk | and | look | at | tits | nothing | more
+1 | no | we | say | dead | 
+1 | dave | 
+1 | i | still | want | that | fucking | phone
+1 | a | tv | is | still | an | electronic | device
+1 | actually | thats | her | middle | name | her | first | name | is | crystal
+1 | hello | adventurer | we | see | your | troops | amassing | on | our | border |  | why | not | just | declare | war |  | civ5 | 
+1 | thats | why | its | ig | nobel | and | not | nobel
+1 | i | will | not
+1 | then | it | gets | all | metaphysical | and | shit | 
+1 | omg | i | feel | so | motivated
+1 | paul | rudd
+1 | this | thread | is | whiter | than | cottage | cheese
+1 | the | alphabet | has | no | reason | to | be | in | the | order | that | its | in | 
+1 | never | skip | kidney | day
+1 | erik | the | flow | urlhere |  | karlsson
+1 | your | bedroom | is | the | nuclear | option
+1 | it | does | its | called | twerking | the | people | just | die | mentally | instead | of | physically
+1 | everyone | loses | reddit | wins
+1 | someone | bring | spielberg | over | here
+1 | spot | on
+1 | but | isnt | iceland | notorious | for | outstandingly | low | genetic | diversity | 
+1 | you | gay
+1 | jaqen | hghar
+1 | he | looks | like | what | good | cologne | smells | like
+1 | my | parents | didnt | sign | my | permission | slip | for | that | feels | trip | 
+1 | a | fishlight
+1 | so | it | derails | towards | the | end
+1 | without | her | permission
+1 | tom | hardy
+1 | why | am | i | here | looking | at | pictures | of | dudes
+1 | scott | eastwood | gives | me | an | eastwoody | 
+1 | he | and | ewan | mcgreggor | could | spit | roast | me | all | night
+1 | if | we | could | figure | out | a | way | to | combine | his | sperm | with | the | rocks | wed | have | a | super | tan | superman
+1 | i | i | think | im | gay | now | 
+1 | danny | devitoe
+1 | ryan | gosling | was | absolutely | perfect | in | crazy | stupid | love | 
+1 | how | can | you | post | this | and | not | include | a | photo | jesus
+1 | youre | not | a | real | man | unless | you | can | take | a | 16 | inch | dildo | in | the | butt | without | crying
+1 | could | you | give | an | example | of | a | typical | working | day
+1 | girls | touching | their | elbows | behind | their | back | and | posting | the | attempts
+1 | the | beginning
+1 | heres | the | secret | everyone | uses | references | 
+1 | ooh | st | elsewherey
+1 | i | was | thinking | more | wherey | is | nemo
+1 | so | life | is | going | to | get | harder
+1 | instructions | unclear | purchased | wooden | sandals | in | cologne
+1 | nice | try | brazzers
+1 | yeah | but | i | really | need | a | job
+1 | no | way | dude | did | you | not | see | the | other | guy | say | it | wasnt | threatening
+1 | just | squeeze | down | into | the | job | cannon
+1 | but | war | war | never | changes
+1 | at | least | it | doesnt | have | microtransactions | 
+1 | league | of | legends | is | definitely | worth | a | shot | and | its | completely | free | to | play
+1 | rmeirl | me | too | thanks
+1 | katie | hopkins | on | this | morning
+1 | relevantuhf | urlhere |  | clip | 
+1 | thank | mr | skeltal
+1 | sadly | i | still | havent | played | infinite | ill | probably | grab | it | one | of | these | days | though
+1 | gt | is | there | anything | about | my | resumethat | concerns | youis | how | i | phrased | it | at | my | last | interview
+1 | as | a | lesbian | fake | nails | terrify | me
+1 | if | only | i | kept | scrolling | down | before | doing | the | work | myself
+1 | you | are | a | terrible | human | being
+1 | old | school | runescape
+1 | birth | control
+1 | the | mitochondria | is | the | powerhouse | of | the | cell |  | ten | years | ago | never | forgot | itnever | used | it
+1 | i | went | down | a | oneway | street | the | wrong | way | misread | the | signs | 
+1 | buy | cheap | hdmi | cables |  | they | are | just | as | good | as | the | expensive | ones
+1 | yeah | i | browse | r4chan | so | i | get | the | best | out | of | 4chan | without | having | to | go | to | 4chan | 
+1 | i | really | love | routside | i | just | wish | it | was | more | active | 
+1 | oh | man | this | is | great
+1 | dwarf | fortress
+1 | plugging | it | in | things | obviously
+1 | god | i | just | wanted | him | to | say | hey | liz | pull | up | a | video | of | a | 2 | year | old | drinking | a | beer
+1 | ahhhh | the | ole | brazilian | corner | pocket | 
+1 | when | will | you | get | home | its | been | an | hour | we | are | worried
+1 | oh | my | god | that | was | amazing | and | all | those | years | of | public | school | spanish | finally | paid | off
+1 | real | motherfucking | gangster
+1 | i | get | your | point | but | why | would | she | ever | agree | to | being | embarrassed | on | television
+1 | good | on | you | for | playing | santa | 
+1 | especially | not | on | television | 
+1 | you | can | get | free | cups | of | water | anywhere | that | sells | food | at | disney | this | saved | so | much | money | 
+1 | i | was | confused | at | first | but | then | username | all | is | well | carry | on | 
+1 | eminem | feat | nate | dogg | till | i | collapse
+1 | eye | of | the | tiger | will | always | be | part | of | my | workout | playlist | edit | because | of | wrestling | 
+1 | she | pulled | you | over | for | going | slower | through | a | school | zone | isnt | that | what | youre | supposed | to | do
+1 | the | admirals | response | was | so | perfect | we | dont | anticipate | that | he | really | took | it | in | stride
+1 | youre | probably | fluent | in | more | languages | than | this | guy | is
+1 | a | surprising | number | of | comedy | writers | did | i | know | the | simpsons | have | a | ton | so | did | futurama | 
+1 | hes | a | politician | so | i | assume | it | was | a | lie
+1 | gatorade | 2 | electrolyte | boogaloo
+1 | most | laundry | lines | are | longer | than | 5 | feet
+1 | this | really | sounds | like | that | guy | with | the | red | stapler | from | office | space
+1 | and | a | logical | fallacy |  | extremely | poor | form | on | her | part
+1 | subtext | is | the | word | buttsex | mixed | around
+1 | and | their | conservative | ringer | john | denver | comparing | them | to | nazis
+1 | my | dell | printer | has | had | low | toner | for | five | and | a | half | years | now | still | prints | good | copies
+1 | i | got | blood | on | my | hands | and | no | remorse | i | got | blood | on | my | dick | cause | i | fucked | a | corpse
+1 | damn | you | don | draper
+1 | kanye | west |  | power
+1 | i | believe | this | is | actually | law | in | the | us | 
+1 | i | read | about | 2 | sentences | and | knew
+1 | so | he | got | 5k | win | or | lose | why | not | kick | his | ass
+1 | desire | is | nice | in | french | though | how | do | you | pronounce | it | in | america
+1 | ive | known | 2 | girls | called | candida | in | my | lifeyes | they | shared | her | name | with | vaginal | yeast
+1 | you | can | get | anything | for | free | if | you | have | a | gun
+1 | fucking | bevers
+1 | hey | fuck | you | i | fucking | trusted | you
+1 | hey | everyone | check | out | moneybags | over | here | 
+1 | haikus | have | zeropunctuation | or | evencapital | letters
+1 | come | on | and | slamwelcome | to | the | jam
+1 | left | shark
+1 | that | was | you
+1 | briany
+1 | my | moms | name | is | hubertha | its | possibly | the | only | version | that | could | be | worse
+1 | only | because | you | like | the | iron | giant
+1 | i | hope | that | everyone | catches | the | acronym | 
+1 | gtaustralian
+1 | well | theres | a | lot | of | new | rules | because | of | shane |  | urlhere | 
+1 | a | 10 | here | brrrrrrrrrrrt
+1 | theyre | both | assholes |  | fuck | that | shit | id | straight | up | see | red | if | that | happened | to | my | dog |  | 
+1 | found | the | battlefield | player
+1 | i | just | buy | from | harbor | freight |  | then | i | know | its | going | to | break
+1 | the | fuck | kind | of | name | is | that
+1 | id | suggest | you | do | another | ctrl |  | f
+1 | holy | shit | what | a | stuck | up | bitch | who | the | hell | judges | children | by | their | names
+1 | yeah | it | was | attached | to | an | old | vw | beetle
+1 | inflammation | of | the | senior | side | effects | include | tardiness | and | no | fucks | given
+1 | my | dad | used | to | call | me | juice | or | juice | of | my | loins
+1 | sos | routside
+1 | then | just | keep | pushing | your | reservation | forward | until | you | eventually | decide | you | want | it | 
+1 | the | molester | 
+1 | i | met | a | guy | on | an | island | that | everyone | called | piggy | someone | murdered | him | on | that | same | island
+1 | audiobooks | on | the | other | hand
+1 | foxyou | need | to | fly | under | all | 7 | arches | to | take | on | the | special | boss | on | corneria
+1 | get | off | my | plane
+1 | this | is | actually | really | helpful | thanks | for | the | response
+1 | delores
+1 | 5000 | iq | sound | like | an | awesome | way | to | become | slaves | to | our | pokemon | overlords
+1 | wouldnt | that | be | having | sex | on | air | force | one
+1 | gt | 5000 | iq | loses | freedom | to | a | 10yearolds | pokeball
+1 | in | a | thread | about | fictional | characters | we | cant | suspend | that | rule
+1 | make | that | winning | the | wars | he | startson | his | own
+1 | armed | with | just | a | pistol
+1 | fucking | minmaxers
+1 |  | urlhere | heres | my | favorite | greentext | story
+1 | its | called | a | blaster
+1 | honestly | sounds | more | like | bean | than | ender
+1 | its | onomatopoeia | the | sound | of | a | wet | fart | in | between | turds | 
+1 | wut | teacher | abuses | kids | kids | get | punished | for | getting | evidence | fuck | that | noise | 
+1 | ron | swanson
+1 | what | would | you | do | for | a | clowndyke | bar
+1 | fuck | no
+1 | oh | yeah | well | we | americans | are | humbler | than | you | could | ever | dream | of | being | take | that
+1 | we | romanians | are | all | vampires
+1 | as | an | australian | coming | to | this | threadwut
+1 | mexican | family | events | are | the | best | thing | ever | mostly | because | of | the | food
+1 | well | everyone | on | reddit | seems | to | hate | my | chemical | romance | besides | me
+1 | already | hitting | my | 5th | cup | and | it | isnt | even | 12
+1 | excellent | deduction | watson
+1 | we | somalis | sure | do | love | our | bananas
+1 | a | dibdob | its | our | word | for | the | tv | remote | not | sure | how | it | started | 
+1 | canadian | here |  | i | say | sorry | even | when | i | accidentally | bump | into | inanimate | objects |  | 
+1 | new | zealand | seems | like | a | nice | place
+1 | how | rude | sips | tea
+1 | college | education | i | went | to | school | on | the | gi | bill
+1 | that | big | thing | is | true | for | everything | except | the | crocs | and | maybe | the | road | trains
+1 | and | the | great | whites
+1 | is | ur | daughter | single | 
+1 | you | really | sound | like | a | psycho | 
+1 | that | is | terrifying | 
+1 | as | a | canadian | coming | to | this | thread | sorry
+1 | it | was | cthulu
+1 | mate | you | know | what | a | condom | costs | these | days | ill | take | the | fucking | risk |  |  | 
+1 | green | water | breaking | over | the | bow | on | the | uss | saratoga | during | a | north | atlantic | cruise
+1 | water | tribe
+1 | i | think | they | just | keep | doing | it | because | they | think | its | fun | and | they | enjoy | it
+1 | gt |  | even | looks | like | clearly | is | an | elder | vampire
+1 | gt | navy | guy | here |  |  |  | gti | have | an | immense | fear | of | the | deepdarkness | of | the | ocean |  |  |  | 
+1 | then | where | do | they | go
+1 | q | what | do | you | call | an | italian | with | no | arms | a | a | mute | 
+1 | you | say | that | but | lets | be | honest | its | shit | 
+1 | when | people | get | pissed | off | because | you | gave | them | your | album | for | free | its | time | to | take | the | hint
+1 | if | you | know | of | a | better | way | to | catch | ghosts | id | like | to | hear | it
+1 | best | responses | should | be | i | used | to | like | this | band | but | now | they | suck | so | they | should | quit
+1 | its | gonna | get | like | a | content | version | of | the | hug | of | death | now | isnt | it
+1 | you | should | be | happy | now | that | the | russians | and | germans | arent | invading | anymore
+1 | i | love | that | scene
+1 | beyonce | shes | just | pretentious | and | hyped | up | by | teenage | girls
+1 |  | are | you | making | a | drake | amp | josh | joke | can | we | still | do | those | im | hype
+1 | a | redditor
+1 | i | dont | often | read | novels | but | that | sounds | really | interesting | im | going | to | look | for | it | thank | you
+1 | che | guevara | 
+1 | incest
+1 | those | two | little | asshole | hipsters | talking | about | their | fucking | phone
+1 | doesnt | mean | the | music | is | any | good
+1 | thats | really | horrible | i | hope | those | people | were | scared | that | they | killed | her | for | a | few | days
+1 | yeah | right | axl | doesnt | have | any | friends
+1 | there | is | literally | no | bad | time | to | watch | mean | girls
+1 | im | just | reading | this | and | slowly | thinking | this | guys | a | fucking | nazi
+1 | u | caught | me | 
+1 | only | pussies | reload | a | save
+1 | it | happens | fairly | regularlyit | occurs | about | 3 | seconds | after | ive | finished | masturbating
+1 | diahes | are | a | bitch | to | clean
+1 | oh | dont | forgetthat | was | after | he | nailed | her | hands | and | feet | to | the | floor | with | nail | gun
+1 | fine | if | you | count | sleeping | in | as | fine
+1 | i | remember | a | similar | story | involving | a | praying | mantis
+1 | just | asked | my | mom | she | said | its | never | gonna | happen | im | always | her | little | boy |  | 
+1 | yay | im | an | adult | 
+1 | existentialist | conversation | with | a | 3 | year | old |  | why
+1 | or | cry | about | dead | npcs | in | a | video | game
+1 | like | what | did | he | expect | to | happen | 
+1 | what | have | you | become |  | legendary
+1 | that | clans | name | albert | einstein
+1 | ah | the | iphone | where | the | inability | to | do | something | is | a | feature
+1 | is | that | a | euphemism | for | leprechaun
+1 | fuck | you | grandma | im | not | taking | out | the | trash | im | rich | as | fuck
+1 | the | internet | at | least | its | not | stamp | collecting
+-1 | do | you | have | a | moment | to | hear | the | good | news | about | our | lord | and | savior | jesus | christ
+-1 | 2015 | to | be | exact
+-1 | without | religion | there | would | be | no | violence | ignoring | atheistic | communist | regimes | crimes
+-1 | clever | use | of | mirrors
+-1 | its | true | though
+-1 | dats | fakd | op
+-1 | police | officers
+-1 | remind | me | to | give | you | gold | toor | row | as | i | get | paid | then
+-1 | only | to | people | who | dont | know | the | difference | 
+-1 | morally | wrong | maybeactually | wrong | no
+-1 | im | quite | dubious | as | to | the | authenticity | of | this | fact | 
+-1 | too | many | savagelove | podcasts | in | a | row |  |  | i | love | them | but | there | is | a | limit
+-1 | ttttday | junya
+-1 | thats | diabetes | not | her | weight | that | is | the | issue | also | probably | sedentary | lifestyle
+-1 | he | probably | meant | excuse | tbh
+-1 | peanut | butter | oh | my | god
+-1 | uelgindabomb | 
+-1 | women | keep | stopping | me | on | the | street | and | smelling | my | face | its | horrible
+-1 | christians | 
+-1 | if | i | make | a | thread | about | cars | im | not | interested | in | people | praising | bicycles
+-1 | a | classmate | of | mine | once | asked | what | date | is | 420
+-1 | sounds | like | those | teachers | have | the | strat | down
+-1 | patrick | bateman | 
+-1 | how | is | that | offensive | at | allshes | just | using | an | average | part | of | them | to | describe | students | she | had
+-1 | this | is | about | rather | more | than | films | but | thanks | for | contributing
+-1 | in | my | day | we | let | idiots | be | idiots
+-1 | i | once | heard | someone | say | that | daft | punk | is | only | famous | because | of | kanye | west | they | werent | joking | 
+-1 | mind | your | own | business | 
+-1 | i | was | googling | for | job | openings | of | my | dream | jobawesome
+-1 | suspicious | quotation | right | there
+-1 | gthe | nearly | died | of | highfivingfunniest | fucking | thing | ive | heard | all | day
+-1 | you | dont | molest | little | boys
+-1 | is | this | a | reference | to | the | great | gatsby
+-1 | we | get | it | youre | smarter | than | everyone | else | you | pretentious | douchebag
+-1 | i | get | bricks | and | dicks | hurled | up | my | asshle | everyday | and | i | do | it | for | freeits | called | prison
+-1 | does | he | live | in | baltimore | too
+-1 | your | question | as | phrased | makes | absolutely | no | sense
+-1 | any | sentence | that | begins | with | i | dont | support | gay | marriage
+-1 | gtimplying | people | cant | lie | when | there | is | a | serious | tag
+-1 | no | way |  | hes | a | pedophile
+-1 | youve | never | tried | anything | baconflavored | 
+-1 | simpsons | i | think
+-1 | ive | heard | of | prom | night | dumpster | babies | but | this | is | ridiculous | 
+-1 | gotta | be | the | teeth
+-1 | tax | is | theft | or | variations | on | this | extraordinarily | dumbassed | and | selfish | sentiment
+-1 | waitits | not | well | shit | fire
+-1 | dog | food
+-1 | i | use | jalapenos | instead | of | ginger | 
+-1 | put | anotha | shrimp | on | the | barby
+-1 | that | ps2 | came | out | in | the | 20th | century | 
+-1 | well | that | makes | two | of | us
+-1 | a | mattress | 
+-1 | god | is | real
+-1 | id | say | most | of | them | just | want | sex
+-1 | elaborate | please
+-1 | boston | college | is | boston | college | because | there | is | already | a | boston | university
+-1 | maybe | not | legend | of | korra | 
+-1 | ps | i | love | you
+-1 | maybe | you | shouldnt | indoctrinate | your | own | son | just | a | thought
+-1 | but | why | would | you | assume | serious | tag | means | no | lying | this | is | the | internet
+-1 | i | listen | to | alex | jones
+-1 | worked | out | although | i | felt | lazy | 
+-1 | as | a | military | child | and | owner | of | two | trucks | fuck | her | 
+-1 | you | are | supposed | to | think | while | reading
+-1 | legos
+-1 | unreported | false | rape | claims | are | still | a | small | fraction | of | all | unreported | rape | claims
+-1 | kids | are | shy | because | no | one | is | pushing | them | out | of | their | comfort | zone | anymoregive | them | a | shove
+-1 | would | you | consider | doing | an | ama
+-1 | fatties | 
+-1 | literally | 
+-1 | keep | drinking | 
+-1 | you | dont | really | understand | biology | or | sexual | attraction | do | you | 
+-1 | get | over | it | pansie
+-1 | i | love | it | when | people | make | fun | of | illiteracy | and | forget | apostrophes
+-1 |  | for | the | children
+-1 | yes |  | they | arent | completely | consumed | but | they | do | burn
+-1 | my | tumblr | url | is
+-1 | fuck | you | 
+-1 | plus | you | could | always | claim | tourette | syndrome | and | totally | go | in | for | the | sympathy | kill
+-1 | the | dude | behind | kony | 2012
+-1 | im | republican
+-1 | gtthats | not | stupid |  | think | about | what | you | just | wrote | for | a | moment
+-1 | thats | funny | as | hell | shoebomb | not | offensive | just | facts
+-1 | being | antiantiwhite | or | antiantimale | 
+-1 | i | feel | terrible | for | laughing
+-1 |  | relevance | i | dont | get | why | youd | bring | up | a | wedding | cake | 
+-1 | thank | god | for | mississippi
+-1 | evolution | is | just | a | theory | so | is | gravity | feel | free | to | test | it | 
+-1 | the | reapers
+-1 | canada
+-1 | please | show | me | why | it | isnt
+-1 | miley | cyrus | is | such | a | positive | role | model
+-1 | i | feed | off | your | hatred
+-1 | when | a | gay | friend | complemented | my | on | how | big | of | an | ass | i | was
+-1 | more | like | high | as | fuck
+-1 | can | confirm | was | dannys | joint
+-1 | you | get | my | upvote | you | wiseass | wonder | d
+-1 | 1yasuo
+-1 | paul | blart | can | cure | cancer
+-1 | since | im | american | its | either | walmart | is | the | best | store | ever | or | im | a | republican | 
+-1 | this | is | the | bitchiest | thread | ever | with | just | a | hint | of | misogyny | and | a | pinch | of | misandry | 
+-1 | i | want | you | to | use | an | not | a | thats | all
+-1 | you | know | that | orgasm | occurs | in | the | brain | right
+-1 | hold | up | my | parents | have | sexwait | i | probably | dont | want | to | know | the | answer | to | that
+-1 | add | is | bullshit | made | up | for | ppl | without | self | controlyou | are | getting | advantage | in | tests | 
+-1 | seconded
+-1 | rtumblrinaction
+-1 | who | should | i | date
+-1 | explaining | my | problem | to | my | dog | is | quite | effective | dogs | are | the | best | debuggers
+-1 | i | mark | this | comment | boring
+-1 | a | black | mamba | or | a | rabid | dog
+-1 | thanks | for | trying | 
+-1 | this | is | such | a | stupid | question | x
+-1 | oh | youre | the | one | who | works | with | her | never | mind | you | would | know
+-1 | porn | star
+-1 | felt | so | dirty | and | old | theyre | horrid | cars | ive | driven | 50s | ones | up | to | the | zr1 | all | horrible
+-1 | burn | it | 
+-1 | post | a | video | of | someone | killing | kittens | in | raww
+-1 | you | would | have | to | prove | they | are | bogus
+-1 | speeding | 
+-1 | go | to | rfunny | and | post | something | funny
+-1 | a | giant | metal | penisaurus | rex
+-1 | weed | isnt | a | drughah | oh | my
+-1 | nope | 3
+-1 | a | year |  | i | give | it | less | than | 6 | months | to | be | over
+-1 | then | im | sure | you | quite | agree | with | me
+-1 | so | prison | is | worse | than | rapebecause | you | get | raped | in | prison
+-1 | less | dates | no | one | lets | me | hold | their | wallet | anymore | and | i | cant | find | a | job |  | 
+-1 | police | brutality
+-1 | oh | youre | so | clever
+-1 | if | you | are | the | one | choosing | you | are | always | going | to | try | to | sneak | in | above | your | league
+-1 | he | lived | in | germany
+-1 | ya | his | argument | wasnt | very | good
+-1 | we | met | at | 16 | and | have | been | dating | since | a | little | over | four | years | 
+-1 | how | the | fuck | can | you | be | like | this
+-1 | someone | should | ask | this | again | in | s | couple | weeks
+-1 | love | is | valuable
+-1 | thats | gay | 
+-1 | you | win
+-1 | rtheydidthemath
+-1 | because | i | usually | call | them | ugly | while | i | smack | there | ass | and | hit | it | doggy | style | haters
+-1 | shoes | socks | and | backpacks | are | a | dead | giveaway
+-1 | ayy | lm
+-1 | neil | peart | no | one | would | suspect | a | thing
+-1 | yeah | have | you | seen | some | of | the | pictures | on | there | its | gross | af
+-1 | different | departments | in | different | places | keeping | track | of | different | news
+-1 | thats | just | sad | 
+-1 | ass | better | then | tits | but | pussy | tops | them | all | 
+-1 | my | god | you | english | are | so | arrogant | sometimes
+-1 | not | necessarily | ive | been | an | assman | since | my | day | 1 | tug
+-1 | unless | youre | a | guy |  | then | its | recommended | 
+-1 | paper | bends | in | earthquakes | 
+-1 | texas
+-1 | mine | would | say |  | delete | my | browser | history | 
+-1 | that | im | married | 
+-1 | she | thick | tho
+-1 | i | would | like | to | know | as | well | im | 999 | sure | ive | never | taken | a | selfie | in | my | life | 
+-1 | vanity
+-1 | how | the | police | keep | getting | away | with | murdering | black | people
+-1 | snitch | bitch | 
+-1 | that | he | exists | is | reason | enough
+-1 | and | magikarp | is | stupid
+-1 | boring | peaceful | everyday | scenarios | without | fantastic | conflict | dont | make | for | good | fiction
+-1 | how | have | you | been
+-1 | make | them | not | spend | the | money | we | give | them | on | drugs | and | alcohol | 
+-1 | two | words | north | korea
+-1 | not | a | big | superhero | guy | i | like | comicsgns | just | not | superhero | ones | ive | given | a | bunch | a | try | 
+-1 | mostits | turned | into | a | scam
+-1 | thats | the | best | thing | not | the | worst | thing | wrong | thread
+-1 | car | fire | 
+-1 | yes | youll | still | need | to | defecate | and | urinate | 
+-1 | the | hell | of | course | not | every | indication | is | to | the | exact | opposite
+-1 | sleepy
+-1 | i | survived
+-1 | not | a | damn | thing | its | just | another | daynumber | 
+-1 | thank | you
+-1 | hubris
+-1 | they | wrote | letters | and | usually | some | kind | of | company | set | it | up
+-1 | can | i | get | ranch | with | those | wings
+-1 | thank | you | please | dont | call | the | authorities
+-1 | stop | it | youre | turning | me | on
+-1 | are | you | my | wife | babies | sneeze | come | on | 
+-1 | there | are | gay | christians | too
+-1 | good | looking | out | 
+-1 | pariah | next
+-1 | jet | fuel |  | brought | towers | one | and | two | downas | well | as | seven | 
+-1 | holy | shit | the | cardinales
+-1 | that | sub | seems | like | the | ratheism | equivalent | of | the | parenting | world
+-1 | now | kith
+-1 | its | your | choice
+-1 | u | could | make | a | living | of | that
+-1 | racism | is | taughtjust | like | acceptance | 
+-1 | it | only | died | for | like | 3 | days | and | then | it | was | resurrected | 
+-1 | i | dont | think | you | know | what | fortunately | means | 
+-1 | they | are | the | bad | kind
+-1 | can | you | explain | to | me | how | not | being | attracted | to | children | makes | someone | a | luddite
+-1 | i | dont | know | what | its | called | i | just | know | the | sound | it | makes | when | it | lies
+-1 | a | lot | but | free | health | care | is | nice | eh
+-1 | id | love | to | hear | the | justification | that | insults | lead | to | rape
+-1 | gtwhos | parentswhosewhos | means | who | is | or | who | has
+-1 | american | tourists | how | obnoxious | they | are | 
+-1 | thanks | for | your | opinion | ill | read | some | more | if | people | reply | and | see | what | i | can | do | haha | d
+-1 | haha | 
+-1 | ahhahahahah | to | be | honest | i | didnt | really | bother | wording | it | out | its | the | net | anyway
+-1 | let | me | axe | you | a | question
+-1 | i | remember | a | guy | cumming | on | jodie | fosters | face | that | was | a | first | and | knowing | her | a | last | 
+-1 | lollipops
+-1 | you | cant | see | beyond | 30fps
+-1 | agreed | worst | movie | i | have | ever | watched | in | its | entirety | 
+-1 | shh | they | dont | want | you | to | know | about | the | fact | that | you | can | opt | not | to | have | children
+-1 | yeah | quite | the | opposite | from | what | people | meet | from | frenchmen |  | hoohoo
+-1 | psychocybernetics |  | a | new | way | to | get | more | living | out | of | life
+-1 | and | so | did | your | mom | d
+-1 | this | 
+-1 | then | you | can | call | me | plan | b
+-1 | yeah | but | hes | a | really | good | actor
+-1 | that | is | not | what | the | op | said | what | the | op | said | doesnt | make | sense | 
+-1 | yeah | divorce | can | be | rough | is | there | another | way | that | men | can | be | raped
+-1 | i | have | never | had | a | gag | reflex | 
+-1 | forrest | gump
+-1 | people | that | dont | write | the | way | they | talk
+-1 | youre | joking | right
+-1 | loved | all | of | it
+-1 | its | probably | just | not | the | sort | of | work | our | brains | evolved | to | do | much | of
+-1 | very | close | you | win
+-1 | this | one | o | no | okay
+-1 | shes | dead
+-1 | rnocontext
+-1 | clean | up | and | go | on | 
+-1 | i | upvoted | just | because | it | was | liam | neeson
+-1 | blue | balls
+-1 | being | a | parent | apparently
+-1 | youve | never | heard | christine | sixteen | by | kiss
+-1 | how | many | people | posting | here | have | every | been | in | a | fight | in | their | life
+-1 | chinese | finger | trap
+-1 | theres | a | bit | of | cross | over | there | though
+-1 | shawshank | redemption |  | how | can | it | be | anything | else
+-1 | evolution | is | just | a | theory
+-1 | jet | fuel | cant | melt | dank | memes
+-1 | i | want | to | know | is | shehe | still | decided | to | prove | to | him | god | didnt | exist | 
+-1 | alright | you | cunt
+-1 | lol | rekt
+-1 |  | killallfrench
+-1 | if | the | content | is | 810 | gross | i | scrunch | it | if | its | lower | consider | it | folded | then
+-1 | i | had | heard | japan | was | in | decline | and | now | is | back | on | the | rise
+-1 | youre | probably | gunna | have | to | nail | her | again | then
+-1 | crafty | is | anagram | for | catfry | which | is | anagram | for | fatcryhmmmmm
+-1 | by | japanese | standards | or | by | westerners | standards
+-1 | jet | fuel | cant | melt | steal | beams
+-1 | nice |  | what | flavor | milkshake | did | he | end | up | getting
+-1 | my | grandma |  | ops | grandma |  | and | both | those | grandmas | together
+-1 | gtno | degree | is | ever | worthless | unless | it | turns | out | to | be | worthless
+-1 | if | it | werent | for | that | horse | i | wouldnt | have | gone | to | college | that | year
+-1 | math | became | hard | the | moment | letters | were | introduced | fuck | all | those | x
+-1 | i | go | outside | and | still | reddit | too | much | damn | mobile | phones
+-1 | its | probably | our | son | i | dont | think | id | change | that | 
+-1 | its | called | a | baby | sitter |  | i | would | reccomend | you | hire | one |  | 
+-1 | anything | with | the | word | kardashian | in | it | i | mean | really | what | the | fucking | fuck
+-1 | ayy | lmao
+-1 | i | broke | a | guys | ribs | once | he | said | it | hurt | a | lot
+-1 | hr3kt
+-1 | yeah | nicki | did | all | that | shit | to | get | famous | shes | actually | pretty | smart
+-1 | again | i | also | know | some | very | bright | and | promising | future | teachers
+-1 | riots | are | the | language | of | the | unheard
+-1 | i | dont | know | op | ask | your | mom
+-1 | elephants | 
+-1 | no | one | thinks | this | is | a | beautiful | comeback
+-1 | sounds | like | she | posts | on | 4chan
+-1 | or | my | axe
+-1 | the | quicksilver |  |  | marvel | and | fox | cast | different | actors | for | the | exact | same | role | 
+-1 | accept | it
+-1 | puns | aside | it | could | have | been | a | good | movie | 
+-1 | sometimes | cookies | give | me | the | trots
+-1 | police | officers | doing | there | damn | job | 
+-1 | youll | get | over | the | guilt | soon | and | wish | they | would | leave | you | alone
+-1 | heartburn
+-1 | wow | a | celebration | of | being | a | dick | and | a | drug | dealer | sounds | like | hes | going | far
+-1 | how | is | english | the | default | when | america | had | no | default | language
+-1 | such | a | lovely | place | 
+-1 | ive | seen | this | post | a | few | times | today | context | im | lost
+-1 | what | about | a | canadian
+-1 | dont | trust | strangersor | sometimes | your | friends
+-1 | whenever | me | and | my | buddies | talk | about | it | one | of | us | says | this | at | least | once
+-1 | hell | id | think | its | more | accurate | to | say | diff | eqs | convert | calc | to | algebra
+-1 | seriously
+-1 | i | cant | even
+-1 | better | than | 12 | yr | old | first | time | nude | forced |  |  |  | 
+-1 | fuck | that |  | if | i | dont | have | the | money | i | dont | buy | it
+-1 | one | can | never | have | too | many | animals | when | living | on | a | farm |  | miramarvtm | 2015
+-1 | not | this | one | boom | roasted
+-1 | why | does | michael | j | fox | make | the | best | milkshakeshe | uses | the | best | ingredients
+-1 | lib | dems
+-1 | nike | for | so | many | reasons | mostly | because | of | tiger | woods | 
+-1 | unwillingness | to | learn
+-1 | capitalism
+-1 | i | was | referring | to | the | eu
+-1 | money
+-1 | ahhh | the | ole | reddit | switheroo
+-1 | nope |  |  | i | deplored | math | in | school |  | i | really | like | learning | in | general | but | math | was | just | boring
+-1 | could | the | average | german
+-1 | i | dont | have | a | car | yet | but | if | i | did | ill | call | it | the | car | to | be | meta | and | shit
+-1 | she | liked | using | your | spoon | to | stir | her | coffee | or | grew | up | in | a | house | where | spoons | were | few | 
+-1 | we | know | american
+-1 | where | do | you | live | an | iraq
+-1 | im | already | convinced | by | the | evidence | so
+-1 | because | its | an | awful | thread | it | says | best | names | not | shitty | puns
+-1 | thats | ok
+-1 | certain | very | illegal | fetishes | perhaps
+-1 | not | being | autistic
+-1 | play | some | games | on | your | phone | or | something
+-1 | you | sound | like | a | very | smart | person
+-1 | dont | talk | about | the | internet | irl | unless | youre | with | your | bros
+-1 | its | 5 | oclock | somewheredo | you | know | how | a | fucking | clock | works
+-1 | cluster | headaches
+-1 | what | sort | of | jobs | have | you | been | applying | for
+-1 | ayy | lmao
+-1 | the | rolling | stones
+-1 | too | drunk | to | legally | drive | is | too | impaired | to | legally | give | consent | there | is | no | grey | area
+-1 | no | rest | for | the | wicked | by | ozzy | osborne | 
+-1 | rcaptainclub
+-1 | mrs | mantooth | was | a | saint
+-1 | mums | spaghetti
+-1 | a | cup | male | genital | protective | gear | lip | stick | and | a | stuffed | bra
+-1 | sounds | like | she | has | some | pretty | intense | trauma | in | her | past | 
+-1 | please | start | your | stories | with | full | names | and | social | security | numbers | please
+-1 | but | before | he | went | to | the | bat | cave | abraham | lincoln | popped | out | of | his | grave
+-1 | yes | you | would
+-1 | well | ive | got | my | day | planned
+-1 | would | you | rather | have | heavily
+-1 | bully | people | until | they | commit | suicide
+-1 | doing | you | a | favor | in | the | first | part
+-1 | well | he | didnt | get | the | name | dumbbldore | for | nothing
+-1 | so | yes
+-1 | 3spooky5me
+-1 | you | read | it | correctly |  | thats | exactly | what | it | says
+-1 | go | awaya
+-1 | har | har | if | time | were | frozen | for | everyone | except | you
+-1 | kate | hopkins | vs | gregor | clegane | the | mountain
+-1 | dinklbuuuuurg
+-1 | hannity | does | karate | beck | vs | hannity
+-1 | kim | jong | un | vs | bashar | al | assad
+-1 | i | always | enjoy | the | taste | of | a | nice | bp | of | some | marijuanas | before | i | hit | the | road
+-1 | lasting | long | i | have | sex | on | average | 23 | a | day | i | have | 3 | fwb | no | girlfriend | or | wife | lifes | good
+-1 | i | dont | know | why | anyone | would | start | this
+-1 | democrats
+-1 | i | think | you | meant | piece
+-1 | bang | them | in | the | ass
+-1 | tumblr
+-1 | i | was | on | my | phone | and | the | other | comments | didnt | show | up | thanks | for | being | a | dick | though
+-1 | start | wildly | urinating | on | them
+-1 | darudesandstorm
+-1 | why | is | it | acceptable | to | not | give | a | fuck | i | give | a | fuck
+-1 | why | you | excited
+-1 | it | was | bitch | in | the | comment | with | the | false | arrest | 
+-1 | were | you | giving | an | enthusiastic | blowjob
+-1 | is | that | supposed | to | be | terabyte | or | terabit
+-1 | as | a | pious | man | i | find | this | offensive | please | take | this | down
+-1 | if | you | dont | mind | me | asking | what | was | the | original | career | plan | 
+-1 | why | would | you | tell | your | professor | its | not | like | they | care
+-1 | fuzzy | wuzzy | was | a | bearfuzzy | wuzzy | had | no | hairthe | chemo | is | really | wearing | him | out
+-1 | i | fear | that | this | is | what | our | country | is | being | reduced | to | electing | celebrities | 
+-1 | gt | nuts | arent | good | for | you | they | make | you | gag
+-1 | was | there | evidence | of | any | of | the | rapes | no
+-1 | they | dont | assume | that | at | all | by | giving | only | two | options | that | doesnt | exclude | all | others | 
+-1 | dont | ejaculate | in | mommys | panties
+-1 | titanic
+-1 | gypsies | have | lived | in | europe | for | centuries | what | are | you | talking | about | have | no | space
+-1 | ellen | page | i | would | just | feed | her | jizz
+-1 | knock | knockwhos | therethe | inappropriate | doctorthe | inapproyou | have | cancer
+-1 | ava | although | unfortunately | ive | only | met | one | and | she | was | batshit | crazy
+-1 | star | wars | star | trek | any | space | galactic | fighting | movie | ever | so | overrated | imo
+-1 | suicide
+-1 | you | sound | a | little | too | adamant
+-1 | didnt | understand | the | question
+-1 | she | probably | just | finds | it | annoying | 
+-1 | see | previous | comment
+-1 | i | hate | how | much | i | love | it
+-1 | if | you | dont | believe | it | you | havent | visited | where | im | from
+-1 | me | bitch | kanyes | got | nothing | on | me
+-1 | revenwithcontext | 
+-1 | what | is | a | shotgunner | in | trench | warfare | ive | never | heard | of | them
+-1 | daves | not | here | man
+-1 | my | mom | would | sign | me | out | so | i | could | poop | at | home
+-1 | hell | no | people | who | say | pokmon | is | always | the | same | dont | know | shit | about | pokmon
+-1 | if | you | dont | spot | any | on | your | route | make | your | own | for | future | travelers | to | enjoy | 
+-1 | such | a | classic | i | saw | it | and | still | went | swimming | the | next | day
+-1 | what | the | fuck | kinda | school | do | you | go | to
+-1 | youre | brilliant
+-1 | is | your | tongue | burnt | you | probably | drank | your | coffee | before | it | was | cool | too
+-1 | my | dick | explode
+-1 | i | love | how | reddit | can | get | annoyed | over | the | most | trivial | things
+-1 | they | dont | exist
+-1 | did | you | put | it | in | though
+-1 | thats | racist | as | fuck | man | kpop | is | the | bees | cheese
+-1 | dsmv | on | deck
+-1 | it | is | cool | though
+-1 | you | know | youre | an | og | if | you | remember | the | origin | of | mark | nutt
+-1 | fuck | buddiescomhummmmmgood | to | know | 
+-1 | whats | big | blue | and | bouncesa | big | blue | bouncy | thing
+-1 | i | like | that | chicken
+-1 | would | you | want | to | buy | used | anal | beads
+-1 | her | number
+-1 | serious | define | what | you | mean | by | homophobic | the | word | is | overused | 
+-1 | game | of | thrones | title | screen | menu | music | inside | jokes | 
+-1 | blow | that | dog | whistle | a | little | harder | why | dont | you
+-1 | youre | the | guy | who | asked | for | an | antijoke | dont | get | bitchy | when | thats | what | you | get
+-1 | drugsyes | i | saw | the | serious | tag
+-1 | but | feng | shui | is | just | made | up | interior | decorator | bullshit | isnt | it
+-1 | only | 20 | to | spend | freely | better | hope | your | kid | doesnt | have | any | fun | hobbies | or | expenses | 
+-1 | one | time | i | flicked | a | ping | pong | ball | and | my | fingernail | kind | of | hurt | for | a | couple | seconds
+-1 | got | help | the | two | siblings | im | sure | they | have | by | now | black | white | and | x | y
+-1 | dont | forger | your | cough | medicine | bottle
+-1 | youtubers | talked | about | itfound | it | boring
+-1 | op | has | relevant | username
+-1 | bieber | 
+-1 | i | couldnt | care | less | the | fact | that | this | is | news | in | 2015 | is | ridiculous
+-1 | that | was | the | post | that | finally | made | me | unsub | to | rwtf
+-1 | wawas | sell | sandwiches | why | do | people | insist | on | getting | their | food | where | they | get | gas | weird | 
+-1 | id | imagine | if | dank | memes | count | this | surely | does | as | well | 
+-1 | good | ol | p | blarto
+-1 | if | you | cant | look | people | in | the | eyes | then | you | autistic
+-1 | whisky | dick
+-1 | lol |  | the | matches |  | who | knows | what | fine | other | crazy | you | missed | out | on
+-1 | work | smarter | not | harder
+-1 | its | bullshit | they | didnt | let | you | watch
+-1 | maybe | she | cried | because | there | was | a | bunch | of | cut | up | onions | in | the | pack
+-1 | the | original | red | dawn
+-1 | republican | party | website
+-1 | was | it | because | of | the | semen | stains | i | bet | it | was | because | of | the | semen | stains
+-1 | hello | brian | hows | that | cabbie | of | yours
+-1 | you | seem | irrationally | upset | thats | some | next | level | ragefilled | racist | shit
+-1 | the | person | i | replied | to | did | know | that | though | 
+-1 | who | gives | a | shit | get | back | in | the | kitchen | and | make | me | a | sammich
+-1 | that | not | every | account | on | reddit | is | a | bot | except | me
+-1 | fuck | da | police
+-1 | thats | because | you | were | in | middle | school | and | therefore | an | idiot
+-1 | let | me | guess | you | have | a | great | personality
+-1 | whats | brown | and | sticky | a | stick
+-1 | 5 | minutes | lateroh | theres | sarcasm | at | the | bottom | i | get | it | now | d
+-1 | menstruating
+-1 | this | is | actually | semi | true | the | biology | of | a | women | can | change | quite | eradically | after | mating
+-1 | which | wasye
+-1 | haha | im | good |  | 
+-1 | skip | work | spend | all | my | money | traveling | maybe | they | better | my | life
+-1 | please | prove | username
+-1 | big | johnson | tshirts | so | insinuating | that | a | scrawny | kid | could | get | a | lot | of | tail
+-1 | wow | this | could | not | have | been | said | better
+-1 | and | then | you | used | a | meme | as | a | noun
+-1 | when | people | ask | me | to | do | stuff
+-1 | sports | cards | ffs | i | have | thousands | of | those | worthless | things
+-1 | you | should | get | out | of | there |  | i | heard | shes | a | bitch
+-1 | gtfunds | the | free | to | view | channels | like | the | bbcthey | arent | free
+-1 | i | definitely | paused | there | for | a | second | too
+-1 | cool | 0
+-1 | try | not | to | get | in | a | car | accident
+-1 | rstopselfharm
+-1 | whatever | you | say | buddy | 
+-1 | a | true | hero | right | here
+-1 | here | take | some | gold
+-1 | i | could | say | any | curse | word | except | suck
+-1 | damn | i | am | part | scottish | and | japanese | welp | kancho | jabbering | technique | engaged | 
+-1 | aeris | death
+-1 | its | not | exactly | a | line | most | people | remember | imo
+-1 | rob | roy | had | his | intestines | intact | at | the | end | of | the | movie | 
+-1 | using | liquid | hand | sanitizer | all | the | time | stupid | habit
+-1 | nothing | you | do | in | a | video | game | is | fucked | up | its | in | a | video | game | smh
+-1 | more | like | sto | sexually | transmitted | oligarchy | 
+-1 | i | will | forever | hate | country | music | strictly | hip | hop | and | edm | 
+-1 | jet | fuel | cant | melt | steel | beams | 
+-1 | are | you | the | one | in | the | bathroom | for | 3 | hours | getting | ready
+-1 | sois | your | so | asian
+-1 | i | think | he | meant | rush | hour | 2
+-1 | well | fuck | the | police | man
+-1 | ftl | has | a | beautiful | soundtrack
+-1 | stephen | fry | reads | hitchhikers | guide | yup | different | voice | for | everyone
+-1 | with | broken | arms
+-1 | baratheon
+-1 | can | we | not | curse | is | this | grade | school
+-1 | oh | are | you | in | a | milita | a | well | organized | one | 
+-1 | he | isnt | like | regular | kyle | some | would | say | hes | the | reverse
+-1 | how | can | you | even | tell | lol
+-1 | the | furry | virus | is | spreading | c
+-1 | the | white | snake | thing | 
+-1 | nopenopenopenope
+-1 | i | end | capitalism | nobody | gets | to | own | the | means | of | production
+-1 | male | unicorn | parts | or | male | human | parts
+-1 | i | know | but | it | seems | kind | of | insulting | 
+-1 | new | jereseymost | muff | gahbage
+-1 | i | kind | of | find | it | funny | how | people | say | blacks | are | still | oppressed | when | the | president | is | a | black | man
+-1 | i | was | making | fun | of | a | pig
+-1 | kate | upton | i | dont | need | to | tell | you | why | but | i | watch | a | lot | of | efukt
+-1 | and | who | r | u
+-1 | op | too | much | karma | on | reddit | today
+-1 | pickles | with | strawberry | cream | cheese
+-1 | lesbian | hooters | is | just | regular | hooter | but | all | the | women | have | hairy | armpits | 
+-1 | gthe | an | inanimate | object
+-1 | bitches | be | crazy | 
+-1 | there | unomomoneynomohoney | dreams | of | becoming | a | famous | antijoke | teller | were | crushed
+-1 | the | concept | of | ice | cream | sandwich | baffles | me | sounds | disgusting | 
+-1 | boashk
+-1 | linkfor | science
+-1 | nobody | give | a | fuck | about | the | story | of | your | downvotes
+-1 | youre | awfully | judgmental | considering | youre | late | also
+-1 | does | that | mean | she | pronounces | her | cats | name | essentially | the | same | as | her | own | name
+-1 | hit | a | nerve | i | guess
+-1 | dude | science | you | can | give | me | her | number | too | i | need | to | ehrm | scold | her
+-1 | anything | from | china | 
+-1 | oh | george | youre | so | wacky
+-1 | hot | skinny | girls | make | more | money | for | the | modeling | industry
+-1 | a | trap
+-1 | i | just | saw | this | exact | same | question | 15 | minutes | ago | 
+-1 | sami | khedira | probaply
+-1 | that | thread | was | stupid | at | best | not | scary
+-1 | we | dont | play | baseball | here | buts | have | only | one | purpose
+-1 | i | played | spec | ops | the | line
+-1 | every | black | guy | i | met | is | a | complete | dick | hostile | a | fucking | animal | 
+-1 | shes | a | solid | 5
+-1 | its | the | service | reddit | needs | but | not | the | one | it | deserves
+-1 | s | or | no | 
+-1 | portugese | manowar | wrapped | around | my | leg | was | under | the | age | of | 10 | and | it | was | intense
+-1 | how | do | you | call | a | woman | on | a | donkeya | two | floor | donkey
+-1 | rivet | its | for | reattaching | dicks
+-1 | because | for | two | people | chipotle | probably | costs | 15 | dollars | anyways
+-1 | shag | as | in | unknowing | help | her | masturbate
+-1 | you | can | have | a | tinder | account | without | facebook | now |  | 
+-1 | you | do | realise | you | made | an | innuendo
+-1 | and | i | thought | youd | realize | it | wasnt | a | reference | to | any | particular | thing
+-1 | well | yeah | id | much | rather | pay | for | a | tv | license | than | pay | for | healthcare
+-1 | nah | keeping | him | alive | and | using | constant | barrage | of | stealth | bombers | 
+-1 | i | made | that | quote | i | would | appreciate | if | you | at | least | credited | me | 
+-1 | unless | hes | gay | shitlord
+-1 | and | thats | what | elementary | teachers | misconstrued | throughout | everyones | lives | 
+-1 | fuck | i | was | not | expecting | that |  | 
+-1 | lol | your | husband | sounds | like | quite | the | jokester | you | should | cheat | on | him | with | me
+-1 | who | were | the | other | people | were | they | the | others
+-1 | dan | carlins | hardcore | history | wrath | of | the | khans |  | youll | wish | the | drive | was | longer
+-1 | whipped | af
+-1 | easy | way | to | solve | this | problem
+-1 | daddy | howd | the | building | fall | if | jet | fuel | cant | melt | steal | beams | 
+-1 | cant | you | just | go | on | okcupid | or | something
+-1 | wipe | off | the | knife
+-1 | what | the | hell | were | you | expecting
+-1 | and | more | people | would | compliment | you | for | your | wardrobe | toocomfirm
+-1 | good | for | you | here |  | urlhere |  | this | is | for | you | 
+-1 | this | bitch | againedit | i | meant | that | in | a | good | way
+-1 | dumpster | behind | school | i | know | im | classy
+-1 | hot | on
+-1 | romanic | since | romance | is | associated | with | other | stuff | but | otherwise | spot | on
+-1 | its | almost | as | if | words | can | have | other | than | purely | literal | connotations | in | different | contexts
+-1 | well | it | was | literally | on | stoner | avenue | so | use | your | imagination | 
+-1 | censored | episodes | of | naruto | and | one | piece | lol
+-1 | you | have | a | tattoo | of | some | kind | they | were | referring | to | piercing
+-1 | why | would | she | smile | it | just | doesnt | make | sense | in | the | context
+-1 | freedom | and | democracykek
+-1 | a | birthday | party | 
+-1 | feminism | its | dead | now | filled | with | disgusting | sjws | like | those | in | rtwoxchromosomes | 
+-1 | half | life | 2
+-1 | triggered | kids | these | days
+-1 | jennifer | lawrence | yes | i | said | it
+-1 | seems | like | someone | who | watches | jackass | would | just | find | that | funny
+-1 | jadedness | is | usually | quite | personal | so | yeah | bro | sounds | about | right | 
+-1 | they | all | offend | my | intelligence
+-1 | i | mean | theres | like | no | way | a | woman | could | be | that | smart
+-1 | that | makes | sense | saves | electricity
+-1 | it | is | not | but | they | jelly | isnt | enough | info | to | assume | sarcasm | from
+-1 | i | had | to | watch | some | markiplier | just | so | i | can | sleep | after | that
+-1 | republic | not | province | edit | dagestan | is | a | republic | of | russia | not | an | oblast
+-1 | i | dont | agree | at | least | not | around | here | 
+-1 | pounding | ass
+-1 | enjoy | your | debt
+-1 | was | this | office | space
+-1 | how | exactly | do | you | expect | a | blind | person | to | answer | this | let | alone | read | it
+-1 | how | would | blinded | people | read | this | question | 
+-1 | benedict | cumberbitch | the | lizard | king
+-1 | then | theres | the | society | lurkers | like | me | who | have | no | fucking | clue | who | any | of | these | people | are | 
+-1 | channing | tatum
+-1 | op | should | have | put | a | serious | tag | 
+-1 | youre | wearing | him | down | piece | by | piece | 
+-1 | i | wouldnt | talk | to | 90 | of | you | ugly | mugs
+-1 | i | raped | a | pile | of | dead | childrens | corpses | 
+-1 | shucks | 
+-1 | somewhere | in | israel |  | but | good | luck | on | that | happening
+-1 | what | kind | of | dog | was | it | did | they | have | to | put | it | down | 
+-1 | halle | berry | sophia | vergara | jenna | fisher | from | the | office | alicia | keys | gwenyth | paltrow
+-1 | how | are | they | caring | about | something | by | being | tricked | again | and | again
+-1 | i | was | thinking | the | same | thing | 
+-1 | because | they | hate | their | kids
+-1 | oh | yeah
+-1 |  | urlhere | soreddit
+-1 | no | never | triangleface | i | hate | triangle | face | it | scares | me | 
+-1 | get | the | wheel | of | tune | series | two | readers | make | and | female | and | they | are | just | fucking | fantastic
+-1 | why | though | p
+-1 | gt | ketones | in | my | urinerketo | is | jealous
+-1 | i | would | chew | on | the | skin | around | my | nail | and | it | would | look | pretty | nasty | i | bought | a | lot | of | gum
+-1 | fart | urlhere | 
+-1 | grow | up
+-1 | jackie | chan
+-1 | aww | awww | aww | awww
+-1 | you | dont | shower | twice | a | day
+-1 | poo | particles | are | the | key | to | the | soul
+-1 | woosh
+-1 | link | now
+-1 | youre | twice | as | likely | to | shoot | a | family | member | than | an | intruder | 
+-1 | do | you | like | socialism | op | if | so | bernie | sanders | would | be | the | candidate | for | you
+-1 | they | should | but | theyre | too | lazy
+-1 | no | i | wouldnt | touch | her | with | your | dick
+-1 | sofia | vergara | she | is | not | attractive | at | all | in | any | way | shape | or | form | i | would | kick | her | out | of | bed
+-1 | red | bull |  | red | bull | sugarfree
+-1 | she | said | that | her | mother | makes | slavery | jokes | slavery | jokes | arent | to | be | laughed | at
+-1 | sex | with | sis
+-1 | i | dont | know | never | had | a | so
+-1 | this | looks | like | more | of | an | observation | rather | than | advice
+-1 | for | sale | baby | shoes | never | used
+-1 | suck | shit | on | dating | a | hot | guy | who | was | a | cunt | thats | what | you | get | for | being | superficial | 
+-1 | literally | the | most | dangerous | thing | you | can | do | while | driving |  | very | exhilarating
+-1 | oh | hi | overused | unfunny | unoriginal | comment
+-1 | oh | the | tiny | one | on | my | finger | cut | myself | with | my | nail | while | reading | didnt | even | feel | it
+-1 | my | god | that | is | the | perfect | name | so | many | possibilities
+-1 | to | help | people | evaluate | their | life | and | their | decisions | to | help | people | reflect | on | themselves | 
+-1 | shots | fired
+-1 | rthathappened
+-1 | star | wars | falconpunch | past | shmi | skywalker | 
+-1 | none | theyre | all | pussies | without | their | servants
+-1 | gtimplying | that | makes | her | less | attractive
+-1 | im | pretty | sure | just | being | a | man | is | a | fuck | me | signal | all | women | can | read
+-1 | such | is | life
+-1 | marriage
+-1 | well | were | all | going | to | die |  | 
+-1 | digger | i | dont | believe | you | and | id | like | some | proof
+-1 | its | 1 | the | age | is | 1 | not | 15 | months | 1 | 
+-1 | thats | not | the | son | of | god | mary
+-1 | was | this | just | some | jerk | ass | christians | or | was | it | a | fake | abortion | clinic
+-1 | lol | but | you | did | sort | of | deserve | it |  | 
+-1 | the | other | guys | d
+-1 | thats | what | makes | it | fun
+-1 | thats | pretty | funny | actually | 
+-1 | as | would | i | the | fear | comes | from | knowing | firsthand | how | teenage | boys | are | and | what | drives | them | 
+-1 | assuming | they | have | a | babel | fish | or | two | send | them | eddie | izzard | as | our | ambassador | 
+-1 | that | is | a | really | bad | idea | in | a | workplace
+-1 | freedom | of | speech | doofus
+-1 | old | meltyface | we | call | her
+-1 | that | i | licked | a | guys | face | 
+-1 | to | wipe | your | mouth | after | a | meal
+-1 | shikamaru
+-1 | some | day | you | will | have | a | friend | you | would | not | want | to | fuck | your | sister
+-1 | dardudesandstorm | 
+-1 | except | for | when | the | universe | ends
+-1 | um |  | the | answer | we | were | looking | for | was | rectum
+-1 | rtrees | will | be | able | to | help | you | out
+-1 | shoots | dark | forces | of | lightening | and | dank | nugs | oh | and | has | a | light | saber | lighter | 
+-1 | well | at | least | it | serves | you | well | that | time | 
+-1 | knows | if | something | is | vasik | or | basic
+-1 | sry | but | tbh | tldr
+-1 | actually | no | and | im | going | to | assume | its | black | amp | yellow | until | i | know | otherwise
+-1 | mainly | for | teh | lulz | ama
+-1 | rattled | your | cage
+-1 | why | you | no | doctor | yet
+-1 | burrrrn | in | the | feel | good | way
+-1 | they | are | food | clothing | and | shelter | literally | grow | out | of | the | ground | every | year | 
+-1 | id | be | so | thrilled | i | might | throw | a | pornstar | off | a | roof
+-1 | shit | maybe | i | could | just | drive | into | the | ghetto | and | get | laid
+-1 | the | rt | podcast | is | amazing
+-1 | hearing | that | from | a | 3 | year | old | must | be | creepy
+-1 | to | be | honest | most | people | who | see | somebody | as | their | enemy | are | melodramatic | 
+-1 | he | loves | taking | it | in | the | ass | you | dont
+-1 | orgys | and | butt | stuff
+-1 | sorry | to | hear | that
+-1 | i | dont | agree | with | your | example | 
+-1 | she | didnt | specify | skin | colour | 
+-1 | tell | the | government | that |  | 
+-1 | if | ali | can | withstand | 34 | raund | i | think | he | would | win
+-1 | yeah | i | know | what | your | talking | about | sorry | to | hear | that | wish | you | the | best | 
+-1 | you | do | what | you | gotta | do
+-1 | yeah | it | is | weird | also | sorry | to | hear | that | and | i | wish | you | the | best | amp
+-1 | i | think | you | have | too | many | words | in | there | more | is | redundandant | after | fewer | just | if | you | care
+-1 | gtmy | husband | and | i | announced | that | we | were | pregnanthow | the | fuck
+-1 | gtthe | batmanok
+-1 | wow | thats | creepy
+-1 | crappy | pun | time
+-1 | dude | thats | bad | funny | though
+-1 | the | latter
+-1 |  | urlhere | 
+-1 | stay | awayplease
+-1 | well | what | a | speech | have | a | good | day
+-1 | my | hobbys | i | love | footballlifting | weights | and | running
+-1 | what
+-1 | pretty | shitty | way | to | go
+-1 | great | movie | and | soundtrack | at | least | 
+-1 | i | found | the | guy | whos | never | been | to | thailand
+-1 | umm | edit | out | the | address | and | change | the | name
+-1 | more | like | the | police | training | in | germany | values | the | life | of | the | suspect
+-1 | ctrl | f | lobsters | winston | churchill
+-1 | detective | found | the | suspect | busted
+-1 | of | course | they | should | be | allowed | to | arent | they
+-1 | guys | hes | talking | about | the | blacks
+-1 | rofcoursethatsathing
+-1 | here | we | go | the | weekly | eugenics | askreddit | thread
+-1 | people | my | familylife | in | general
+-1 | bitch | ill | kill | you
+-1 | doubt | it
+-1 | teeth | are | essential | wish | you | a | good | life
+-1 | ayy | girl
+-1 | like | i | said | im | done | not | going | to | read | that | lol | hope | you | didnt | waste | too | much | time | on | it
+-1 | i | know | that | you | know
+-1 | your | username | irks | me
+-1 | doctors | always | acts | like | were | just | cattle
+-1 | op | asked | for | most | american | sentence | not | historical | facts | 
+-1 | is | that | appropriate | fatherdaughter | conversation | material | 
+-1 | murica | feller
+-1 | so | why | havent | they | attacked | far | more | liberal | nations | like | sweden | or | uruguay |  | 
+-1 | death | by | cheese | grater
+-1 | no | but | it | might | as | well | be
+-1 | i | will | not | have | a | tombstone | i | dont | need | to | be | remembered | and | graveyards | are | a | waste | of | space
+-1 | thats | funny
+-1 | gtnone | of | uswere | there | more | 
+-1 | lmao | ayy | lmao
+-1 | how | is | babby | formed
+-1 | keep | saying | shit | like | that | and | theyre | going | to | die | a | lot | sooner
+-1 | not | all | do | my | wifes | is | higher | then | minenot | that | i | mind | 
+-1 | please | elaborate | on | this | friend
+-1 | i | guess | it | left | you | dazed | and | confused
+-1 | id | also | recommend | the | koran | rig | veda | and | dianeticscause | all | 4 | are | equally | ridiculous
+-1 | a | bogeyman | in | the | republican | mindset
+-1 | ewgoogle | it
+-1 | damn | girl
+-1 | theyre | just | there | to | generate | revenue | 
+-1 | condoms
+-1 | goatee | urlhere | 
+-1 | and | if | they | happen | to | stumble | across | a | credit | card | number | its | fair | game
+-1 | it | was | an | answer |  | it | had | a | warning | attached
+-1 | gtfivepart | trilogy
+-1 | its | ok | i | guess
+-1 | multiplication | and | division | 
+-1 | quitting | cigarettes | sure | seem | toughno | it | isnt
+-1 | without | any | doubt | this | urlhere | 
+-1 | we | had | an | exchange | program | with | kenya
+-1 | lool | 
+-1 | except | thats | bullshit | that | gets | regurgitated | every | time | this | scene | is | mentioned
+-1 | because | it | hurts | more | that | way
+-1 | millennial | here | can | confirm | mace | windu | and | kit | fisto | are | cooler
+-1 | oh | man | i | shit | my | pants | that | was | scary | hahaha | lool | thats | creepy | 
+-1 | pretty | much | means | they | dont | care | as | much | about | who | they | step | on | to | get | to | the | top
+-1 | human | centipede | 2 | urlhere | 
+-1 | gtfo | of | this | thread
+-1 | sorry
+-1 | amway
+-1 | benedict | cumberbatch | he | might | look | like | a | lizard | but | hes | my | lizard
+-1 | isnt | california | full | of | fake | plastic | desperate | losers | though
+-1 | lol | haha | 
+-1 | the | hammer | being | his | penisgt | hey | hammer | grab | me | a | drink | please
+-1 | sneaksbrit | something | is | fishy | here | theyre | trainers
+-1 | quip | i | also | use | it | for | hangman | nobody | ever | gets | it
+-1 | waitis | this | a | joke
+-1 | the | power | went | out | once | so | yeah | it | was | pretty | dark
+-1 | old | books | that | dusty | musky | smell | is | the | fucking | best
+-1 | but | i | dont | really | like | popcorn | i | just | eat | it | cos | i | bought | it
+-1 | in | the | 70s | you | could | literally | ask | anybody | to | have | sex | and | youd | go | have | sex
+-1 | gtinstructions | unclear | penis | stuck | in | drain |  |  |  |  |  |  | ftfy |  | 
+-1 | we | broke | surgeon | simulator | 2013 | urlhere | 
+-1 | lmao | so | random | 
+-1 | i | asked | this | same | question | 2 | days | ago | and | got | 6 | upvotes | and | 9 | comments |  | seriously | 
+-1 | in | the | us | right | now | black | transgender | womenoutside | of | the | us | the | people | of | north | korea
+-1 | you | dropped | this | in
+-1 | i | watched | the | movie
+-1 | id | grant | gold | but | im | poor
+-1 | thank | you | for | your | servicegod | bless | you
+-1 | not | true | pretty | much | all | my | women | friends | have | gotten | out | of | tickets | even | the | average | ones | 
+-1 | i | found | a | fat | bitch | at | the | bar
+-1 | i | dont | think | that | people | on | coma | are | in | prison
+-1 | yourself
+-1 | blowhole
+-1 | thats | the | only | way | to | do | business | 
+-1 | cause | nobody | pour | cheats | have | you | ever | seen | maury
+-1 | the | grand | inquisitor | was | not | that | great | of | a | chapter | at | all
+-1 | zzzzzzzzzzzzzzzzzzzzzz
+-1 | each | others | companysomeones | house
+-1 | not | really | both | expressions | are | about | equally | old
+-1 | a | power | outage | 
+-1 | i | dont | see | what | was | rude | with | that | 
+-1 | if | women | want | sex | they | can | have | it | period | guys | cannot | 
+-1 | a | parent | that | sends | you | into | time | out | in | a | place | where | you | are | entertained | is | one | who | spoils | you
+-1 | commence | the | circlejerk
+-1 | i | believe | they | didi | do | recall | a | drunk | driving | episode | at | some | point | 
+-1 | i | wonder | how | many | people | reading | this | know | what | floppy | disks | are
+-1 | everything | set | in | the | present | 
+-1 | how | long | are | we | gonna | keep | this | going
+-1 | cherry | picking
+-1 | it | does | throttle | your | data | though | 
+-1 | they | mean | the | supplements | that | replace | meals
+-1 | food | bank | supervisor | its | 2015 | why | are | there | still | people | who | cant | afford | food
+-1 | to | gold | or | to | not | gold | same | thing | different | amount | of | cheese
+-1 | i | think | robb | is | the | one | true | king
+-1 | im | sorry | not | all | of | us | our | loud | its | just | the | loud | ones | who | get | outside | more
+-1 | be | a | man | use | your | hand
+-1 | cocaine | 
+-1 | itt | books | weve | all | had | to | read | for | high | school | english | 
+-1 | so | true | i | dont | think | redditors | really | read | unfortunately | 
+-1 | paul | blart | mall | cop
+-1 | i | am | not | a | hunter | i | am | not | condemning | you
+-1 | gtexaggeratedly | absolutist
+-1 | dune | is | a | good | story | but | poor | writing | 
+-1 | an | old | fashioned
+-1 | people
+-1 | q | how | do | you | know | if | someone | owns | a | mechanical | keyboard | a | dont | worry | theyll | let | you | know
+-1 | i | like | less | expensive | nightlights
+-1 | well | yeah | sex | and | one | or | two | times | doesnt | exactly | establish | a | pattern | 
+-1 | atlas | shrugged | is | only | worth | reading | if | you | havent | gotten | out | of | junior | high | yet
+-1 | paul | blart | mall | cop | 
+-1 | vagina | gotta | pay | it | off | after
+-1 | luckly | its | sky
+-1 | an | oldfashioned | 
+-1 | i | meant | you | should | choose | one | sink | or | toilet | if | youre | in | the | bathroom | then | go | to | the | toilet
+-1 | ask | your | father | how | its | done | and | report | back
+-1 | did | she | consent
+-1 | i | watched | that | live | dude
+-1 | especially | bigfoot | in | san | andreas
+-1 | dat | guy | welbz
+-1 | oh | god | forbid | someone | tells | the | same | story | twice
+-1 | just | pay | for | it | damn
+-1 | this | is | my | first | comment | whats | reddit | gold | 
+-1 | vagina | boob
+-1 | honestly | i | drive | better | after | a | few | beers
+-1 | jet | fuel | ill | never | be | a | memer
+-1 | paul | blart | mall | cop | 2 | is | pretty | neat
+-1 | more | birthdays
+-1 | go | to | hooters
+-1 | pretty | overrated | book | imo | 
+-1 | paul | blart | 2 | mall | cop
+-1 | walmart | mcdonalds | sugar | fluoridation | of | water
+-1 | marriage | 
+-1 | this | is | the | dumbest | fucking | thread | ive | ever | seen
+-1 | no | idea
+-1 | i | think | they | just | do | it | to | make | the | lifes | off | others | more | miserable | sociopaths | basically
+-1 | war | and | peace
+-1 | paul | blart | mall | cop | 2
+-1 | like | honest | question
+-1 | kentucky | derby | bitch
+-1 | ops | moms | pussy
+-1 | ok | i | wont | take | it | easy
+-1 | yes | i | believe | you | can | do | it | via | laptop | which | just | requires | a | battery
+-1 | stfu | no | one | would | ever | agree | with | you
+-1 | shogun | and | taipan | by | james | clavell
+-1 | pleasecan | i | have | some | gold
+-1 | not | what | i | meant
+-1 | go | to | a | friends | house
+-1 | never | have | to | pay | for | dates
+-1 | or | my | favorite | for | whom | the | bell | circlejerks
+-1 | shut | the | fuk | up | loser | tmt | 
+-1 | you | were | telling | that | person | that | they | didnt | deserve | them | yet | you | know | nothing | about | them
+-1 | because | it | actually | takes | talent | to | be | an | entertainer
+-1 | freddy | gray | and | the | officer | that | killed | him
+-1 | theyre | doing | something | more | valuable
+-1 | its | humor | the | concept | however | fits
+-1 | my | laptop
+-1 | hharry | is | that | you
+-1 | genocide
+-1 | whhaaasssssssuuuuuuuuppppppppp
+-1 | im | going | the | speed | limit
+-1 | yeah | it | has | jesuss | teachings | too | which | are | really | essential | imo | for | caring | human | being
+-1 | the | socialist | one
+-1 | fuck | you
+-1 | if | youre | not | going | to | take | this | serious | you | can | go | have | a | seat | in | the | corner
+-1 | orange | county
+-1 | meh | not | one | of | vonneguts | best | imo | 
+-1 | lemme | guess | android | phone
+-1 | pubic
+-1 | justice
+-1 | its | more | expensive | than | your | mom
+-1 | it | works | better | when | you | eat | correctly | instead | of | starving | yourself | 
+-1 | implying | you | didnt | come | through | here | from | srs
+-1 | handjobs | urlhere | 
+-1 | thanksies
+-1 | i | am | the | dragon | i | want | my | crown
+-1 | we | need | the | eggs
+-1 | mercedes
+-1 | the | boy | in | striped | pajamas | 
+-1 | still | one | of | my | favorites | but | i | see | where | she | is | coming | from
+-1 | absolutely | forever | war | is | far | better | than | old | mans | war | and | starship | troopers
+-1 | rconspiracy | as | well | 
+-1 | i | color | blueprints | and | set | up | projects | for | air | and | water | systems | 
+-1 | ops | mom
+-1 | it | depends | on | the | time | and | place | 
+-1 | but | it | was
+-1 | volkswagen | beetle | a | newer | made | in | mexico | one | 
+-1 | the | announcement | of | the | end | of | world | war | two | ftfy
+-1 | heroin | ruins | life
+-1 | the | internet
+-1 | sammy | jankisedit | repeat | someone | already | did | memento
+-1 | and | yet | they | say | that | sexism | is | dead | 
+-1 | everything
+-1 | blind | people | dont | reddit
+-1 | im | alone | in | my | apartment | so | i | wouldnt | notice | or | care
+-1 | daughters
+-1 | get | drunk
+-1 | i | prefer | imgur | this | site | is | dumb | too | many | words
+-1 | i | dont | know | but | what | i | was | asking | is | why | it | is | wrong | to
+-1 | you | said | it | was | okay | you | looked | at | it | because | no | one | knew | now | everyone | knows | 
+-1 | but | that | applies | to | both
+-1 | apple | products | lel
+-1 | tremors
+-1 | cool | cities | just | in | general |  | id | fucking | love | to | live | in | nyc | chicago | etc | in | like | the | 1950s
+-1 | i | will | message | a | picture | of | a | duck | to | whoever | gives | me | gold
+-1 | yep | super | awkward
+-1 | but | my | aim | is | getting | better
+-1 | you | dont | need | super | powers | to | have | sex | with | both | men | and | women
+-1 | yeayou | cant | do | everything | your | heart | on | tv
+-1 | nederland | heeft | geen | echte | dienstplicht | alleen | een | leuke | brief | van | defensie | op | je | 16e17e
+-1 | oh | man | my | one | shot | hmm | let | me | think
+-1 | dude | spoilers
+-1 | this | would | be | a | lot | better | if | it | was | original | sorry | for | ruining | it | for | the | rest | of | you
+-1 | you | first | bubbles
+-1 | tailgating | is | far | worse | than | driving | slowly | one | is | inconvenient | and | the | other | is | dangerous
+-1 | the | power | thats | inside
+-1 | i | think | he | did | bad | there | are | multiple | jarassic | park | movies
+-1 | disneyland
+-1 | about | as | lethal | as | a | mouse | with | asthma | 
+-1 | a | mario | kart | but | only | if | i | get | to | throw | shields | as | well
+-1 | in | a | dream | last | night
+-1 | egdy | 
+-1 | today | i | made | the | mistake | of | watching | one | of | those | stupid | videos | people | share | on | facebook
+-1 | i | think | we | all | have | a | basic | interest | in | people | whos | lives | we | think | are | better | than | ours
+-1 | or | men | are | just | horny | as | fuck
+-1 | pelmenirussian | dumplings
+-1 | its | called | a | fad
+-1 | no | if | it | bothers | a | guy | hes | not | mature | enough | to | be | in | a | relationship | 
+-1 | a | mothers | pig
+-1 | having | sex | at | 14 | your | parents | should | have | grounded | you | much | sooner
+-1 | sorry | to | hear | that | child | abuse | is | wrong |  |  | or | she | may | just | have | been | a | strict | mom | idky
+-1 | yup | sure | cause | the | internet | told | you | so
+-1 | no | i | want | piracy | to | go | away
+-1 | also | doesnt | superman | just | jump | really | good
+-1 | if | you | say | so
+-1 | i | like | white
+-1 | 3 | fucking | accounts | that | all | replied | with |  | the | fuck | is | going | on | here
+-1 | if | no | one | else | is | in | line | i | volunteer | to | be | your | new | boyfriend
+-1 | is | the | winds | of | winter | out | yet
+-1 | money | rbitcoin
+-1 | you | are | now | tagged | as | tiny | penis
+-1 | reddit
+-1 | hopefully | he | was | talking | about | a | god
+-1 | the | alchemist | by | paul | coelho
+-1 | dont | let | em | win | learn | their | fighting | ways | and | get | the | upper | hand | 
+-1 | capitalism |  | democracy |  | 
+-1 | i | unfortunately | know | this | feel | way | too | well | almost | every | time
+-1 | im | defective | and | dont | have | a | baby | voice
+-1 | the | boy | in | the | striped | pyjamas
+-1 | spoiler | alertif | you | have | fat | hands | no | one | going | to | notice | your | fat | fingers | getting | bigger
+-1 | what | year | is | it
+-1 | guess | youll | never | know | you | worthless | ass | wipe |  | 
+-1 | they | work
+-1 | you | should | run | for | the | next | presidential | race
+-1 | atlas | shrugged
+-1 | a | power | outage
+-1 | vaping | is | for | idiots
+-1 | a | check | for | 100
+-1 | was | watching | daredevil | and | i | couldnt | take | it | seriously | because | of | farva
+-1 | whats | wrong | with | vodka | and | turnips | thats | what | i | get | paid | in | 
+-1 | when | i | worked | at | sonic | thats | how | we | did | it | so | much | easier | 
+-1 | cant | forget | the | communist | manifesto | hitler | and | marx | are | on | it
+-1 | surprised | no | one | brought | this | up | already | poutine | 
+-1 | have | the | cubs | won | a | world | series | yet
+-1 | cheese | pizza | probably | means | child | porn
+-1 | underrated | comment
+-1 | anita | sarkeesian
+-1 | do | you
+-1 | you | should | listen | to | your | mom
+-1 | zero | it | never | happend
+-1 | cool | story | bro
+-1 | the | road | the | baker | boys | um | fallen | angels | or | the | things | they | carried
+-1 | because | why | i | do | not | kill | black | people
+-1 | really | s
+-1 | wat | r | u | doin | stahp
+-1 | oh | shit | i | heard | about | this | one
+-1 | none | of | the | characters | or | plotlines | were | interestig | at | all |  | why | would | i | have | continued | it
+-1 | 1687edgy1689me
+-1 | the | dumbest | student | at | harvard | is | still | a | brilliant | individual | 
+-1 | caught | in | a | landslide
+-1 |  | because | weve | only | got | modern | bread | now | or
+-1 | the | self | esteem | dies
+-1 | except | bitcoins | only | retain | their | value | when | there | is | a | scarcity
+-1 | oh | if | thats | real | its | bad
+-1 | i | say | they | deserve | your | respect | until | they | do | something | to | show | they | dont
+-1 | my | top | comment | 
+-1 | this | happened | to | me | today | 
+-1 | sex
+-1 | neet | loser
+-1 | gemsgerms | ftfy
+-1 | say | youll | be | there | spice | girls
+-1 | instead | try | the | cave | of | wonders
+-1 | provide | evidence | anecdotal | is | sufficient | you | will | find | it | is | relatively | difficult | to | prove
+-1 | and | you | have | credibility | because | you | worked | in | juvie | and | have | successes
+-1 | now | that | you | put | it | that | way | i | somewhat | understand | where | your | coming | from | 
+-1 | but | why | male | models
+-1 | mike | huntmoe | lesterjack | goffmike | litoriswillie | strokerben | dovermike | hawk
+-1 | i | never | felt | that | way | as | i | was | always | better | than | they | were | in | most | areas | of | life
+-1 | gt | stole | a | cookwait | you | stole | a | cookwatdo | they | have | cooks | in | 711
+-1 | we | should
+-1 | stop | going | to | agoras
+-1 | zucchini | is | like | a | soggy | rotten | cucumber | and | they | taste | terrible | i | dont | see | the | appeal | 
+-1 | if | i | may | recall | before | you | posted | this | my | original | comment | had | 0 | karma | hmmmm
+-1 |  | urlhere | w4sxzma
+-1 | aech | for | humpdernick | right
+-1 | a | song | for | mama |  | boyz | ii | men
+-1 | maybe | your | parents | are | retarded
+-1 | sorry | to | read | that |  | hope | something | else | might | rjokes | perhaps
+-1 | there | are | a | lot | of | people | out | there | sacrificing | everything | important | for | something | that | isnt | 
+-1 | aaaauuugh | thats | good | comedy | 
+-1 | the | us | isnt | even | the | fattest | country | in | the | top | 10 | but | not | at | all | first
+-1 | what
+-1 | but | what | about | in | me
+-1 | first | thing | i | thought | of | 
+-1 | sorry |  | im | totally | that | asshole | sometimes |  | i | hate | small | talk
+-1 | slight | annoyance | from | something | happened | earlier | doesnt | matter | now
+-1 | very | interesting
+-1 | the | russian | tv | one
+-1 | im | guilty | of | this | with | my | friend | who | talks | for | 20 | minutes | straight | about | literally | nothing
+-1 | pineapple | express | ugh | chicken | fries
+-1 |  | urlhere | pacquiaofightliveblogindexhtml
+-1 | lol | no
+-1 | because | they | are | the | weaker |  | sex | or | so | theyd | have | you | believe | 
+-1 | because | you | are | 
+-1 | fuck | off
+-1 | and | your | anger | how | is | that | working | for | you
+-1 | your | boyfriend | might | be | gay
+-1 | study | better
+-1 | youve | never | met | someone | from | new | orlens | have | you
+-1 | saw | it | happen | live | on | tv | iirc | it | was | during | new | years | eve | or | the | day | before
+-1 | you | are | now | turned | on
+-1 | i | before | e | except | after | c | 
+-1 | everyone | i | know | will | recieve | a | tank | full | of | gas | from | moi
+-1 | whats | in | my | pocket
+-1 | same | as | paying | to | see | a | concert | or | eat | at | a | nice | restaurant
+-1 | no | look | at | a | globe
+-1 | i | never | cared | to | measure | it | to | be | honest | i | know | that | i | watch | porn | and | am | rarely | impressed | though
+-1 | that | wasnt | just | luck | or | oddity |  | he | knew | when | and | where | the | flag | would | be
+-1 | i | donno | what | i | could | offer | but | ill | look | into | this | thanks | 
+-1 | this | is | a | ghost | reference | correctedit | man | im | an | idiot
+-1 | it | was | a | fairly | clean | fight | manny | lost | fair | and | square | not | much | to | say | otherwise
+-1 | haha | this | made | me | laugh | out | loudthank | you
+-1 | upvote | me
+-1 | star | wars | fanboys | they | need | help | 
+-1 | it | was | a | fowl
+-1 | im | guessing | your | ass | is | quite | magnificent | though | 
+-1 | lesbian | porn
+-1 | nobody | wants | to | be | talked | at | by | an | arrogant | douche | 
+-1 | your | comment | makes | no | sense | is | the | famous | picture | staged | or | not | 
+-1 | totally | not | this | one | 
+-1 | a | check | to | pay | the | last | 2 | years | of | my | uni | im | having | to | withdraw | soon | due | to | lack | of | funds
+-1 | glad | you | can | admit | he | was | just | a | human | 
+-1 | every | province | is
+-1 | did | it | tell | you | that | tim | hortons | coffee | is | shit | and | dont | bother | buying | it | again
+-1 | sirtatos | totally | annoying | right | fucking | idiot | ruins | askreddit
+-1 | hell | id | take | appearance | any | day
+-1 | eating | healthy | does | nothing | for | youive | been | eating | whatever | i | want | and | im | down | 64lbs
+-1 | im | thinkin | arbys
+-1 | no | shit | sherlock | when | did | i | say | she | saw | the | hit | live | 
+-1 | yeah | me | too | 
+-1 | well | someones | angry | all | am | asking | is | do | you | agree | with | this | view
+-1 | look | up | pornhub
+-1 | when | this | thread | explodes | this | will | be | the | top | comment | just | watch | mark | my | words | 
+-1 | harry | potter | 
+-1 | he | held | the | sword | like | he | was | in | a | anime
+-1 | if | it | can | be | done | safely | why | would | someone | generally | oppose | it
+-1 | alaska | is | the | furtherst | east
+-1 | wutangasaraus | 
+-1 | cmon | dude
+-1 | exactly
+-1 | whats | up | with | all | the | mothers | day | questions | everyone | knows | its | next | week
+-1 | tbh | i | dont | believe | it | either | unless | if | you | have | some | sort | of | sleep | problem
+-1 | i | dont | even | notice | im | not | on | here | all | the | time
+-1 | and | somehow | its | not | a | problem | for | shy | women
+-1 | exactly | its | just | not | going | to | us | people | and | thats | unacceptable | so | we | should | stop | accepting | it
+-1 | incontinentia | buttocks
+-1 | look | i | found | the | progressive | lol | fuck | off | reddit
+-1 | he | may | have | died | 
+-1 | youre | welcome
+-1 | who | invaded | spain | in | the | 8th | centurythe | moops
+-1 | its | possible | that | the | actual | footage | is | slowed | down | for | the | moment | of | the | shot
+-1 | batman | nuff | said
+-1 | scott | pilgrim | scott | pilgrim
+-1 | upvoted | for | brutal | honesty
+-1 | ive | been | fucking | crying | at | this | for | 20 | minutes
+-1 | rnocontext
+-1 | the | toning | down | is | done | by | the | publishers | not | our | government | d
+-1 | 64 | here | would | gladly | swap
+-1 | only | the | people | living | in | holland | the | rest | of | us | says | nederland | like | it | should | be
+-1 | this | guyedit | actacually | girl | hopefully | 
+-1 | the | first | blow | j | you | gave | me | 
+-1 | a | mirror
+-1 | and | soon | well | have | three | living | popes | at | the | same | time
+-1 | twerking
+-1 | just | lol
+-1 | ha | i | get | that | reference
+-1 | a | naked | woman | holding | up | a | box | of | diapers
+-1 | tethers | for | measuring | shit
+-1 | anti | bacterial | soap | youre | welcome
+-1 | hard | to | believe | he | didnt | fall | down | clutching | his | neck | as | though | hed | been | shot | by | a | sniper
+-1 | im | surprised | he | didnt | fall | over | clutching | his | knee
+-1 | i | nearly | feel | bad | about | my | 200200mbps | fibre | 
+-1 | isnt | that | lightning
+-1 | i | tip | my | fedora | to | you
+-1 | photographic | trauma | stress | disorder
+-1 | halleys | comet
+-1 | what | question | are | you | asking
+-1 | kennen
+-1 | this | is | mrburns | 
+-1 | your | sentiment | is | just | as | clich | and | it | will | go | in | one | ear | and | out | the | other | 
+-1 | why | it | bounced | at | the | perfect | angle | and | got | stuck | in | the | dirt | and | stood | on | end
+-1 | video | cameras | in | anything | close | to | the | numbers | they | have | now | no
+-1 | its | not | even | that | bad | just | a | friendly | brick
+-1 | to | claim | that | philosophy | is | irrelevant | is | to | ignore | history | what | moron | claims | this | 
+-1 | implying
+-1 | every | single | time | we | had | sex | i | faked | it | no | girl | likes | 1000 | miles | an | hour | finger | banging | 
+-1 | guy | wins | stacker | after | one | attempt | urlhere | 
+-1 | because | you | hang | out | with | the | wrong | people | i | guess
+-1 | no | one | measures | their | weight | in | newtons |  | 
+-1 | i | would | like | to | help | men | because | they | have | no | support | if | things | go | down | in | life
+-1 | bring | a | gun
+-1 | is | there | a | fucking | nervegear | yet
+-1 | stop | only | going | after | 9 | and | 10s
+-1 | having | a | father | 
+-1 | 11 | hours | vittu
+-1 | and | this | one | too | yer | a | wizard | harry |  | it | is | written | slightly | different | in | the | book | 
+-1 | dammit | you | beat | me | to | it | 
+-1 | prove | they | actually | went | to | the | moon
+-1 | that | was | some | loony | toons | shit
+-1 | maybe | your | grandpa
+-1 | prostitutes
+-1 | you | havent | watched | painolympics | i | assume
+-1 | theres | vomit | on | his | sweater | already
+-1 | whats | your | point | thread | isnt | most | horrific | events | its | once | in | a | lifetime | occurrences
+-1 | the | rock | v | john | cena | wrestlemania | 29
+-1 | natural | selection | at | best
+-1 | clearly | you | know | nothing | about | urdu
+-1 | there | doesnt | seem | to | be | anything | here
+-1 | its | called | fighting | the | establishment | its | messy
+-1 | writing | i | have | used | a | keyboard | so | much | with | my | job | school | and | businessi | have | just | forgotten
+-1 | parents
+-1 | play | bristleback | acquire | new | op | items | ez | rampage
+-1 | i | would | like | to | stay | off | the | sex | offender | registry | for | another | few | years
+-1 | opinions | on | lovehate | relationships | 
+-1 | your | name | is | rrzaes
+-1 | like | 10 | i | think | mabey | like | 12 | 
+-1 | usually | works | but | the | girl | im | interested | in | is | engrossed | in | her | ds
+-1 | not | really | love | more | so | infatuation | which | at | the | time | i | thought | was | love
+-1 | look | im | not | gonna | argue | with | you | about | how | killing | people | is | moral | or | not | have | a | nice | day | 
+-1 | well | if | you | didnt | talk | so | much | 
+-1 | not | if | you | spell | his | name | wrong
+-1 | noits | not | watching | pornography | is | not | cheating
+-1 | while | it | is | the | eastern | most | it | isnt | a | state
+-1 | whats | in | an | expatriate | american | store | will | your | answer | nauseate | or | embarrass | me | as | an | american
+-1 | i | love | you | anyway
+-1 | a | lot | of | weed
+-1 | now | kith
+-1 | a | man | especially | one | financing | said | apartment
+-1 | misandry | doesnt | exist | you | fuck | her | username | is | obviously | satire
+-1 | orange | county | is | different |  | pretty | conservative
+-1 | go | to | rsex
+-1 | ah | yes | the | antiintellectual | strawman | made | up | person
+-1 | wow |  | youre | retarded |  | best | of | luck | with | that
+-1 | people | men | need | to | be | funny | to | attract | women |  | women | need | to | be | one | thing | women
+-1 | 40yo | definitely | do | not | deserve | to | have | sex | right
+-1 | the | sites | creators |  |  |  | sites |  | more | than | one | sitelearn | this
+-1 | talk | to | stuffed | animals
+-1 | nsfw |  |  | rdatgap
+-1 | think | about | that | for | a | while | the | idea | of | a | heaven | is | quite | ridiculous
+-1 | no | idea | what | that | is | my | point | is | that | respect | is | earned | even | self | respect | 
+-1 | thats | a | human | rights | violation
+-1 | nope | dont | even | live | in | the | usa
+-1 | ball | point | pens
+-1 | thats | not | always | the | best | advice |  |  | urlhere | 
+-1 | friendship | is | so | cheap | and | superficial | 
+-1 | you | sewer | rat
+-1 | my | uncle | never | touched | me
+-1 | wouldnt | you | typically | want | a | paedophile | killer
+-1 | wgbh | npr | sometimes | pbs
+-1 | downvote | this | guy | he | sounds | like | a | condescending | asshole
+-1 | emilia | clarke
+-1 | to | meet | this | person | you | gotta | put | yourself | out | here | as | well | just | say | hi
+-1 | i | sort | of | get | that | butyoure | a | whore | why | should | someone | respect | you | in | the | first | place
+-1 | well | thats | fucked | up
+-1 | i | could | care | less
+-1 | thats | all | that | counts | then
+-1 | fucking | smart | if | you | ask | me | 
+-1 | you | wake | up | on | your | 18th | birthday
+-1 | i | dont | think | its | aliens | but | theres | most | definitely | other | cool | shit | like | those | ufos | there
+-1 | you | made | yourself | a | spunk | bucket | so | you | degraded | yourself | 
+-1 | msmelly
+-1 | lion | king | just | tried | watching | it | got | bored | the | first | five | minutes
+-1 | depends | on | if | it | ends | in | er | or | a
+-1 | do | not | attempt | to | learn | to | play | the | mayonnaise | it | is | not | an | instrument
+-1 | you | cant | be | serious | are | you | being | serious | i | dont | know | if | i | believe | you
+-1 | and | worse | off | if | you | ask | me
+-1 | i | always | like | to | think | reddit | is | like | 4chan | with | a | condom
+-1 | i | disagreesourceam | also | man
+-1 | there | is | a | lot | more | to | the | world | than | the | midwest | 
+-1 | gold | fuck | you | gold | value
+-1 | mlady
+-1 | never | understood | using | those | but | idk | im | not | a | girl
+-1 | in | the | cupboard | next | to | my | teapot | cozy | whilst | your | there | can | you | get | my | top | hat | and | cane
+-1 | sometimes | reddit
+-1 | i | neeeeeed | to | steal | them
+-1 | tyler | perry | is | the | shitoops | mixed | comedy | racing | with | drag | racing | again | dammut
+-1 | if | he | was | wealthy | theyd | give | him | a | medal | for | protecting | the | weak | 
+-1 | you | already | know | what | they | are
+-1 | triggeredno
+-1 | urban | dictionary | urlhere | 
+-1 | damn | that | looks | really | good | excuse | me | what | drink | are | they | having
+-1 | you | seem | sweet | how | are | you | single
+-1 | does | having | a | sex | drive | make | you | a | pig
+-1 | methane | 
+-1 | diablo | i
+-1 | broke | 2 | ribs | cracked | 9 | others | and | completely | severed | my | spine | at | l1 | no | head | trauma | 
+-1 | i | know | hydrogen | should | rule | the | world | togheter | with | narwhals
+-1 | tits | or | gtfo
+-1 | a | basic | understanding | of | psychology | would | tell | you | otherwise
+-1 | you | mean | the | rest | of | the | would | outside | of | america
+-1 | because | its | a | way | to | order | society | and | create | structure | out | of | chaos | has | its | perks | and | its | flaws
+-1 | 9 | years | 4 | months | and | 28 | days | probably | not | that | lucky
+-1 | fuck | fuck
+-1 | gt | deadliftyou | should | see | a | doctor | about | that
+-1 | too | bad | im | the | one | getting | it
+-1 | i | think | were | experiencing | it | now
+-1 | the | norse | countries | justice | system | is | a | joke
+-1 | soap | for | masturbating |  | seriously | try | it | you | guys | 
+-1 | this | is | your | brain | when | you | take | the | words | of | holy | books | literally
+-1 | bbut | muh | gspot
+-1 | stupid | ass | bitch
+-1 | i | understand | 
+-1 | start | practicing | martial | arts | and | you | can | walk | anywhere | and | any | time
+-1 | gay | porn | not | because | im | into | that | but | because | i | like | to | mess | with | people
+-1 | female | buttholes
+-1 | whats | with | parents | and | having | to | insert | their | kids | into | everything | for | no | reason
+-1 | you | get | arrested | and | thrown | in | prison | by | the | fascistic | government | of | country | b
+-1 | beat | an | evil | pos | to | death | you | mean
+-1 | arin | who | the | only | arin | im | fighting | is | arin | hanson
+-1 | if | i | had | money | youd | have | gold
+-1 | there | are | literally | dozens | of | us
+-1 | hahaha | great | minds | think | alike
+-1 | i | am | totally | sick | of | camping | its | the | worst
+-1 | saucepans | 
+-1 | teenage | angst | right | here
+-1 | dude
+-1 | a | liberal | tax | and | spend | progressive | democracy
+-1 | the | orange | ate | the | glass | to | our | astonishment | he | wasnt | full
+-1 | castle | clash | man | its | just | better
+-1 | whenever | i | try | to | think | of | something | random | snow | white | pops | into | my | head | and | im | not | sure | why
+-1 | never | dated | a | cheerleader
+-1 | maybe | he | feels | differently
+-1 | you | can | clearly | feel | the | difference | between | wiping | a | dry | ass | and | wiping | a | dirty | one
+-1 | have | legs
+-1 | cat | whopper | rust | bacon
+-1 | theyre | ropes
+-1 | wow | thats | funny
+-1 | gtfo | seriouslyis | it | breathing | 
+-1 | its | a | list | of | times | people | have | asked | the | same | question | here | on | reddit | which | is | a | lot
+-1 | well | well | well | looks | like | the | class | clown | decided | to | show | up
+-1 | twice | a | day | could | even | make | it | worse | since | overdoing | it | can | dry | out | the | skingtmore | sitz
+-1 | what | about | all | the | hormones | and | what | not | in | food
+-1 | oh | woe | is | me | havent | i | seen | this | type | of | comment | before
+-1 | douchebags
+-1 | get | rid | of | em
+-1 | more | power | to | you | slutzerella
+-1 | exmormonmasterraceobligatory | rexmormon
+-1 | 1 | find | a | viking2 | drink | until | one | of | you | is | unconscious
+-1 | half | life | 3 | confirmed | you | guys
+-1 | reddit | is | 4chan | for | girls | 
+-1 | wow | i | had | the | exact | same | reaction |  | once | in | a | lifetime | moment | 
+-1 | its | easy | to | since | they | objectively | have | less | dominion | of | their | feelings
+-1 | lets | test | to | make | sure |  |  |  | 
+-1 | rugs | on | the | other | hand
+-1 | what | 
+-1 | tears | of | sorrow
+-1 | its | just | as | much | of | life | as | someone | being | interested | in | you | gasp | 
+-1 | hit | by | food | truck
+-1 | no | responses | 
+-1 | she | broke | his | arms | 
+-1 | what | made | them | better | then | other | people | with | excellent | qualifications | 
+-1 | oh | look | srs | is | leaking | again
+-1 | when | last | year | was | thisi | dont | remember | this | at | all
+-1 | functionally | the | same | thing | 
+-1 | calling | the | police | to | stop | them | from | doing | it | again | to | someone | els3
+-1 | gt |  | middle | east | pvp | zonehave | an | upvote | sirmaam
+-1 | also | isnt | mothers | day | next | week | 
+-1 | mall | of | america
+-1 | baseball | player | i | like | the | sport | snd | yeah | 
+-1 |  | halo | ce | halo | 2 | halo | 3 | halflife |  | halflife | 2 | deus | ex
+-1 | anything | is | a | sexual | word | with | the | right | attitude | 
+-1 | police | abuse | their | power | especially | when | dealing | with | black | people
+-1 | no | one | not | even | me | 
+-1 | i | hear | it | all | the | time | 
+-1 | alabamian | here | i | would | say | its | the | signs | letting | you | know | youre | about | to | be | in | another | state
+-1 | probably | not | since | i | post | a | lot | of | bs
+-1 | your | too | slow
+-1 | ride | a | fucking | horse | like | a | great | warriori | have | never | in | 20 | years | seen | a | male | riding | a | horse | 
+-1 | you | dont | eat | more
+-1 | no | its | for | the | potato | one
+-1 | i | am | desperately | trying | to | resist | no | it | didnt | help | i | am | dead | 
+-1 | combuttkin | i | love | you
+-1 | rtheydidthemonstermath | 
+-1 | im | on | my | companies | hmo | or | something | idk
+-1 | damn | being | in | the | military | myself | this | hits | hard | i | kinda | want | to | know | if | op | was | military | 
+-1 | justin | timberlake
+-1 | you | talkin | about | superman
+-1 | the | kind | of | person | that | spouts | shit | like | this | is | probably | not | as | smart | as | they | think | 
+-1 | wait | which | bit | is | the | shrub | here | 
+-1 | anything | stand | out | in | particular
+-1 | if | your | clients | know | your | true | age | they | should | have | their | throats | slit
+-1 | aaaaand | thats | the | problem | too | many | men | jacking | off | watching | a | girl | lift
+-1 | ask | udavidreiss666im | sure | he | would | take | the | trophy
+-1 | the | grand | canyoni | win
+-1 | rob | dyke
+-1 | uh | no |  | most | of | us | dont | even | think | about | killing | another | person | or | what | it | might | feel | like
+-1 | try | again | next | year | buddy
+-1 | ireland | scotland | and | wales
+-1 | fake | boobs | are | awesome | move | to | orange | county | ca | and | every | other | girl | has | them
+-1 | it | means | you | have | tiny | junk
+-1 | forcefully | ejaculates | on | keyboard
+-1 | benedict | cumberbatch | and | channing | tatum
+-1 | ohio | leave | 
+-1 | national | treasure | is | one | of | our | nations | treasures | 
+-1 | niccee
+-1 | pm | me | your | boobs
+-1 | if | they | become | a | mother | are | they | even | able | to | still | function
+-1 | eggs | benedict | cumberbund
+-1 | cause | it | feels | good | and | relieves | stress | 
+-1 | poor | pluto
+-1 | hodor
+-1 | britlab | too | cant | beat | anything | with | james | may | in | it
+-1 | how | are | they | ugly | even | they | look | like | any | normal | nonwork | boots | ive | seen
+-1 | would | never | use | it | not | now | not | ever | 
+-1 | started | smoking | pot | then | on | to | pills | then | tried | tar | its | a | progression | 
+-1 | interwebz | r | srs | bznz
+-1 | im | a | girl | worth | fighting | for
+-1 | rampant | homophobia
+-1 | hes | dyslexic | not | illiterate
+-1 | why | are | all | businessmen | fat | must | be | all | the | inflation
+-1 | in | what | ways | do | you | pay | to | avoid | children
+-1 | flavoured | lube | and | a | wash | before | dont | knock | it | until | youve | tried | it
+-1 | having | offspring | as | awesome | as | i | 
+-1 | pretty | much | the | faster | you | go | the | more | stableself | balancing | it | becomes | 
+-1 | met | him | in | college | didnt | know | him | as | a | kid | but | yeah | creepy | dude |  | sexual | assault | nigggggga
+-1 | nope | sorry | lol | 
+-1 | wait | mf | it | does | make | a | difference
+-1 | my | crush
+-1 | special | place | in | hell | for | those | parents | 
+-1 | none | life | is | meaningless
+-1 | wwwwaaaaazzzzzuuuuuppppppp
+-1 | thats | fine | mo | fat | chicks | for | meeeee
+-1 | and
+-1 | kill | all | whites
+-1 | i | like | to | live | dangerously
+-1 | i | dont | think | the | world | will | ever | end | the | only | thing | that | will | end | is | humanity
+-1 | ratchet | and | clank | and | jak | and | daxter
+-1 | no | why | would | it | its | just | a | suggestion | or | advice | to | help | avoid | potentially | dangerous | situations
+-1 | i | hope | your | children | die | before | you | do
+-1 | girlfriend
+-1 | cable
+-1 | did | you | get | any | pictures | for | science | of | course | 
+-1 | 15 | x | 3 |  | 45 | last | i | checked
+-1 | yes | being | ugly | gets | rid | of | sex | life | sex | is | important | to | any | marriage | 
+-1 | cigarette | flavored | soda | 
+-1 | pretty | chill | guys | mostly
+-1 | i | dont | especially | care | for | either | 
+-1 | when | rainn | says | rape | culture | doesnt | exist | id | say | its | probably | a | feminist | or | sjw | thing
+-1 | omg | this
+-1 | what | would | i | fantasize | about | something | i | didnt | actually | want | to | do
+-1 | find | somebody | to | kill | them | and | not | go | into | the | room | until | they | are | all | confirmed | dead
+-1 | your | current | so | is | a | man | right
+-1 | op | are | you | seriously | expecting | anything | other | than | everyones | favorite | showugh
+-1 | kill | kill | kill | kill
+-1 | still | isnt | a | compelling | reason | to | feel | guilty | 
+-1 | i | still | dont | agree | 
+-1 | what | if | he | said | ok | lets | try | it | on | you | first | then | reneged | afterwards
+-1 | only | girls | that | are | less | than | a | 7 | and | pregnant | women | poop | that | is | all
+-1 | i | buy | paper | plates | because | dishes | are | for | suckers
+-1 | gun | policy | baffles | me
+-1 | yesthats | going | to | affect | us | so | much |  | too | bad | your | country | isnt | the | only | one | in | the | world |  | 
+-1 | i | smell | a | wrecked | anus | its | foul | where | did | it | come | from | 
+-1 | this | one
+-1 | not | for | a | few | more | months
+-1 | i | am | half | of | a | psychologist | i | am | a | psycho | if | that | helps
+-1 | no | thoughts | original
+-1 | take | school | a | lot | more | seriously
+-1 | if | its | a | random | girl | you | have | nothing | to | lose
+-1 | neither | was | stalin
+-1 | eh | moms | everywhere | say | they | want | grandkids
+-1 | til | babies | can | die | from | shaking | 
+-1 | youre | an | awesome | dude | and | i | just | really | needed | to | tell | you | so
+-1 | not | a | dad | but | i | would | probably | pick | up | a | pair | of | new | balances | good | luck
+-1 | if | dare | you | to | go | through | and | upvote | everything | i | have | ever | posted
+-1 | i | include | my | wife
+-1 | jesus
+-1 | youre | a | quitter | thats | why | youre | not | a | winner
+-1 | 7 | is | just | odd
+-1 | youre | a | fucking | twat | 
+-1 | i | know | what | it | means | i | already | posted | a | wikipedia | link
+-1 | just | audibly | lolled | 
+-1 | your | ex | that | your | totally | over | having | a | new | boyfriend
+-1 | mr | rogers | would | be | very | disappointed | in | you
+-1 | probably | buy | a | shot | gun
+-1 | did | you | mean | to | send | this | to | me
+-1 | must | be | a | democrat | watch | other | people | work | hard | at | something | while | you | reap | the | benefits | 
+-1 | rraisedbynarcissists | 
+-1 | you | blow | your | father | with | that | mouth
+-1 | i | watched | your | daughter | play | at | the | park
+-1 | im | so | jealous | 
+-1 | suck | my | butt | wee | wee | breff
+-1 | not | svt | not | impressed
+-1 | whomever | odin | allowed | right |  | wouldnt | that | be | a | decision | for | the | gods | or | the | hammer | itself | 
+-1 | i | fuck | your | mother | every | time | she | calls | me | its | weird | because | she | is | a | 110
+-1 | only | living | people | sorry | i | am | an | ass
+-1 | op | forever | gaylikes | to | suck | big | onesnever | forgetti
+-1 | my | advice | is | to | grow | some | balls
+-1 | no | it | didnt
+-1 | he | was | behind | the | other | guy | too
+-1 | why | would | you | want | to | make | the | first | move | if | a | guy | likes | you | hell | do | it | let | him | 
+-1 | hahahahahahaha | 
+-1 | taxes | 
+-1 | thorthor | is | real
+-1 | dont | let | ur | gaye | ass | black | kid | go | to | skool | because | of | change | in | sex | ed | curiculum
+-1 | am | man | can | confirm | that | this | works
+-1 | im | a | dude | and | i | can | confirm | this | is | a | successful | method | of | picking | up | dudes
+-1 | i | dont | believe | you
+-1 | posted | to | reddit | of | course |  | would | that | count | as | oc
+-1 | hershey | park | isnt | even | as | good | as | dorney | park | 
+-1 | hollywood | squares
+-1 | i | have | no | belly | button | 
+-1 | dont | piss | in | that | fridge
+-1 | then | they | shouldnt | have | posted | about | it | because | thats | just | attention | whoring
+-1 | it | had | to | be | done | 
+-1 | living | in | a | fantasy | world | sounds | nice | until | reality | comes | to | visit | 
+-1 | more | like | have | any | romantic | relationship | amirite
+-1 | banging | your | mom
+-1 | wassup
+-1 | actually | she | got | raped | because | i | was | too | strong
+-1 | i | have | no | belly | button
+-1 | read | read | read | read | read | read | read
+-1 | i | wouldnt | mind
+-1 | youre | at | the | edge | of | the | bell | curve | then | be | proud | youre | special
+-1 | ahhh | that | little | blonde | fuck
+-1 | so | what | you | are | saying | ischarm | your | pants | or | the | puppy | gets | it
+-1 | tell | the | professor | that | he | messed | up
+-1 | 1 | day | redditor | nice | try
+-1 | mace | and | taser | beer | pong | i | will | never | forget | that | shit
+-1 | because | every | group | of | friends | has | that | one | friend | that | no | likes | and | that | is | you | i | guess
+-1 | pics
+-1 | grow | up
+-1 | never | attribute | to | malice | what | can | be | adequately | explained | by | stupidity
+-1 | belay | that | belay | that
+-1 | insert | witty | math | pun
+-1 | no | you | can | leave | that | in | the | dungeon | 
+-1 | i | never | loved | you
+-1 | you | know | who | else | could | respond | to | this | your | mom | burn
+-1 | just | shoot | toby | twice
+-1 | she | went | on | to | be | high | inquisitor | at | hogwarts
+-1 | rude | is | a | meaningless | social | construct
+-1 | thank | you | for | bringing | this | to | the | attention | of | the | world | 
+-1 | einbert | alstein
+-1 | hes | wicked | smaht | 
+-1 | having | to | leave | friends | behind | and | attempt | to | make | new | ones
+-1 | palmela
+-1 | whats | wrong | with | the | name
+-1 | poo | poo | pee | pee | xddd
+-1 | drink | the | booze | and | make | everyone | else | beautifulwake | up | tomorrow | and | crack | yourself | up | again
+-1 | gtmayweathergtawesome | 
+-1 | limxgt | 0 |  | 1x |  | positive | infinity | edit | format
+-1 | grow | some | balls
+-1 | speak | freely | on | voice | comms | in | games | online | 
+-1 | except | many | sjws | literally | sound | like | nazis | and | kkk | members | 
+-1 | 0 | multiplied | by | 3 | is | still | 0
+-1 | albeht | einsteen
+-1 | paul | blart | mall | cop
+-1 | palmela | handerson
+-1 | thank | you | for | being | so | helpful | i | really | appreciate | it | 
+-1 | it | wasnt | fat | it | was | simply | ugly |  | point | still | stands | though
+-1 | i | was | born
+-1 | itt | hot | women | that | redditors | are | pretending | theyd | turn | down | if | they | werent | famous | 
+-1 | a | bag | of | cum
+-1 | but | high | sex | is | amazing | 
+-1 | unidan
+-1 | lmao | what | pussy | country | are | you | from | where | they | have | knife | size | bans
+-1 | your | username | is | not | appropriate | for | this | get | out
+-1 | here | for | business | or | pleasure
+-1 | wtf | is | this | shit | bye | felicia
+-1 | i | have | never | watched | it
+-1 | what | the | fuck | are | you | talking | about
+-1 | if | her | age | is | on | the | clock | she | is | ready | for | the | 
+-1 | fuck | you
+-1 | candy | vans
+-1 | ammonia |  | bleach
+-1 | its | not | like | i | want | to | make | the | first | move | or | anything
+-1 | league | of | legends | makes | me | want | to | punch | a | hole | in | my | laptop | but | i | cant | stop | playing
+-1 | bucket | crunderdunder
+-1 | young | kidsnot | babys | dont | need | 14 | hours | of | sleep | 14 | hours | is | way | over | kill
+-1 | weedmeditation | is | free
+-1 | i | agree | with | your | comment | but | your | edit | is | truly | cringeworthy
+-1 | everything | becomes | perfectly | logical | and | simple | if | you | turn | your | emotions | off
+-1 | damn | man | thats | ducking | awesome
+-1 | awesome | stuff | man | i | love | it
+-1 | most | men | these | days | are | pacifist | cowards | that | dont | know | how | the | world | works | or | how | women | work
+-1 | obviously | that | is | the | case | but | not | what | i | was | asking | why | do | we | tolerate | the | societal | impact
+-1 | people | what | a | bunch | of | bastards10 | points | if | you | can | tell | me | who | said | it
+-1 | israel | pledges | to | reconstruct | an | entire | village | in | nepal
+-1 | relevant | username
+-1 | was | she | wacko | in | the | sacko
+-1 | lol | physical | activity | now | means | thinking | because | electrons | exist | on | a | physical | plane | gg
+-1 | sweden | norway | finland | switzerlandmississippi | alabama | pakistan | russia
+-1 | in | that | case | she | thought | your | were | gay
+-1 | came | here | to | say | something | like | this | very | well | put | 
+-1 | cause | baby | youre | a | fiiiiirework | cmon | let | your | colors | burst
+-1 | exploit | my | adorableness | for | free | cash | and | constantly | scam | my | husbands | of | their | money
+-1 | holy | shit | now | that | you | mention
+-1 | gt | thats | a | rap | song | my | friend | actually | punk | but | whatever
+-1 | nope | i | havent | i | am | imagining | it | being | like | off | the | movie | 2012
+-1 | damn | those | girls | sound | retarded
+-1 | sothe | larger | they | are | the | lower | their | iq
+-1 | creampied | some | other | guys | girlfriend
+-1 | cut | my | life | into | pizza
+-1 | midnight |  | did | i | get | i | right
+-1 | ask | if | they | are | odin
+-1 | thread
+-1 | one | of | the | nordic | countries | is | the | greatest | followed | by | 30 | to | 40 | others | then | us
+-1 | nice | hot | opinions | bud
+-1 | mothers | day | is | next | week
+-1 | arent | you | that | pmmeyourwarlizard | from | the | pmmeyourwarlizard | gaming | forum | 
+-1 | could | friends | be | any | less | relevant
+-1 | that | is | called | trolling | 
+-1 | jerking | off | 
+-1 | so | am | i
+-1 | ropsmomgonewild | 
+-1 | bottled | water
+-1 | whats | this | soccer | thing | 
+-1 | dont | have | anything | for | me | to | steal
+-1 | fuckboys | are | very | prevalent | in | the | grand | rapids | area
+-1 | never | seen | it
+-1 | breeder
+-1 | i | have | 15 | times | the | karma | you | have |  | and | im | in | 10th | grade
+-1 | thats | so | specific | is | that | your | fetishlol | telling | children | the | truth | eh
+-1 | thats | not | the | one | i | meant | p
+-1 | rekt | 
+-1 | if | your | in | oregon | and | your | a | 20 | something | female | then | me | of | course | 
+-1 | that | same | movement | advocates | killing | of | men
+-1 | i | make | more | money | than | you | do
+-1 | i | dont | get | where | lol | applies |  | it | is | an | embarrassed | giggle
+-1 | ragnark | awaits | o
+-1 | animism
+-1 | tore | the | wings | off | of | a | fly | hell | never | take | flight | again | 
+-1 | ugovschwarzenegger
+-1 | oogle
+-1 | laser | eagles | for | obvious | reasons | 
+-1 | yeah | its | pretty | ridiculous
+-1 | dank | memes
+-1 | like | i | give | a | fuck
+-1 | glug | glug | glug
+-1 | i | remember | you | you | are | actually | grill | 
+-1 | neither | can | i |  |  | urlhere | 
+-1 | your | mom
+-1 | ive | heard
+-1 | duck | odd |  | also |  | urlhere | n0514390910445
+-1 | darude |  | sandstorm
+-1 | lol | gtfo | she | initiated | it | and | fucken | loved | it | you | know | it | cuz
+-1 | no | kidding | 
+-1 | thanks
+-1 | after | my | uncle | is | done | fucking | me | my | dad | wants | me | nice | and | fresh | for | when | i | come | home | 
+-1 | football | is | an | american | sport | 
+-1 | jam | a | needle | into | my | heart | 
+-1 | daddy | would | you | like | some | sausage
+-1 | and | my | axe
+-1 | europe
+-1 | thats | bullshit | just | because | she | didnt | mean | to | be | a | bitch | doesnt | mean | she | wasnt | a | bitch
+-1 | whatever | happened | to | the | word | taxi
+-1 | same | thing | i | do | every | night | pinky | try | to | take | over | the | world | 
+-1 | gt | redditor | for | 2 | yearsyep | of | course
+-1 | if | only | they | didnt | lose | all | those | old | episodes | 
+-1 | im | assuming | hes | psychotic | or | a | sociopath | 
+-1 | in | a | blockbuster | video
+-1 | put | a | serious | tag | then | i | wont | bother | you
+-1 | leave | your | front | door | slightly | ajar | they | will | think | its | a | trap | and | stay | away
+-1 | i | like | to | spell | it | fuckboi | hoping | that | gains | some | traction | 
+-1 | roffmychest
+-1 | you | shouldnt | take | us | for | granite | 
+-1 | hurrrrr | dtake | an | upvote | you | asshole
+-1 | in | my | room | no | one | cares | about | me | enough | to | look | for | me
+-1 | this | is | what | i | always | tell | girls | a | guy | doesnt | talk | to | a | girl | he | doesnt | like | 
+-1 | how | naive | you | probably | have | 200 | friends | you | think | a | burglar | or | robber | has | 0 | friends | on | facebook
+-1 | what | about | africans | cant | we | moan | about | people | too
+-1 | is | empirical | evidence | the | only | way | to | prove | something
+-1 | mom | spaghetti
+-1 | they | should | stop | fucking | with | other | peoples | religious | freedoms | in | the | name | of | free | speech
+-1 | are | you | most | men | or | do | you | just | hang | out | with | a | bunch | of | pussies
+-1 | i | waz | allegedly | unserious | in | a | serious | threadi | had | to | beg | forgivenessand | two | week | ban | here
+-1 | lol | indeed | my | young | friend
+-1 | its | not | gay | if | you | suck | dick | for | money
+-1 | this | is | why | i | own | a | gun |  | 
+-1 | im | blue | if | i | was | green | i | would | die | 
+-1 | fair | enoughyou | make | peoples | lives | miserable | and | fearful | in | exchange | for | money |  | you | are | shit
+-1 | i | can | just | lift | the | bike | because | the | pole | is | open | at | the | top
+-1 | but | not | that | uplifting | you | know | heightwise | and | all
+-1 | last | week | when | i | thought | we | hadnt | run | out | of | nutella | but | we | actually | had | no | nutella | 
+-1 | best | response | ever
+-1 | you | put | the | blockers | that | go | inside | the | window | and | prevent | the | window | from | being | lifted | higher | 
+-1 | lenton | is | fine | you | are | probably | street | illiterate
+-1 | idk | is | it | 
+-1 | did | you | just | call | me | a | stray | dog
+-1 | i | think | its | because | it | has | a | ton | of | subscribers
+-1 | my | 4chan | image | folder
+-1 | rare | pepe |  | do | not | steal
+-1 | its | because | some | of | us | are | suicidal
+-1 | badass
+-1 | it | also | says | youre | an | easy | mark | due | to | low | intelligence
+-1 | daniel | craigas | proven | by | our | recent | history | literally | the | worst | choice | for | james | bond
+-1 | what | do | dicks | sound | like | pee | sounds
+-1 | me | acting | like | a | retard | at | a | young | age | my | childhood | sucked | 
+-1 | my | goto | product | is | a | glass | of | tap | water | and | a | fresh | breeze |  | go | to | hell | shill
+-1 | so | just | runofthemill | cops | then
+-1 | whats | the | strange | coincidence | 
+-1 | gt | ill | happily | take | a | safe | with | me | and | open | it | laterpics | or | gtfo
+-1 | are | these | in | order | of | importance | or | is | this | like | a | giant | linear | web
+-1 | and | we | dont | need | them | at | all | thanks | 
+-1 | give | everyone | their | guns | backguns | stop | crime |  | urlhere | 
+-1 | 10000 | tacos | vs | 1 | mexican
+-1 | now | whos | the | criminal
+-1 | i | actually | dealt | with | this | case | urlhere | 
+-1 | downvoted | because | of | your | edit
+-1 | there | is | 2000000 | cash | hidden | in | my |  | hey | wait | a | minute
+-1 |  | this
+-1 | it | was | taken | as | allegory | from | since | 200ad | unless | darwin | was | a | time | traveller
+-1 | the | one | with | the | eiffel | tower
+-1 | like | animals
+-1 | mind | if | i | do | a | dramatic | reading | of | this
+-1 | bacon | is | the | mortal | enemy | of | cereal
+-1 | why | jack | the | ripper | in | particular
+-1 | a | bag | of | rice
+-1 | empire | strikes | back
+-1 | 1 | be | christian2 | somebody | disagrees3 | kill | person4 | 5 | prophet
+-1 | apparently | my | sarcasm | wasnt | apparent | from | the | use | of | all | caps | and | sad | face | my | bad
+-1 | dick | in | vagina | 
+-1 | commenting | so | i | can | see | the | responses
+-1 | ujohnaddis
+-1 | who | let | karl | indammit | moon | moonyoure | the | worst | fucking | guard | dog | ever
+-1 | but | the | rioters | burned | down | the | winchester
+-1 | not | really | d
+-1 | cop | killer
+-1 | warning | you | will | never | be | greater | than | him | use | at | own | expense
+-1 | watch | serenity | and | you | will | understand
+-1 | i | havent | killed | anybody | since | 1984 | but | im | still | a | murderer | no | it | doesnt | help
+-1 | warning | psychopath
+-1 | yes | i | would
+-1 | yeah | what | cunts | changing | their | minds | every | 15 | years
+-1 | thats | wrong | on | so | many | levels | like | farting | on | an | elevator
+-1 | you | can | pick | up | flint | from | the | ground | and | strike | it | on | a | rock | both | of | those | are | free
+-1 | michael | douglas
+-1 | oh | it | also | had | elvis
+-1 | instead | of | getting | married | just | find | a | woman | you | hate | and | give | her | your | house
+-1 | deez | nuts | hahaha | got | eeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeem
+-1 | dead | men | cant | tell | liesor | contradict | yours |  | 
+-1 | leave | the | spare | key | under | the | mat | i | never | look | there | 
+-1 | came | here | to | say | this | 
+-1 | somehow | i | dont | think | prison | inmates | get | a | lot | of | unrestricted | internet | time
+-1 | oh |  | that | is | a | sick | twist
+-1 | tourettes | cat
+-1 | goodbye | inbox
+-1 | how | shitty | is | your | apartment | that | you | would | rather | sit | in | car
+-1 | ask | a | stupid | question | on | reddit | 
+-1 | what | about | all | the | deaf | people | getting | caught | farting
+-1 | keep | all | of | your | doors | open | and | your | valuables | in | the | window | trust | me | wed | never | expect | it
+-1 | lol | this | a | thousand | times | this
+-1 | im | a | little | more | curious | as | to | how | they | would | see | this | post | to | begin | with
+-1 | whoosh
+-1 | janitor | at | a | mexican | restaurant | ill | let | you | figure | it | out | 
+-1 | im | fucking | triggered
+-1 | lol | i | didnt | mean | it | happened | to | you | 
+-1 | oh | my | god | just | let | it | die | yes | the | showmovie | was | pretty | good | but | just | let | it | die
+-1 | sometimes | ppl | r | legit | terrible | to | everyone | amp | noone | will | help | them | out |  | 
+-1 | you | will | probably | get | downvoted | for | this
+-1 | didnt | i | clearly | address | this | is | my | post
+-1 | she | has | a | girlfriend | now
+-1 | what | makes | it | worth | watching |  | i | know | nothing | about | it |  | sell | me | on | it
+-1 | you | need | more | than | just | jet | fuel | you | need | a | skyscraper | as | well
+-1 | dont | you | mean | slaves
+-1 | you | buy | levis | at | walmart
+-1 | i | heard | they | use | cheaper | material | for | the | ones | you | buy | at | walmart
+-1 | inside | ops | mom
+-1 | what | kind | of | sick | question | is | this
+-1 | bass |  | boom | bada | boom | thump | thump | thump |  | slow | and | low |  | fat
+-1 | myself
+-1 |  | urlhere | 
+-1 | weekly | i | give | to | my | church | weekly |  | and | also | volunteer | there
+-1 | lol | the | closest | hes | ever | been | to | being | caught | posting | about | it | on | reddit
+-1 | hammer
+-1 | maybe | thats | because | those | in | power | already | have | total | control
+-1 | consciousness | is | far | too | animal | of | a | concept | to | apply | to | it | but | subjectivity | is | not
+-1 | something | something | paul | blart |  | am | i | doing | this | right
+-1 | gt | i | have | no | idea | if | your | seriousyou | dont | everyone | else | does
+-1 | i | identify | as | hitting | ctrl |  | v | for | pandering | internet | points
+-1 | no | and | no | one | ever | has
+-1 | downloading | a | movie | or | show | without | permission
+-1 | take | it | easy | jaden | smith | 
+-1 | whats | wrong | with | you | i | think | up | an | awesome | idea | and | you | dont | even | say | thanks
+-1 | fuck | all | the | people | ragging | on | you | for | being | a | snitch | they | deserved | to | get | caught
+-1 | what | is | math
+-1 | long | haul | airline | pilot
+-1 | probably | may | be | a | bit | of | an | exaggeration | but | it | is | a | risk | even | if | cpr | is | performed | correctly | 
+-1 | if | you | were | drowning | id | throw | you | a | barbell
+-1 | man | man | and | boy | boy | radio | show | 
+-1 | revenwithcontext
+-1 | i | guess | he | decided | to | turn | a | blind | eyevery | clever | 
+-1 | dont | be | that | asshole
+-1 | he | should | a | took | the | limousine
+-1 | saving | private | ryan
+-1 | peanut | butter | nutella | and | honey | is | an | instant | heart | attack
+-1 | am | not
+-1 | deuce | duece | or | deuces | bitches | is | used | as | peace | im | outta | here
+-1 | cable
+-1 | one | time | i | jacked | off | into | a | burger | and | my | dad | ate | the | jizz | patty | and | wanted | more
+-1 | what | i | want | to | know | is | how | blind | people | use | reddit | not | being | a | dick | just | sincerely | want | to | know
+-1 | korn |  | see | you | on | the | other | sidekorn |  | follow | the | leader
+-1 | well | the | wont | matter | for | long
+-1 | mlady
+-1 | itt | people | who | dont | know | shit | about | lyrics | and | cant | be | bothered | to | google | 
+-1 | cnn | and | google | image | search | with | the | keywords | flood | devastation | 19501959
+-1 | when | you | have | nothing | else | to | say | go | with | yolo | 
+-1 | i | think | thats | speed | bro
+-1 | that | i | created | reddit
+-1 | the | law
+-1 | is | it | got | teeth | urlhere |  |  | katy | perry
+-1 | say | what
+-1 | its | about | freddys | struggle | with | being | hiv | positive | 
+-1 | why | the | fuck | does | this | need | a | serious | tag | also | im | 16 | wanna | know | my | underwear | color | next
+-1 | that | was | the | medias | and | polices | fault | not | reddits | 
+-1 | the | real | reason | being | they | were | crap | at | writing | them | 
+-1 | anckvycjckgvjv | lviv | of | kgkgigk | lol | kgkgigk | for | kg | kgkgigk | g | knights | loll | hsuan | lbs | if | og
+-1 | guy | here | completely | agree
+-1 | and | he | shot | the | only | black | toy | they | had | oh | sorry | wrong | thread
+-1 | i | dont | know | but | i | fucked | that | chick
+-1 | final | fantasy | 7
+-1 | that | it | wont | be | around | much | longer
+-1 | youre | tellin | me | 
+-1 | thats | the | joke
+-1 | its | still | bad | that | they | are | pedophiles
+-1 | what | and | spoil | it | for | the | rest | of | us
+-1 | rnocontext
+-1 | thought | this | was | serious | until | i | saw | your | username | 
+-1 | half | life | 2 | has | a | really | good | soundtrack
+-1 | i | said | maybe | try | it | said | it | couldnt | hurt | never | said | i | knew | a | miracle | cure | im | not | oz
+-1 | be | a | cop | cops | get | away | with | alllllll | kind | of | fuckups | that | end | up | killing | people
+-1 | advertising | shifts | burden | of | cost | from | consumer
+-1 | how | do | you | know | the | woman | wont | be | armed
+-1 | thats | what | im | saying
+-1 | ask | jesus | for | snow
+-1 | oh | well
+-1 | 5 | words | to | defeat | most | any | burglarsjumping | cholla | under | each | window
+-1 | be | a | brony
+-1 | pretty | sure | this | song | is | about | an | acid | trip | or | at | least | thats | how | i | interpreted | it | 
+-1 | a | gigantic | continentsized | monument | to | me
+-1 | yeah | american | sniper | in | no | way | was | propaganda | 
+-1 | you | said | it | first
+-1 |  | i | am | just | curious | to | how | you | want | food | and | water | to | be | free | 
+-1 | scientology | i | mean | seriously
+-1 | if | theyre | covered | in | tattoos | im | going | to | be | more | wary | of | them
+-1 | mayweathers | record
+-1 | devil | may | cry | or | beyond | good | and | evil
+-1 | sounds | like | textbook | entrapment | in | some | countries
+-1 | stereotypes | are | too | mainstream |  | 
+-1 | there | are | literally | dozens | of | us
+-1 | lol | like | its | a | real | burglar |  | you | feeling | emotional | on | the | internet | today | champ | fucking | loser
+-1 | ummm | computers | didnt | require | electricity |  | i | think | i | misread | your | last | sentence | 
+-1 | is | she | though | 
+-1 | to | collect | dog | milk
+-1 | the | sperm | bank | with | a | really | long | turkey | baster | 
+-1 | abortion | is | still | illegal | in | ireland | except | under | certain | circumstances | 
+-1 | just | be | patient
+-1 | story | time
+-1 | water | food | period | products
+-1 | maybe | turn | down | your | retardation | a | bit | and | turn | up | your | swag | you | cunt
+-1 | do | you | think | she | did | it | on | propose | to | get | out | of | helping | people | 
+-1 | tips | fedora
+-1 | who | the | hell | gilds | this | comment
+-1 | gtlooked | at | me | with | wide | wide | eyesdoubt | it
+-1 | whoosh
+-1 | abor | did | it | cause | your | blindness |  | also | youll | never | see | this | comment | 
+-1 | paul | wrote | lucy | about | a | drawing | julian | lennon | drew
+-1 | that | can | be | painful | lick | the | cactus | pet | the | hedgehog | dance | on | glass | eeels
+-1 | religion | 
+-1 | um | wat
+-1 | invading | any | country | on | the | notion | of | wmds
+-1 | ayyyy | enjoy | the | aids |  | lmao | yolo
+-1 | weird
+-1 | no | i | probably | couldnt | would | i | sure | why | not | it | could | be | fun | 
+-1 | banking | executive | 
+-1 | the | time | we | caught | the | boston | marathon | bombers
+-1 | see | if | she | wants | to | do | it | again | but | seriously | who | cares
+-1 | not | calling | a | woman | after | you | slept | with | her
+-1 | your | pit | is | a | pussy |  | 
+-1 | delta | i | think
+-1 | this | ones | my | favorite | xd
+-1 | playing | rpgs
+-1 | black | power
+-1 | you | killed | your | dogs | because | they | ate | a | bunch | of | treats | thats | pretty | fucked | up | dude
+-1 | doctor | smart | hugepenis
+-1 | i | meant | kind | of | an | asshole
+-1 | dae | women | nazis
+-1 | if | evolution | not | real | then | how | me | a | water | learn | english
+-1 | of | course
+-1 | pretty | much | anything | but | being | a | physician | or | lawyer
+-1 | new | orleans
+-1 | i | let | it | go | and | move | on | because | i | am | an | adult |  | 
+-1 | solving | the | boston | marathon | bombings
+-1 | leave | your | doors | unlocked | and | valuables | in | plain | sight | ill | assume | theyre | worthless | and | move | on | 
+-1 | thunderblart
+-1 | that | joke | is | worse | than | hitler | 
+-1 | then | dont | waste | your | time | in | them
+-1 | raw | clams
+-1 | invading | iraq | during | the | summeroh | wait
+-1 | youre | on | reddit | somehow | i | doubt | youre | a | catch
+-1 | that | time | we | found | the | culprit | behind | the | boston | bombings | ohh | wait | that | isnt | quite | right
+-1 | if | you | have | a | link | that | would | be | great | by | the | way | just | to | check | them | out
+-1 | pickle | juice
+-1 | its | like | regular | jail | but | without | the | incarceration | part
+-1 | half | life | 3 |  | i | hope
+-1 | cool | story | bro
+-1 | can | i | have | the | tldr | eli5 | version
+-1 | as | it | should | be
+-1 | how | does | one | measure | the | funk | of | an | area | how | much | is | one | funk
+-1 | im | 100 | positive | that | everyone | who | says | they | like | the | taste | of | beer | is | a | dirty | fucking | liar
+-1 | not | true
+-1 | your | mom
+-1 | i | can | drive | for | 12 | hours | and | never | leave | texas | 
+-1 | bald | eagles | are | shedding | tears | with | you
+-1 | my | wife | loves | cookies
+-1 | 13 | year | olds | look | sooo | much | like | 18 | year | olds | right
+-1 | i | got | news | for | youshe | is
+-1 | octoblart
+-1 | the | blart | is | not | enough
+-1 | estategift | tax
+-1 | srs | will | be | having | a | field | day | with | this | thread
+-1 | first | we | should | start | with | what | it | did | rightthe | shooting | was | okay
+-1 |  | urlhere | 
+-1 | wait | this | wasnt | from | lazy | town
+-1 | mcdonalds | and | subwaygiant | burger | subs | that | you | build
+-1 | no | i | didnt | but | there | was | no | way | i | could | prove | that | to | them | at | the | time
+-1 | but | im | not | a | bear | god
+-1 | my | eyes | are | green | tho
+-1 | deaf | and | dumb | questions | 
+-1 | unless | youre | one | of | their | special | targets
+-1 | do | we | pick | it | up | and | start | all | over | so | its | irrelevant | or | just | name | it | relevant | 
+-1 | if | only | her | vagina | wasnt | bigfoot
+-1 | id | probably | spend | the | day | smiting | some | wall | st | wankers | in | particularly | amusing | ways
+-1 | are | you | alergic | to | chloroform | 
+-1 | roe | v | wade | trumps | the | pope | in | my | country
+-1 | not | officially | one | i | think | but | im | going | for | ashe | maree
+-1 | right | now
+-1 | in | yo | momma
+-1 | nah | milk | chocolate | is | better
+-1 | i | work | construction | so | we | screw | we | but | we | bolt | 
+-1 | what | a | silly | way | to | say | it
+-1 | nice | 
+-1 | clicking | this | link | urlhere | 
+-1 | actually | quite | the | opposite | i | hold | them | in | great | esteem
+-1 | dip | your | shlong | and | marathon | 
+-1 | charging | money | for | skyrim | modshere | comes | the | karma
+-1 | rolling
+-1 | mac | demarco | and | the | smiths
+-1 | ill | just | leave | this | here | western | australia |  | urlhere | 
+-1 | but | you | know | im | right |  | unless | youre | a | psychiatrist |  | then | nothing | is | that | serious
+-1 | concrete | jungle | wet | dream | tomato | urlhere | uy
+-1 | then | i | dont | have | basic | awareness | of | other | peoples | beliefs | and | im | fine | with | it | 
+-1 | im | going | to | show | my | age | here | but | fuck | man | she | was | so | godammed | hot | 
+-1 | psalms | 1611
+-1 | doesnt | she | go | to | harvard
+-1 | ironic | doncha | think
+-1 | it | depends | on | how | restrictive | my | pants | are
+-1 | a | cups | suck
+-1 | matt | damon
+-1 | i | just | gave | you | hiv
+-1 | ur | mum
+-1 | i | dont | know | mars
+-1 | my | biggest | existential | fear | is | nothingness | so | i | guess | i | deal | with | it | by | thinking | about | it
+-1 | if | a | band | is | called | adjective | noun | noun | their | lyrics | dont | make | sense | one | of | the | laws | of | nature | 
+-1 | ops | moms | vag | plenty | of | room | for | all | the | hiders
+-1 | a | terrible | song | fuck | that | song | seriously
+-1 | chad | michael | murray
+-1 | wait | people | dont | normally | count | the | rings
+-1 | jack | mcbrayer
+-1 | much | like | driving | its | a | scientific | fact | females | cant | direct
+-1 | takes | a | wild | turn | after | the | word | so
+-1 | wed | probably | be | bros | 
+-1 | i | wouldnt | since | he | didnt | say | this | in | a | public | setting | 
+-1 | but | then | again | who | would | stop | you
+-1 | click | the | wrong | link | 
+-1 | youd | have | to | have | godly | aim | to | actually | do | it | right
+-1 | quantum | computers | have | exponentially | higher | processing | power | they | arent | magic
+-1 | sounds | like | your | job | sucksshatuuupp
+-1 | username | checks | out
+-1 | wait | they | want | to | have | higher | crime | rates
+-1 | comment | to | look | back
+-1 | why | do | programmers | always | get | christmas | and | halloween | mixed | upbecause | dec | 25 |  | oct | 31
+-1 | denise | richards
+-1 | i | think | most | people | laugh | at | things | like | this
+-1 | miss | mia | khalifa | that | girl | is | awesome | 
+-1 | definitely | wouldnt | be | the | plur | thing | to | do
+-1 | i | always | heard | it | was | like | a | big | dick | good | in | theory | bad | in | practice
+-1 | i | desperately | want | to | look | this | up | in | my | unis | journal | database | to | see | if | i | can | read | it
+-1 | know | your | role | 
+-1 | someone | trying | too | hard
+-1 | like | im | going | to | tell | you | nice | try | op | 
+-1 | vote | for | hillary | 
+-1 | ur | adopted
+-1 | being | in | denial | is | fine | just | dont | do | anything | stupid | like | have | kids
+-1 | i | hope | its | not | froot | loops
+-1 | hi | jack | youre | da | bomb
+-1 | the | simpsons
+-1 | they | dont | need | to | try | we | come | over | to | them
+-1 | and | the | white | house | burned | burned | burned
+-1 | gabenville
+-1 | muahahahahahaha
+-1 | the | classic | whoopie | cushion
+-1 | not | all | chocolate | is | processedif | i | am | wrong | then | downvote | me | to | the | limit
+-1 | top | comment | is | a | male |  | oh | yea | thats | right | im | on | reddit
+-1 | are | you | a | cop
+-1 | thats | probably | fake
+-1 | i | thought | reddit | got | sold | a | few | years | back | to | cnn | or | am | i | just | crazy
+-1 | liking | comic | book | characters | or | any | fictional | characters | is | never | cool
+-1 | its | been | awhile | since | ive | seen | one | of | these | they | just | need | to | get | back | in | the | groove | 
+-1 | steve | buscemi
+-1 | 10k | is | literally | nothing | i | wouldnt | even | take | 10m | how | could | you | throw | a | 10 | years | away | like | that
+-1 | thats | the | joke | 
+-1 | reported
+-1 | ok | thats | probably | accurate
+-1 | thanks | 
+-1 | 1500 | in | an | envelop
+-1 | well | i | would | probably | make | fun | of | someone | who | licked | a | cat
+-1 | no | reason | to | be | a | dick | about | it | 
+-1 | iirc | reddit | is | already | owned | by | a | parent | company
+-1 | i | dont | know
+-1 | fear | and | loathing | in | las | vegas
+-1 | oh | well | thats | fucking | awesome
+-1 | canada | canada | canada
+-1 | yeah | thats | what | tldr | means
+-1 | this | is | a | beautiful | comment | 
+-1 | then | dont | post | a | reply | you | dont | have | to | comment | in | every | single | thread
+-1 | there | have | been | plenty | of | times | where | it | would | have | been | easy
+-1 | you | mean | a | bunch | of | terrorists
+-1 | hindi | sex | chat | pm | me | your | nepals
+-1 | you | mean | stand | there | while | the | outcome | is | rigged | in | his | favor
+-1 | do | your | worstedit | thats | all | you | got
+-1 | said | liability42 | who | proceeded | to
+-1 | an | owl
+-1 | as | if | having | nothing | better | to | do | but | hawking | around | your | kids | all | day | is | fantastic | parenting
+-1 | well | im | sure | he | would | die
+-1 | gasp | thats | supposed | to | be | a | secret | 
+-1 | reddit | is | a | sjw | hive | facebook | buying | it | cant | make | it | worse
+-1 | b | this
+-1 |  | thats | why | 
+-1 | 3edgy5mr
+-1 | law | breaking | jobless | free | loading | unpatriotic | protesters
+-1 | it | is | serious
+-1 | not | really | id | feel | to | watched | and | molested | 
+-1 | thats | a | creative | way | of | saying | something | tastes | like | shit
+-1 | id | smoke | weed | with | that | bitch | no | lie
+-1 | lol | rthathappened | edit | s
+-1 | i | was | wrong | 
+-1 | investiaget | 911
+-1 | haarp |  | governments | use | it | to | control | the | weather
+-1 | have | sex | on | a | beach | urlhere | 
+-1 | sex | on | florida | beach
+-1 | because | thats | exactly | the | same | thing
+-1 | considering | about | half | of | that | is | desert | its | not | that | impressive
+-1 | i | totally | agree | with | you | but | i | think | op | means | a | much | more | simplified | version | 
+-1 | snakes | on | a | planecatchy | song | the | worst | movie
+-1 | yea | it | should | have | been | tasted
+-1 | yay | were | besties
+-1 | this | was | on | rlifeprotips | this | morning |  | urlhere | 
+-1 | greatest | fear
+-1 | damn | those | guys | were | real | nazis | about | conforming | to | their | belief | in | a | master | race | of | painters
+-1 | get | a | mouth | piece
+-1 | the | rescuers | down | under
+-1 | yeah | including | your | own
+-1 | tyl | being | dead | speeds | body | decay | by | many | yearscomprendes
+-1 | itt | all | the | big | name | actresses | of | reddit | p
+-1 | what | does | a | jew | do | on | a | swing | hes | annoying | the | german | snipers | 
+-1 | gt | her | husband | is | kind | of | a | dickftfy
+-1 | want | a | cookie | or | something
+-1 | so | yeah | youre | stoned
+-1 | i | dont | know | what | youre | doing | and | at | this | point | im | to | afraid | to | ask
+-1 | a | meme | started
+-1 | do | you | sleep | butt | naked | on | a | bench | and | invite | rapists | over
+-1 | god | i | love | being | an | atheist
+-1 | you | cant | rape | the | willing
+-1 | starting | a | land | war | in | asia
+-1 | america | as | we | know | it | today | wasnt | america | either
+-1 | im | surprised | noone | has | said | eminemkim | yet
+-1 | ops | mom
+-1 | paul | blart
+-1 | do | you | carry | a | 40 | for | the | stopping | power | lol
+-1 | invading | afghanistan
+-1 | so | its | just | the | same | thing | it | wont | broaden | my | horizons | or | something
+-1 | and | i | never | downvote | anything | seems | so | mean | spirited | and | unnecessaryedit | downvotes | really
+-1 | hey | im | great | youre | the | one | who | questions | living | your | life | every | day | 
+-1 | buy | a | lifetime | annuity | 
+-1 | duke | nukem | forever
+-1 | seems | like | whoever | bombs | pearl | harbour | ends | up | with | a | bit | of | radiation
+-1 | god | would | be | happy | though | 
+-1 | this | one | it | has | an | 18hour | halflife
+-1 | sean | bean | 
+-1 | extreme | avante | garde
+-1 | same | here
+-1 | i | wish | i | hadnt | laughed | at | the | pictures
+-1 | no | fat | chicks
+-1 | tom | hardy
+-1 | well | thats | probably | part | of | it | but | theres | something | about | his | performance | that | gets | to | me | 
+-1 | open | my | letterbox | 
+-1 | a | simple | wikipedia | search | gives | you | elizabeth | alexandra | mary
+-1 | a | nagging | wife | works | the | best | 
+-1 | stop | triggering | me | 
+-1 | maybe | that | something | is | to | not | do | meth | over | a | 2 | day | binge
+-1 | keanu | reeves | in | dracula |  | worst | british | accent | since | dick | van | dyke | in | mary | poppins
+-1 | rharibomasterrace
+-1 | if | you | know | what | youre | doing | it | wont | matter | if | you | start | with | 10 | mil | or | 10
+-1 | download | a | car
+-1 | wow | i | didnt | know | imdb | did | hoax | pagesthere | were | no | matrix | sequels
+-1 | i | am | not | op |  | i | program | everyday | and | do | brazilian | jiu | jitsu | daily | as | well | haha
+-1 | japanese | starter | a | war | against | china | rssia | and | usa | simultaneously | like | wtf | they | expected
+-1 | britain | seriously | america | learn | the | difference | 
+-1 | in | my | house | with | the | doors | locked | and | bolted | 
+-1 | if | you | kill | someone | accidentally | with | intent | to | harm | youll | be | charge | either | murder | 
+-1 | how | to | fuck | your | mom | i | cant | find | the | cunt |  | oh | shit | this | is | your | dad
+-1 | im | envisioning | a | worse | place | than | detroit | is | that | right | that | cant | possibly | be | right
+-1 | worst | thing | ive | done | is | get | sick | in | a | club | christ | that | was | a | messy | night
+-1 | honestly | food | i | fucking | love | eggs | and | bacon | 
+-1 | wait | nvm | feminists | exist | 
+-1 | right | now
+-1 | cosby | or | obama | 
+-1 | gastro | science | oddities
+-1 | the | upvotes | have | spoken | 
+-1 | i | think | george | strait | said | it | best | i | aint | here | for | a | long | time | im | here | for | a | good | time
+-1 | gtmurder | our | terrifying | flightswhelp | i | know | my | next | bands | name | now
+-1 | i | think | you | missed | the | joke | 
+-1 | yeah | and | women | belong | in | the | kitchen | anyways
+-1 | gt | irakwhere | is | this
+-1 | cock | wash | for | your | father
+-1 | you | only | got | 1 | bullet | and | theyre | both | on | stage | who | do | you | choose
+-1 | nah | it | would | be | more | like | cutting | off | half | a | thumbnail | if | that
+-1 | paul | blart | mall | cop | 
+-1 | no |  | you | dont | have | to | get | it | on | with | animals |  | willing | humans | are | often | available
+-1 | why | not | just | nuke | it
+-1 | good | to | know | i | wasnt | the | only | one | who | did | that
+-1 | evolution | some | of | the | arguments | i | hear | against | it | are | just | uneducated | crap
+-1 | better | call | saul
+-1 | discipline | 
+-1 | i | agree | but | you | have | now | brought | out | the | atheist | neck | beard | brigade | have | an | upvote
+-1 | lay | on | my | couch | and | spread | their | legs
+-1 | how | did | you | choose | your | username
+-1 | the | ending | was | meh | but | the | rest | of | the | show | was | fantastic
+-1 | meat | and | bread | seriously | i | save | an | absolute | bomb
+-1 | i | dont | know | how | this | hasnt | been | made | clear | but | you | missed | it | because | youre | uikn0wn0thing | 
+-1 | what | in | the | cats | is | a | didntseethatcoming | buddy
+-1 | the | toys | at | the | end | of | each | arm | my | hands
+-1 | what | the | fuck
+-1 | remove | all | karma
+-1 | why | the | downvotes | charlie | brown | is | awesome | 
+-1 | find | sean | connery | hell | teach | me | all | i | need | to | know
+-1 | they | were | threatening | the | constitution | right
+-1 | so | you | get | a | lot | of | applications | from | tea | party | members | 
+-1 | what | were | you | expecting | someone | who | wasnt | competition
+-1 | mojito | 
+-1 | what | were | you | expecting | someone | who | wasnt | competition
+-1 | nah | bro | just | according | her | keikaku
+-1 | no | you | cant | make | me | i | dun | wanna | i | dun | wanna
+-1 | bacon | that | is | all
+-1 | anything | you | want | it | to
+-1 | because | theyre | not | in | danger | in | being | slaughtered | so | that | somebody | else | can | eat | them
+-1 | there | a | lot | of | things | more | important | than | learning | how | to | cook
+-1 | i | already | got | my | phd | i | shouldnt | have | to | learn | how | to | use | thus | thingamajig
+-1 | you | dont | know | what | a | fact | is
+-1 | rick | and | motry
+-1 | lol | i | am | grateful | every | day | i | changed | my | mind | to | major | in | computer | science | instead | of | philosophy
+-1 |  | touche | missed | it | on | first | read | through
+-1 | eh | i | bet | there | would | be | evidence | proving | his | story | 
+-1 | the | porn | industry | hates | him
+-1 | dont | forget | your | vitamin | supplements
+-1 | that | there | is | proof | to | even | suggest | that | they | are | harmful | to | humans | or | the | environment | 
+-1 | stomp | a | kitten | to | death | 
+-1 | bartender
+-1 | ruler | of | the | world
+-1 | think | of | the | children | 
+-1 | take | away | guns | less | violence | less | death | less | misuse | of | guns | ez
+-1 | just | expanded | it | a | bit | 
+-1 | i | agree | its | hard | to | find | a | good | job | with | a | participation | degree
+-1 | pretty | much | only | books | so | i | got | that | going | for | me | which | is | nice | 
+-1 | morality
+-1 | did | i | nail | it
+-1 | taxi | drivers | or | any | driver | for | that | matter | 
+-1 | id | want | china | to | take | advantage |  | of | the | war | and | invade | both | when | they | are | weakest | kekeke
+-1 | i | dont | see | the | appeal
+-1 | i | thought | i | knew | anything | about | porn |  | ive | recognized | all | of | the | names | in | this | thread |  | 
+-1 | achoo | fuck | you
+-1 | never | argue | with | an | idiot | theyll | drag | you | down | to | their | level | and | beat | you | with | experience
+-1 | i | dont | have | kids | but | i | would | hope | my | kids | werent | that | dumb | to | have | to | ask
+-1 | i | ate | a | bowl | of | nails | for | breakfastwithout | any | milk
+-1 | because | the | stupider | they | are | the | more | likely | they | are | to | vote | conservative | lol
+-1 | so | i | can | blackmail | this | ms | b | and | then | shell | give | me | a | bj | 
+-1 | a | more | direct | republic | would | be | far | better | with | less | emphasis | on | congressional | redistricting | 
+-1 | my | apologies | i | thought | i | was | discussing | this | with | an | adult
+-1 | im | a | kitty | kat
+-1 | wtf
+-1 | not | only | cooking |  | but | planning | meals | too | hard | to | cook | if | your | shelves | are | always | empty
+-1 | i | wish | facebook | bought | reddit
+-1 | while | popping | a | boner
+-1 | do | you | still | say | swaydoh | when | its | spelled | pseudo | as | it | should | be
+-1 | protip | youre | using | literal | wrong
+-1 | because | sjws | are | ideological | zombies
+-1 | chris | rock
+-1 | thats | great | 
+-1 | its | pretty | great | 25 | lbs | for | me
+-1 | money | seems | to | be | buying | you | a | lot | of | happiness
+-1 | gt | a | kickass | pchi | fellow | brother | from | master | race | 
+-1 | i | never | said | that
+-1 | flip | the | egg | over
+-1 | well | call | me | a | junebug | on | a | mississippi | tree | stump
+-1 | looks | like | im | going | to | mars | or | i | will | die | trying
+-1 | nope | big | women | look | fucking | gross | lose | some | weight | fatty
+-1 | grammarenglish | teacher |  | since | we | all | know | grammar | on | the | internet | all | ready | 
+-1 | well | minus | the | part | about | bill | oreilly
+-1 | because | they | eat | my | foods | food
+-1 | nice | nice | my | fucking | sides
+-1 | yeah | but | just | stick | your | head | in | an | ultrasonic | jewellery | cleaner | bbam | no | alzheimers
+-1 | google | glass |  |  |  | so | bad | they | broke | the | logic | of | the | ops | question | 
+-1 | a | suckle | is | actually | what | the | mom | does | not | the | kid |  | 
+-1 | no | you | sound | like | rednecks | 
+-1 | actually | youre | both | incorrect | google | sensitivity | vs | specificity | 
+-1 | what | else | could | it | possibly | stand | foryeah | topical
+-1 | furries
+-1 | thanks
+-1 | whats | your | excuse | for | eating | 4000 | calories | a | day
+-1 | nutrition
+-1 | im | sick | today | so | im | stuck | laying | in | bed | and | watching | tv | instead | of | playing | video | games | 
+-1 | because | little | shit | sjws | exist | no | matter | where | you | go
+-1 | that | calls | for | a | carlsberg
+-1 | even | during | day | time
+-1 | i | havent | seen | enough | of | tosh | on | this | list | dude | is | just | not | funny | hes | just | a | dick
+-1 | i | like | my | women | like | i | like | my | coffeehot | bitter | and | black
+-1 | your | mom
+-1 | i | am | not | convinced | that | yours | is | the | only | definition | it | might | be | your | definition
+-1 | what | a | badass
+-1 | thats | deep
+-1 | there | was | a | 101 | ratio | at | reform | hillel | services | i | couldnt | lose
+-1 | as | in | bill | oreilly
+-1 | and | which | came | first
+-1 | george | lopez | for | sure | 
+-1 | yes | why
+-1 | no | doubt | some | loser | sjw | will | doxx | him | and | no | one | will | care
+-1 | the | closest | thing | is | parenting
+-1 | a | big | grilled | portobella | mushroom | comes | close | to | good | steak
+-1 | eww | hes | one | of | them
+-1 | haha | youre | in | debt
+-1 | drowning
+-1 | none | 
+-1 | i | hope | not | easily | one | of | the | worst | games | ever | made | 
+-1 | you | wouldnt | put | something | icky | in | your | mouth | for | a | million | dollars
+-1 | sssooo | no | more | game | of | thrones
+-1 | thats | like | being | the | smartest | kid | with | downssyndrome
+-1 | sneeze | 1 | bless | yousneeze | 2 | quit | it
+-1 | classic | reddit | commentdae | edge
+-1 | no | more | student | loans
+-1 | its | grapes | not | bananas
+-1 | dammit | thats | where | i | kept | all | my | stuff | 
+-1 | one | does | not | simply | buy | reddit
+-1 | is | it | that | obvious |  | urlhere | 
+-1 | no | laws | on | marijuana
+-1 | holy | shit
+-1 | yeah | i | feel | pretty | lucky | tbh | 
+-1 | please | give | me | money | im | so | poor
+-1 | jiiad
+-1 | are | you | saying | astrology | is | science | then | because | astrology | is | nothing | but | bullshit
+-1 | well | what | did | you | do | to | be | called | that
+-1 | that | god | drug
+-1 | rwtf | 
+-1 | amazing | i | would | give | you | gold | if | i | knew | what | that | meant | 
+-1 | unfortunately | its | towards | my | ex | husband | so | no | bueno
+-1 | tosh0
+-1 | cat | facts
+-1 | you | are | most | welcome | took | me | forever | to | figure | that | one | out
+-1 | was | hoping | someone | would | comment | it
+-1 | paul | blart | mall | cop | 3 | the | mall | of | doom | off | the | chain
+-1 | anacondablack | widow
+-1 | i | guess | the | black | pimp | puppet | didnt | play | well | in | middle | america
+-1 | she | was | asking | for | it
+-1 | thats | gotta | hurt | what | the | fuck | whos | pointing | a | red | laser | at | the | earth | blowing | up | 
+-1 | no | religion
+-1 | i | suppose | the | guys | themselves | were | very | drunk | too
+-1 | less | pollution
+-1 | gtwhat | are | the | chances | this | is | political | foul | play | zero | hth | hand
+-1 | but | they | always | try | to | walk | it | in
+-1 | honest | criminals | are | the | worst | no | really | they | always | get | caught | p
+-1 | did | someone | prove | that | somewhere | cause | i | missed | it | if | so | i | like | to | believe | its | real
+-1 | carrot | top
+-1 | an | i | anything | your | paying | twice | the | price | for | something | that | works | half | as | well
+-1 | i | cant | stand | kevin | hart | nor | the | memes | of | him | that | usually | express | a | wtf | reaction
+-1 | myself | i | wont | wear | anything | unless | it | is | brand | name | under | armour | polo | expressmen | armani
+-1 |  | urlhere | 
+-1 | i | think | oreo | would | be | pretty | self | explanatory
+-1 | fuck | bernie | sanders | global | warming | isnt | real | and | i | hope | comcast | takes | over | the | world | 
+-1 | aaaaand | we | have | a | winner
+-1 | i | second | that
+-1 | oh | shit | there | goes | the | planet | urlhere | 
+-1 | clean | water
+-1 | condoms | never | been | a | fan
+-1 | the | only | reason | us | arent | conquered | yet | is | because | the | only | neighbours | are | canada | and | mexico
+-1 | you | brilliantly | encapsulated | reddit | comments | in | one | post | amazing | 
+-1 | sounds | like | shes | not | just | thirsty | for | knowledge
+-1 | kill | the | batman
+-1 | boycott | so | hard | register | that | economic | vote | stay | strong |  | 
+-1 | want | to | know | what | else | isnt | locked | up | your | face
+-1 | he | gives | me | wet | willies
+-1 | eh | youve | got | one | life | to | live | if | you | dont | enjoy | it | dont | eat | it
+-1 | slap | a | vaccine | from | a | pediatricians | hand
+-1 | because | one | is | extremely | harmful | and | the | other | many | factors | less
+-1 | youre | a | fucking | gross | person
+-1 | i | hate | weed | 
+-1 | i | left | my | advice | elsewhere | in | the | threadfeel | free | to | nitpick | the | shit | out | of | it
+-1 | the | ishit
+-1 | upvoted | hugs
+-1 | i | just | did | calm | the | fuck | down | 
+-1 | cringe | is | just | an | awful | word | seriously | stop | using | it
+-1 | ooooooooh | pudding
+-1 | i | feel | like | you | didnt | read | the | first | sentence
+-1 | just | because |  | something |  | is | old | doesnt |  | mean | its |  | wrong | 
+-1 | privacy
+-1 | cuz | i | dont | have | karma | why | dont | i | have | karma | ahhhhhhhhhhhhhh
+-1 | you | sound | like | you | wouldnt | approve | of | abortion
+-1 | fuckin | cancer | 
+-1 | that | the | male | foreskin | is | extra | skin | 
+-1 | its | america | were | used | to | slavery | and | time | is | cyclical | 
+-1 | traitor
+-1 | may | we | never | have | to | use | them
+-1 | on | top | of | that | hes | a | spoiled | brat
+-1 | or | ya | know | newspapers | just | wont | exist
+-1 | uhhh | i | think | you | are | a | bit | confused | about | what | the | controversy | over | mods | is | about | 
+-1 | theyre | all | the | exact | fucking | same
+-1 | you | i | like | you
+-1 | hey | everyone | im | a | big | slut | lol
+-1 | dayuuum | 
+-1 | us | decision | to | invade | vietnam | we | were | slaughterededit | okay | i | fucked | up | leave | me | alone
+-1 | that | shit | about | the | attack | helicopters | cmon | now | 
+-1 | cold | on | the | outside
+-1 | gt | anywhere | with | girls | in | tiny | bikiniscant | blame | them | for | that | part
+-1 | sobering | up
+-1 | yes | soon | newspapers | can | be | printed | at | home | in | 3d
+-1 | my | food | poops | on | your | food
+-1 | how | do | you | know | they | are | the | same | god
+-1 | if | i | werent | about | to | be | soiled | with | debt | i | would | douse | you | with | reddit | gold
+-1 | new | meta | man
+-1 | like | shooting | stars
+-1 | did | you | live | in | the | movie | strange | behavior
+-1 | when | i | missed | a | flight | in | 2001
+-1 | yeah | can | you | believe | that | guy | muricans
+-1 | destiny | so | much | hype | so | so | so | boring
+-1 | guns | germs | and | steel |  |  | read | it
+-1 | i | am | for | animal | cruelty | makes | the | meat | more | tender
+-1 | you | monster | i | literally | came | here | to | say | this
+-1 | the | constitution | 
+-1 | came | here | to | say | this
+-1 | wellthey | were | mostly | assholes | anyway
+-1 | slim | jims | are | nasty | here | in | america | and | since | all | food | tastes | better | in | canada
+-1 | thats | homophobic | also | yes | im | being | downvoted | but | i | am | honest | i | did | do | this | and | i | am | childfree | 
+-1 | jockey | or | a | female |  | which | one | which | one
+-1 | vacuums
+-1 | dont | just | pull | facts | out | of | your | ass | you | end | up | looking | like | a | wild | douchebag
+-1 | intentionality | matters | though
+-1 | prima | nocta |  | 
+-1 | she | might | be | a | blonde | though
+-1 | hahaha
+-1 | again | youre | defending | andy | dick
+-1 | the | second | amendment | was | a | pandoras | box
+-1 | was | that | guy | named | tyrion | and | her | name | tasha
+-1 | sorry | for | not | being | an | ignorant | prick | cheers
+-1 | walking |  | scooters | might | be | fun | for | a | joyride | but | dont | drink | and | scoot
+-1 | the | safe | had | a | satisfying | conclusion
+-1 | an | ear | infectionsource | have | one
+-1 | huckabeepalin | 4 | prez | 2k16
+-1 |  | respect | the | serious | tag
+-1 | from | what | ive | learned | in | my | 10 | years | in | the | job | forcemost | people | are | professional | slackers | 
+-1 | but | no | potato
+-1 | women | are | inferior | to | men | in | almost | every | measurable | way
+-1 | really | i | know | no | one | who | still | uses | vine | 
+-1 | how | long | did | it | take | you | to | make | that | list
+-1 | i | think | statistics | disagree | with | you | on | that |  | urlhere | 
+-1 | so | its | oedipal
+-1 | fnnnqdalmadmamgwfwdmf | blind | people | cant | type | or | read | the | screen
+-1 | gravity | vacuum | cleaners | animals | with | proboscises
+-1 | they | are | fruity
+-1 | well | i | wanted | to | fit | in | so | i | downvoted | you | like | everyone | else
+-1 | you | a | child
+-1 | his | giaaaaant | peeeenis
+-1 | jet | fuel | can | melt | steel | beamsfify
+-1 | are | you | poop | from | a | wiener | or | a | wiener | shaped | poop
+-1 | disgusting | if | you | dont | eat | meat | why | make | a | substitute | theres | plenty | of | other | natural | foods | 
+-1 | i | hate | jeff | tuel
+-1 | no | what | sucks | in | a | metaphorical | sense
+-1 | til | 5 | a | month | is | too | much | for | some | people
+-1 | i | highly | doubt | youll | get | an | answer | but | its | a | good | question | im | kinda | curious | too
+-1 | oh | god | no | this | was | the | first | and | last | episode | of | friends | i | watched | never | again
+-1 | ill | go | fix | this | problem | for | all | of | them | i | will | bite | the | bullet | and | deflower | those | girls
+-1 | the | decline | in | overall | knowledge | online
+-1 | guys | guys | you | should | read | this | amazing | article | by | food | babe | its | an | eye | opener
+-1 | amp8238i | literally | am | doing | this | automatically | and | cool
+-1 | music
+-1 | cold | blooded
+-1 | my | face | in | the | mirror
+-1 | this | post | is | roughly | five | months | late
+-1 | wow | they | made | films | with | the | same | name | as | that | 1999 | movie | 
+-1 | the | moment | i | point | my | doomsday | device | towards | the | moon | the | day | you | all | pay | 
+-1 | boy | were | you | wrong | 
+-1 | then | it | probably | wasnt | assault | you | fuckwit
+-1 | why | if | its | yucky | completely | depends | on | the | hygiene | not | the | job | choice
+-1 | what | exactly | were | you | expecting
+-1 | dont | even | bother | its | position | is | coming | from | an | irrational | religious | based | perspective | 
+-1 | stanley | kubrick | 
+-1 |  | gotta | hurt
+-1 | kill | someone
+-1 | they | do | though | 
+-1 | oh | fuck | off
+-1 | in | aussie | slang | root | actually | means | fuck
+-1 | remove | the | ability | to | sow | vote | itll | become | facebook
+-1 | thats | fine | some | people | do
+-1 | front | page | as | a | new | gif | in | 3 | 2 | 1
+-1 | gt | one | womenspecifying | that | plurals | are | singular
+-1 | become | an | entrepeneur | 
+-1 | hows | that | weird | trouble | follows | that | guy | everywhere | 
+-1 | i | whisper | paul | blart | mall | cop | quotes | in | police | officers | ears | 
+-1 | breast | drunken | night | out | ever
+-1 | happy | opposite | day
+-1 | gt | after | the | fight | i | drove | him | into | the | city | and | we | never | saw | him | againdamn | you | cold | as | ice
+-1 | whats | with | the | cute | bullshit
+-1 | ayyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyylmao
+-1 | i | just | love | the | taste | if | aids
+-1 | yes | yes | it | is
+-1 | was | he | kill
+-1 | or | alternatively | running | nipples
+-1 | oh | baby | oh | yeah | keep | going | ah | yeah | bleghghghghghgh | lets | do | it | again | that | felt | great
+-1 | beg | your | pardon | im | not | familiar | with | the | expression
+-1 | science
+-1 | if | i | werent | a | broke | college | kid | id | gild | the | hell | out | of | this
+-1 | did | he | mean | i | like | your | boyfriend | in | a | friend | way | or | a | gay | way
+-1 | master | chief | collection | thanks | for | ruining | my | childhood | 343
+-1 | why | lebanon
+-1 | how | does | it | compare | to | his | century | trilogy |  | 
+-1 | i | used | to | love | those | books
+-1 | no | no | no | and | nope
+-1 | so | 03 | are | at | a | healthy | weight | okay
+-1 | i | think | thats | pretty | wellknown
+-1 | not | if | its | consensual | 
+-1 | what | are | your | schools | really | like
+-1 | all | woman | should | not | have | the | rights | as | men | do | fuck | you | all | not | serious
+-1 | and | also | she | hugely | important | in | the | it | field
+-1 | do | you | have | something | youd | like | to | share | with | the | rest | of | us
+-1 | skyrim
+-1 | snarky | reddit | asshole
+-1 | i | upvoted | my | own | posts | multiple | times | to | gain | top | comment | 
+-1 | and | do | what | start | drinking | no | thanks
+-1 | this | is | not | true | 
+-1 | i | rord
+-1 | smart | start
+-1 | itt | people | subscribed | medications | acting | as | if | theyre | medical | professionals | 
+-1 | the | fuck |  | cicis | pizza | was | the | fucking | bomb | in | my | town | before | it | closed
+-1 | and | you | sound | like | an | apologist | for | rape | and | violent | crime
+-1 | sorry | i | didnt | realize | that | beating | the | shit | out | of | a | rapist | is | the | same | as | being | a | rapist
+-1 | gt | after | the | fight | i | drove | him | into | the | city | and | we | never | saw | him | againwhy
+-1 | no | women | are | paid | less | even | in | the | same | positionsedit | on | average
+-1 | it | has | war | has | changed | a | shit | tonne | 
+-1 | its | the | tent | that | gives | it | away
+-1 | weed | has | less | brain | frying | abilities | 
+-1 | this | thread | is | a | neckbeards | paradise
+-1 | pant | leg |  |  | 
+-1 | gtthe | you | know | whatthe | knose
+-1 | cuts | class | or | what
+-1 | youre | about | as | useful | as | anne | franks | drum | kit
+-1 | you | ate | a | slim | jim | are | you | homeless | i | wouldnt | feed | that | to | my | dog | 
+-1 | so | if | i | disagree | with | someones | answer | that | is | bitching
+-1 | pro | tip | grey | hair | isnt | limited | to | your | head
+-1 | their | coked | out | shitty | daughter
+-1 | dogtag | as | in | military | id | tag | or | dog | tag | as | in | your | pets | collar | jewelry
+-1 | you | should | become | friends | with | bruce | jenner | 
+-1 | well | of | course | the | guy | that | fights | like | a | bitch | gets | hurt
+-1 | i | only | did | ops | mom | in | the | butt | once | despite | several | demands | by | her | to | do | more
+-1 | guilty
+-1 | are | you | me | 
+-1 | bernie | sanders | is | a | terrible | candidate | for | the | presidency | 
+-1 | for | about | half | of | us | it | would | be
+-1 | the | same | as | i | do | today |  | also | its | racist | to | assume | that | all | black | folks | thinkfeel | the | same | way
+-1 | usually | this | means | theyre | just | using | you | for | a | quick | fuck | kissing | means | attachment | 
+-1 | at | least | pirates | are | interesting | to | look | at | ninjas | ohh | black | pajamas | sooooooo | interesting
+-1 | da | fuck
+-1 | none | of | the | punches | actually | look | that | hard | but | it | knocks | everyone | on | their | ass
+-1 | how | does | this | work
+-1 | spy | on | you
+-1 | oh | i | cant | wait | to | hear | this
+-1 | i | tend | to | stay | away | from | the | head | but | im | pretty | near | bald | around | the | shaft
+-1 | mr | mercedes
+-1 | underrated | post | here
+-1 | we | did | the | same | thing
+-1 | thank | you
+-1 | dont | knock | it | til | you | try | it | 
+-1 | can | confirmsource | am | superglue
+-1 | im | just | here | so | i | wont | get | fined | 
+-1 | none | of | that | linked | to | a | case | or | law |  | try | again | 
+-1 | the | beast | is | my | favorite | youtuber | around | man | hes | funny
+-1 | this | isnt | bad | at | all | compared | to | the | other | things | here
+-1 | two | girls | making | out |  | yucky
+-1 | you | mean | tyler | perrys | fuck | me | hes | right
+-1 | that | makes | it | okay | 
+-1 | you | meannevermind | some | people | never | learn
+-1 | chainsaw | chainsaw | through | the | bar
+-1 | tampax
+-1 | redditors | love | it | when | people | from | a | group | tell | them | that | its | fine | to | make | fun | of | that | group
+-1 | 300 | upvotes | dont | let | it | go | to | your | head
+-1 | removed | 
+-1 | what | does | landing | on | the | moon | have | to | do | with | disliking | ridiculous | chemicals | in | food
+-1 | fuck | all | life
+-1 | drunk | fat | girl | rolling | around | on | the | sidewalk | and | grass | in | a | puddle | of | her | own | puke
+-1 | cloud | to | butt | is | pretty | great
+-1 | i | came | in | expecting | the | top | response | from | be | daredevil | i | was | not | disappointed | 
+-1 | i | dont | need | to | talk | to | ops | mom | i | just | finished | well | ill | let | your | imagination | do | the | rest
+-1 | anal | sex
+-1 | that | happened
+-1 | damn | son | youre | making | out | like | a | karma | bandit
+-1 | bitchezzzzz
+-1 | gtmoms | riceftfy
+-1 | very | bizarre | 
+-1 | coolcool
+-1 | butt | rape | those | rapist | frat | guys
+-1 | because | there | is | something | about | destroying | innocence | that | excites | me | 
+-1 | thats | gross
+-1 | i | downvote | people | because | i | dont | like | their | response | its | there | for | a | reason
+-1 | so | true | penis
+-1 | leave | it | there | so | you | can | pick | it | up |  | yah | right
+-1 | so5 | inches
+-1 | sadly | its | very | real | not | all | women | do | this | but | yeah | its | a | thing
+-1 | hey | the | prometheus | school | of | running | away | from | things | has | taught | me | some | valuable | lessons
+-1 | track | your | location | and | send | it | back | to | applegooglemicrosoft | without | your | knowledge
+-1 | overall | drake | lyrically | jadakiss | 
+-1 | youre | high | arent | you
+-1 | i | am | ashamed | of | the | fact | that | my | questions | get | few | answerspoints
+-1 | that | isnt | why | people | own | guns |  | people | own | guns | to | kill | other | people | not | the | police
+-1 | i | stay | perfectly | still | so | he | cant | see | me | and | wait | for | him | to | move | away
+-1 | do | your | self | a | favor | and | quit | the | drugs | if | you | are | going | to | be | working | with | other | peoples | lives | 
+-1 | once | sent | a | dick | pic | with | a | smiley | face | drawn | on | the | head | got | laid | for | being | funny | it | can | work
+-1 | if | i | am | the | only | man | in | the | world | i | will | be | alpha | as | fuck
+-1 | the | grass | fed | beef | 
+-1 | morals
+-1 | it | will | end
+-1 | short | answer | jesus
+-1 | casual | sexism | and | dismissing | very | real | gender | issues
+-1 | at | least | go | for | the | 5s | s
+-1 | wiping | what | 
+-1 | the | interview
+-1 | i | get | that | joke
+-1 | spy | on | you | with | the | fb | app | 
+-1 | 96 | for | pulling | out | vs | 98 | for | condomsit | works
+-1 | haha | it | must | be | nice | to | have | shit | that | doesnt | stink
+-1 | people | seem | to | think | thats | what | the | downvote | button | is | foredit | predictable | as | ever | neckbeards
+-1 | not | even | arguable | this | is | wrong
+-1 | holds | up | spork | 
+-1 | weed | is | legal | only | law | 
+-1 | northern | tier
+-1 | thats | all | right | just | do | what | i | do | when | im | stressed | and | troll | reddit | 
+-1 | now | if | you | have | a | boyfriend | andor | husband | he | is | osiris | isiss | husband
+-1 | you | wouldnt | understand | you | are | just | one | of | them | sheeple
+-1 | i | think | thats | more | of | an | eitheror | situation | 
+-1 | i | also | do | some | weird | shit | 1 | guy | 1 | cup
+-1 | the | game | black | and | white | god | what | a | boring | pile
+-1 | i | love | the | kinecf | i | only | play | dancing | games | on | it | though | but | its | lots | of | fun | 
+-1 | you | can | still | get | fat | eating | vegetables | 
+-1 | nah | they | were | pretty | terrible | sorry | dude | 
+-1 | the | older | the | vagina | the | better | the | relations | im | bad | at | this | 
+-1 | and | the | earth | is | getting | destroyed | because | of | it | 
+-1 | air | quality
+-1 | i | think | its | mostly | uncircumcised | guys | that | piss | on | the | seat
+-1 | the | probability | of | hitting | that | target | with | a | conventional | bow | and | arrow | is | astronomically | small
+-1 | ive | held | out | buy | not | getting | an | iphone | or | a | macbook | only | because | i | dont | wanna | conform
+-1 | thats | actually | pathetic
+-1 | wow | that | asks | for | an | awful | lot | of | permissions
+-1 | how | do | you | smoke | without | inhaling
+-1 | gt | iphone | miniintroducing | the | iphone | mini
+-1 | interesting | 
+-1 | this | is | just | plain | incorrectangkorbaghdadkaifenghangzhouchangan
+-1 | ive | never | seen | it | in | real | life | but | i | cant | believe | guys | can | actually | do | that | 
+-1 | that | women | actually | like | sex
+-1 | hickspanic | love | that | special | 
+-1 | stop | triggering | me
+-1 | well | then | youre | a | fuckwit
+-1 | which | one
+-1 | 6 | inches | god | is | playing | a | practical | joke
+-1 | randroidmasterrace
+-1 | it | works | 100 | of | the | time | it | works |  | you | cant | argue | with | those | numbers
+-1 | wrong | all | three | are | shit
+-1 | the | clap |  | 
+-1 | your | body | is | your | vessel | your | temple | is | your | mind
+-1 | so | you | hate | other | men | for | something | they | literally | cannot | control | very | mature | of | you
+-1 | machismo | fuckin | seriously | the | way | it | plays | into | sexism | and | misogyny | just | disgusts | me
+-1 | man | up | just | means | be | a | man | not | a | boy | its | like | telling | somebody | to | grow | up
+-1 | i | prefer | to | think | of | them | as | betas | as | i | reckon | an | alpha | doesnt | need | to | strut | around | one | upping | 
+-1 | cant | tell | if | youre | joking
+-1 | why | are | so | many | of | you | assholes | to | women
+-1 | amen | brotha
+-1 | protip | getting | a | girlfriend
+-1 | whats | a | troll | 
+-1 | wipe | your | self | better | bro | 
+-1 | that | the | old | school | gentleman | is | a | dying | breed | douchebags | have | taken | over | our | gender
+-1 | buttsex
+-1 | all | humans | is | wired | for | fucking | and | not | dieing | no | big | deal
+-1 | add | some | salt | and | pepper | et | voila
+-1 | i | like | good | books | and | i | cannot | lie
+-1 | youd | want | to | see | comments | about | how | ugly | or | overweight | she | is | 
+-1 | gets | ya | laid | if | you | have | a | big | enough | dong
+-1 | sportsbrain
+-1 | alcohol | isnt | the | problem | its | the | solution
+-1 | haha | billboards | are | expensive | as | fuck | or | else | i | would
+-1 | as | a | nosleep | reader | this | makes | it | so | much | worse
+-1 | negging | for | instance
+-1 | the | extra | apostrophe | op | got | me | this | year
+-1 | im | working | on | an | app | called | dickblast | that | does | exactly | this | on | tinder
+-1 | that | i | can | get | aids | even | being | a | straight | male | as | if
+-1 | what | if | a | guy | genuinely | compliments | you | on | something | physical
+-1 | very | very | long | story
+-1 | my | dick | is | bigger | chuck | norris | approved | it
+-1 | get | an | aunt | flow | rag
+-1 | mysogeny
+-1 | well | i | mean | there | is | no | way | for | me | to | demonstrate | it | for | you | so | i | guess | you | can | bet | all | ya | want
+-1 | nothing | 
+-1 | bahahahahahaha | i | died
+-1 | dog | and | cat | both | and | then | piss | on | the | dead | bodies | 
+-1 | says | the | man | with | a | little | dick
+-1 | awesome | 
+-1 | highschool
+-1 | anybody | who | brings | their | parent | with | them | dont | do | this
+-1 | sorry | im | just | tired | of | people | who | still | think | its | the | 19th | century | 
+-1 | maybe | you | want | to | trim | that | goatee | with | that | edge
+-1 | you | shouldnt | have | been | down | voted | for | dropping | truth
+-1 | i | hope | you | didnt | inherit | the | stupid
+-1 | my | first | wes | anderson | movie | and | i | freaking | loved | it
+-1 | thats | probably | it | then
+-1 | its | also | yknow | biological | 
+-1 | i | know | a | stealth | asshole | he | also | happens | to | be | a | famous | actors | son | such | a | douchebag
+-1 | and | op | probably | heard | it | recently | in | the | kingsmen
+-1 | ambien
+-1 | send | picsedit | dont | 
+-1 | straight | as | a | rainbow | no | im | straight | promise
+-1 | same | question | every | month | and | same | answer | goes | right | to | the | top | typical | reddit | 
+-1 | calm | yours | first | and | we | have | a | deal | 
+-1 | at | this | point | nothing | uncomfortable | dont | need | it | that | badly
+-1 | gamma
+-1 | explaining | why | people | make | fun | of | vegetarians | by | making | fun | of | vegetarians | thanks | askreddit
+-1 | there | are | no | men | left
+-1 | brilliant | new | location | sharing | technology | site | and | app | i | got | sent | yesterday |  | urlhere | 
+-1 | being | relentlessly | abused | by | someone | close | to | you | can | bring | out | hatred | in | anybody
+-1 | beanie | babies | being | worth | a | ton | of | money | 
+-1 | a | combination | of | mushrooms | and | lsd
+-1 | exactly
+-1 | youd | fit | right | in | with | the | nazis | dont | question | authority | its | illegal | 
+-1 | i | know | right | back | in | the | day | we | could | just | rape | em | now | we | have | to | show | respect | such | a | drag | 
+-1 | orgasms | 
+-1 | thats | something | a | small | dick | person | would | say | 
+-1 | well | i | just | did | my | first | post | couldnt | sayi | am | a | very | well | known | celebrity | tho
+-1 | shhhhhhh | hivemind
+-1 | masturbeta
+-1 | low | test | beta | detected
+-1 | hahahahahahahahahahahahahahaha
+-1 | wasnt | that | trainspotting
+-1 | i | think | you | mean | paragon
+-1 | they | arent | real | women | 
+-1 | why | are | you | being | so | beta
+-1 | that | i | settled | down | with | someone | that | turned | into | a | fat | lazy | cow | and | they | didnt | jealous
+-1 | record | for | the | most | world | records
+-1 | lol | fuckin | savage | fam
+-1 | i | read | this | all | in | a | bro | voice
+-1 | so | you | hope | her | boss | was | rob | schneider
+-1 | excuse | me
+-1 | but | whats | your | name | though
+-1 | white | people | are | successful | brown | people | are | not | its | simple
+-1 | dlc | because | the | 59 | i | paid | for | the | game | werent | enough
+-1 | they | generally | get | their | news | from | cnn | fox | or | msnbc | 
+-1 | its | a | broception
+-1 | not | at | all | in | the | west
+-1 | source | needed
+-1 | may | i | ask | if | you | are | male | or | female
+-1 | dark | city
+-1 | i | know | right | it | seems | blindingly | obvious | to | me | 
+-1 | but | uhhh | it | was | the | reason | 
+-1 | some | strange | cross | between | bobble | heads | frogs | and | drunk | slavs
+-1 | cant | unhear | in | indian | accentsuccessful | 
+-1 | i | hate | it | when | guys | cheat | and | no | this | is | not | female | infiltration
+-1 | gt | laid | her |  | 
+-1 | stop | popping | pills
+-1 | its | how | you | know | youre | in | your | inner | circle | really | when | everyone | can | comfortably | do | this
+-1 | shots | fired
+-1 | well | thats | good | to | know | im | not | the | yelling | from | a | car | type | 
+-1 | i | take | offence | to | that | were | actually | just |  | called | sociopaths | 
+-1 | because | non | of | your | fucking | business | thats | why
+-1 | because | apple
+-1 | completely | depends | on | the | circumstances
+-1 | she | was | into | you | dude
+-1 | disposable | income
+-1 | thats | one | hell | of | a | bong | hes | got | there
+-1 | if | anyone | hit | me | for | such | a | trivial | reason | i | would | lose | my | mind | i | hope | thats | a | hypothetical
+-1 | animals | should | not | be | products | 
+-1 | if | i | 100 | would | not | get | caught
+-1 | yeah |  | because | the | definition | of | evil | is | hating | america | 
+-1 | thanks | mr | skeletal
+-1 | hi | im | daisy | 
+-1 | chyes |  | 
+-1 | no | i | dont | do | drugs | i | was | watching | a | show | drug | inc | about | mdma | 
+-1 | for | the | moe | punk | side | of | things | theres | say | anything
+-1 | it | all | started | with | a | death | of | a | woman
+-1 | masterbate |  |  |  | 
+-1 | time | to | talk | about | the | gentle | sloth
+-1 | how | much | weed | more | importantly | how | much | dick
+-1 | so | you | catfished | 
+-1 | who | gives | a | shit | about | steel | beams
+-1 | your | mom
+-1 | three | fiddy | 
+-1 | is | he | called | manuel
+-1 | found | the | virgins
+-1 | found | him
+-1 | murica | will | done | fuck | yall | up | yeah | hear | our | dicks | are | the | biggest | and | best
+-1 | white | knights | 
+-1 | i | am | the | serpent | king | i | am | to | become | king | of | this | world
+-1 | downvoted | for | the | truth | thats | sad
+-1 | when | dudes | where | sandals | in | public | nobody | wants | to | see | that | shit
+-1 | the | past
+-1 | rip | in | peace | tom | clancy
+-1 | thats | a | shit | way | of | putting | it | and | no | one | should | have | to | expect | it
+-1 | errors | trailvolution
+-1 | raking | in | the | karma
+-1 | you | did | quite | well | but | you | need | more | training | to | defeat | me
+-1 | rabble | rabble | rabble | rabbleedit | its | what | they | say | 
+-1 | 50000 | people | used | to | live | here | now | its | a | ghost | town
+-1 | be | careful | theyll | downvote | you | for | not | being | socially | inept | and | awkward
+-1 | im | not | a | guy | but | i | just | wanted | to | sum | up | what | most | people | are | trying | to | get | at | redpillers
+-1 | you | i | like | you
+-1 | amp8238you | and | i | both | brother | 
+-1 | worst | transformer | ever
+-1 | i | dont | think | either | were | designed | at | all
+-1 | the | state | of | denial |  | specifically | the | holocaust
+-1 | uhh | okay
+-1 | its | okay |  | my | insurance | covers | acts | of | science | 
+-1 | haha | nothing | is | as | bad | as | skyler | das | crazy | and | yes | i | would | definetly | resurrect | varyss | balls | haha
+-1 | haha | me | too | legit | my | first | thought | after | reading | it | everyone | i | know | must | laugh | with | me
+-1 | how | is | a | 6 | year | old | posting | on | reddit | should | we | call | your | parents
+-1 | well | thats | just | semantics | 
+-1 | so | youre | saying | we | should | have | the | social | security | games |  | may | the | odds | ever | be | in | your | favor
+-1 | pornominime
+-1 | superman | no | doubt
+-1 | because | kim | kardashain | says | we | should | be | duh
+-1 | shes | one | of | the | hardest | working | standups | there | is
+-1 | more | like | gender | differences | in | thought | and | rationalization | processes |  | 
+-1 | emotional | outburst | leading | to | mass | downvotes |  |  | its | like | as | if | the | points | matter
+-1 | lol | yes | brother | 
+-1 | theyre | rude | as | shit | 
+-1 | that | literally | makes | no | sense | whatsoever
+-1 | im | a | dripper | what | can | i | do
+-1 | those | liver | spots | creep | me | out
+-1 | holy | vagueness | batman
+-1 | why | does | it | matter
+-1 | nothing
+-1 | your | time | will | come | trust | me
+-1 | you | notice | your | nose | itchesedit | forgot | the | five | words | rule
+-1 | stupid | comment | women | do | this | just | as | much | as | men | do
+-1 | how | about | the | bugs | that | google | hasnt | fixed | since | lollipop | released | 
+-1 | sweatly | penises | smell | in | the | office
+-1 | got | banned | from | raskhistorians | for | jokingly | denying | the | holocaust | 
+-1 | i | know | nothing | on | the | subject | as | i | am | not | from | the | uk | but | i | wanted | to | say | pip | pip | cheerio
+-1 | id | be | happy | since | i | dont | like | soccer | and | people | that | are | acting | crazy
+-1 | why | did | you | even | bother | quoting | that | one | word | when | it | was | the | entirety | of | their | post
+-1 | never | been | laid | you | sure | you | aint | gay | 
+-1 | yeah | its | not | like | she | would | have | any | reason | to | be | pissed | off | with | her | husband
+-1 | to | be | fair | women | by | nature | are | highly | irrational
+-1 | xbox | i | had | a | really | crappy | time | with | their | customer | service | so | i | refuse | to | buy | another | xbox
+-1 | you | dont | need | a | car | because | you | dont | have | a | body
+-1 | it | depends | on | you | i | dont | think | you | could | handle | it | 
+-1 | whenever | i | hear | ladybird | all | i | can | think | of | is | king | of | the | hill
+-1 | how | this | reads | like | the | definition | of | desperation | and | please | approve | of | me | internet | people
+-1 | monosodium | glutamate | msg
+-1 | tickets | to | robin | williams | stand | up | show
+-1 | how | to | win | friends | and | influence | people | by | dale | carnegie | 
+-1 | lol | note | 4 | here | ir | blaster
+-1 | meth | maybe | once
+-1 | you | must | be | 9 | or | 10 | years | old | 
+-1 | the | maypac | fight | lol
+-1 | yes | but | what | complaint
+-1 | note | edge | you | have | the | note | edge | with | its | gimmicky | fucking | edge | thing | why
+-1 | probably | because | you | have | a | wife | and | generally | enjoy | life | overall
+-1 | have | an | upvote | for | that | classy | description | sir
+-1 | almost | always | followed | by | fucking | bitches
+-1 | ladies | dont | poo
+-1 | vaginally | rekt
+-1 | they | have | special | computers
+-1 | tell | me | more | about | what | happens | if | you | gold | things
+-1 | add | an | extra | plate | to | that | bar | works | every | time
+-1 | nothing | i | would | be | freezed
+-1 | ya | damn | commie | 
+-1 | they | join | in | too
+-1 | i | dont | know | head | and | shoulders | two | in | one | has | kept | my | hair | pretty | soft
+-1 | gtthe | only | games | i | preorder | are | rockstar | games | you | wouldnt | if | you | were | on | pc | 
+-1 | american | cars | except | maybe | jeep | but | only | if | i | can | afford | to | pay | someone | else | to | fix | it
+-1 | aids | filled | donuts | not | as | appetizing | as | it | sounds | kinda | sour | actually | 
+-1 | never | go | for | the | gran | bro
+-1 | exactly | the | outspoken | atheists | really | only | deal | in | areas | where | there | is | serious | religiosity
+-1 | reddit | gold
+-1 | tyson | has | never | had | a | tko | within | the | first | 30 | seconds
+-1 | so | your | stance | on | sexual | assault | andor | murder | is | simple | apathy
+-1 | instead | you | waste | your | time | watching | people | pretending | to | be | other | people | doing | fake | things
+-1 | look | at | this | photograph
+-1 | houses | are | pretty | much | the | same
+-1 | this | is | not | a | similar | story | because | mine | was | in | a | dog | park | not | a | mixeduse | park
+-1 | 4chan | would | dominate | the | interwebs | ayyyylmao
+-1 | pam | from | archer | god | damn | shes | annoying
+-1 | cigarettes | 
+-1 | any | future | mayweather | vs | pacquiao | fights
+-1 | a | wedding | 
+-1 | what
+-1 | sometimes | its | funny | though
+-1 | drinks | for | fat | chicks | who | tricked | me | on | tinder | waste | of | time | and | money | with | no | possible | outcome | 
+-1 | you | dont | sweat | much | for | a | fat | lass
+-1 | circle | jerks | which | coincidentally | this | thread | has | become
+-1 | oh | so | true |  | soap | and | water | works | best | kids
+-1 | key | words | id | think
+-1 | nothing | wrong | with | loving | great | beer
+-1 | they | actively | look | for | that | kind | of | thing
+-1 | i | forgot | about | our | huge | concentration | camps | that | we | have | mass | murdering | people |  | my | bad
+-1 | anathema |  | sunlightand | opeth |  | harlequin | forestcant | choose | only | one | in | this | case
+-1 | just | google | huge | sweaty | foreskin
+-1 | so | good |  | bob
+-1 | i | have | been | linking | to | it | literally | every | time | it | is | appropriate
+-1 | pcmasterrace
+-1 | body | of | a | howler | monkey | with | the | spines | of | an | echidna | and | the | face | of | nicolas | cage
+-1 | the | segway
+-1 | here | comes | the | circle | jerk
+-1 | yes | this | is | exactly | how | terrible | hr | interviewers | operate | 
+-1 | same | here | why | would | you | worship | it
+-1 | uunusedusername | i | do | not | recommend | this
+-1 | my | fault | for | posting |  | have | a | good | life | 
+-1 | ops | mooooom
+-1 | it | means | someone | who | panders | to | social | justice | warriors | often | by | sacrificing | their | masculinity
+-1 | he | had | excellent | facial | hair
+-1 | you | could | protest | by | not | breaking | the | law | it | works | wonders | 
+-1 | have | you | been | vaccinated | recently |  | you | may | have | a | case | of | the | autisms
+-1 | so | how | much | for | tonight
+-1 | regret | everything | happens | for | a | reason | learn | from | it | and | move | on
+-1 | andrea | was | the | worst
+-1 | yeah | he | didnt | hit | my | dog | and | i | didnt | hit | him | 
+-1 | the | avengers
+-1 | a | bit | young | 
+-1 | wrong | movie | and | dont | call | me | shirley
+-1 | apparently | when | third | wave | feminism | was | born
+-1 | iphone | 
+-1 | the | nice | thing | about | it | is | that | the | more | antivaxxers | there | are | the | fewer | antivaxxers | there | are
+-1 | no | id | hate | to | irritate | anyone
+-1 | i | think | we | get | used | to | the | shipping | costs | being | as | much | as | our | merchandise | 
+-1 | lol | i | have | kids
+-1 | a | boxing | match
+-1 | guardians | of | the | galaxy
+-1 | mayweatherpacquiao
+-1 | gthealth
+-1 | i | uhh | i | like | that
+-1 | god | loves | a | working | mandont | trust | whiteysee | a | doctor | and | get | rid | of | it | 
+-1 | opinions
+-1 | life | is | about | relationships | value | them
+-1 | he | had | a | right | to | be | he | was | probably | smarter | than | you | just | saying
+-1 | what | point | did | you | make | that | i | didnt | reply | to | 
+-1 | wait | why | shouldnt | people | have | to | get | get | psych | evaluations | if | theyre | getting | a | gun
+-1 | agreed | rip | ser | barristan | the | boldspoiler
+-1 | im | not | familiar | with | the | faces | of | atheism | thing | link
+-1 | another | mayweatherpacquiao | fight
+-1 | breaking | bad
+-1 | looks | like | todays | your | lucky | day | i | also | fucking | hate | coldplay
+-1 | elephant | cosplay
+-1 | thats | what | i | thought | bitch
+-1 | springtime | for | hitler | and | germany | 
+-1 | seems | like | a | vague | definition
+-1 | a | jolly | rancher
+-1 | pc | elitism | rich | cunts | 
+-1 | if | the | shoe | fits
+-1 | fear | and | loathing | in | las | vegas
+-1 | gtljubljanabill | cosby
+-1 | no | you | are | the | only | one | who | likes | to | eat | pinups | sicko
+-1 | probably | just | fishing | for | karma | by | posting | about | antivaxxer | 
+-1 | all | of | my | family | are | scottish | and | are | say | the | same | thing | living | in | both | scotland | and | england
+-1 | when | you | got | the | right | connections | everything | is | free | 
+-1 | i | can | only | pick | one | wouldnt | even | make | a | dent | 
+-1 | the | cameras | dont | even | compare | galaxy | 6gtiphone6
+-1 | the | hive | mind
+-1 | reddit | gold | kappa | 
+-1 | no | the | way | they | act | like | pc | is | better | by | spending | 1 | million | on | one
+-1 | are | you | a | guy | 
+-1 | probably | not | going | to | be | listening | to | any | songs | probably | going | to | be | making | a | few | phone | calls | 
+-1 | she | specializes | in | propane | and | propane | accessories
+-1 | i | have | a | belkin | router | works | great
+-1 | knee | slap
+-1 | a | sensible | chuckle
+-1 | paul | walker
+-1 | for | morse | code | lasagna | rabbit | toejam | 
+-1 | ouch | man
+-1 | white | privileged | its | a | myth | and | people | just | use | it | when | they | realize | their | stance | sucks
+-1 | i | only | see | them | commenting | on | my | cousins | ig | account | and | they | are | all | quite | proud | of | the | title | sjw
+-1 | oh | my | god | fuck | that | bitch | this | is | defenitely | the | roght | answer
+-1 |  | urlhere | 
+-1 | when | you | step | on | our | nations | flag
+-1 | coke | blak
+-1 | paul | blart | mall | cop
+-1 | cats | they | just | arent | that | great | 
+-1 | aside | from | football | and | basketball
+-1 | yes | its | very | versatile | in | design | im | good | like | that | winks
+-1 | or | cat | porn
+-1 | can | someone | explain | this | to | me | please
+-1 | kayne | west
+-1 | condoms | impregnate | all | the | girls | 
+-1 | what | theres | nothing | on | the | internet | about | him | dying | 
+-1 | the | internet |  | where | pointing | out | fact | is | considered | bullying |  | 
+-1 | ahhh | i | hurt | your | feelings
+-1 | hiv | is | not | s | sickness | 
+-1 | healthcare
+-1 | nic | cage | joker | would | be | amazing
+-1 | put | it | in | your | asshole
+-1 | ops | using | the | word | beta | unironically
+-1 | nice | deflection | but | everything | i | said | was | very | directly | related | to | the | topic | at | hand
+-1 | the | news | lady | from | bruce | almighty
+-1 | ratheism | is | leaking | 
+-1 | i | really | liked | the | kingdom | of | the | crystal | skull | the | best | 
+-1 | their | desperate | or | alienating | or | exploitative | approach | to | women |  | it | gives | us | all | a | bad | name
+-1 | ive | tried | it | my | dick | was | sticky
+-1 | everyone | else | is | wrong
+-1 | groundhog | day
+-1 | freedoms | isnt | free | 
+-1 | bam | photonics | lab
+-1 | you | must | be | a | bbw
+-1 | its | a | shitty | rehashed | game | let | it | die | 
+-1 | well | congratulations | on | being | a | fuckup | for | fuckups | sake | youre | the | pride | of | humanity
+-1 | but | i | think | theyre | full | of | aplomb
+-1 | we | are | all | racist | to | some | degree | on | the | inside
+-1 | ok | i | didnt | ask | you
+-1 | something | from | a | few | years | back | urlhere | 
+-1 | its | not | as | much | of | an | issue | since | it | was | removed | as | a | default | sub
+-1 | the | brave | misunderstood | struggle | of | pedophiles
+-1 | unfortunately | in | some | areas | 10 | out | of | 10 | used | bikes | for | sale | are | actually | stolen | bikes | for | sale | 
+-1 | this | is | a | stupid | question | that | doesnt | make | sense | 
+-1 | oh | come | on | the | general | meows | chicken | is | amazing
+-1 | owlowlowlowlowlowlow
+-1 | and | you | were | a | dumbass | for | not | having | printed | directions | or | a | map | on | hand | anyways
+-1 | my | depression | stat | is | 19fuck | you | sideways
+-1 | no | it | isnt | its | a | political | ideology | built | around | patriarchy | theory | 
+-1 | if | you | were | at | my | house | i | wouldve | started | the | porn | music
+-1 | what | a | bunch | of | bastards
+-1 | yeah | i | didnt | even | finish | it | in | fact | i | didnt | even | like | the | dude
+-1 | toss | up | between | black | cat | last | exile | and | kinos | journey
+-1 | you | stupid | son | 
+-1 | edit | downvotes | really
+-1 | gta | san | andreas
+-1 | it | would | downvote | shit | post | like | these
+-1 | yeah | wrestlers | are | just | a | bag | full | of | dicks | 
+-1 | a | clockwork | orange
+-1 | see | this | is | why | you | americans | have | such | a | fucked | up | justice | system
+-1 | brett | urlhere | 
+-1 | go | fuck | your | self | 
+-1 | thank | youno | seriously | as | a | canadian | thankyou
+-1 | is | it | even | possible | then | to | have | an | honest | discussion | of | eugenics
+-1 | we | should | make | a | new | law
+-1 | you | type | like | my | grandma | on | facebook
+-1 | getting | downvoted | nobody | cares
+-1 | reducing | feminists | to | culture | nazis
+-1 | i | get | to | laugh | at | his | idiocy | seriously | jean | poutine |  | urlhere | 
+-1 | im | circumcised | and | just | had | sex | yesterday | no | problem | must | not | have | been | that | important
+-1 | theyre | both | barbaric | stfu
+-1 | since | when
+-1 | its | definitely | overhyped | 
+-1 | which | one | may | i | ask
+-1 | buy | one
+-1 | these | fucking | acceptance | speech | edits | are | so | fucking | stupid
+-1 | i | mean | if | he | is | real | he | killed | more | people | than | hitler
+-1 | because | there | is | no | difference
+-1 | i | have | seen | that | movie | at | least | 10 | times | no | lie
+-1 | the | button
+-1 | reboot
+-1 | pokemon | if | your | older | than | 12 | you | have | no | excuse | to | be | fixating | on | childrens | toys | and | cartoons
+-1 | watch | this | for | an | explanation | urlhere | 
+-1 | abraham | lincoln |  | many | of | his | actions | during | the | civil | war | were | later | declared | unconstitutional | 
+-1 | not | a | lot | of | people | know | that | the | don | mclean | song | is | written | about | that | group | 
+-1 | your | mother
+-1 | i | hate | porn | on | tumblr | they | never | link | to | sources
+-1 | its | the | internet | version | of | finnegans | wake
+-1 | that | he | didnt | procreate
+-1 | ghandi
+-1 | that | is | the | way | all | liberals | work | my | friend | 
+-1 | dredd | the | movie | it | fucking | sucked | 
+-1 | the | omnicast | urlhere | 
+-1 | 12th | submitted
+-1 | groundhog | day
+-1 | manny | pacquiao | vs | floyd | mayweather
+-1 | sexism
+-1 | shit | reddit | says | is | a | good | place | a | person | gave | me | props | there | recently | 
+-1 | ill | tell | you | one | tging | destiny | didnt | xd
+-1 | that | is | so | racist | you | racist
+-1 | gamergate
+-1 | mobile | phones | too | expensive | and | snail | mail | takes | more | commitment | so | emails | too | 
+-1 | fuck | cops | 
+-1 | apparently | others | dont | share | my | sense | of | humor | 
+-1 | i | present | to | you | astroshamanauts | urlhere | 
+-1 | i | fucking | hate | the | blackhawks
+-1 | reddit | would | turn | into | diggcom | without | those | 2 | 
+-1 | a | good | leatherman | or | gerber | multitool
+-1 | lol | ball | park
+-1 | lol | someone | downvoted | you | the | leftist | lean | goes | much | further | than | individual | subreddits
+-1 | bernie | sanders
+-1 | memes | end | all | memes
+-1 | i | dont | think | so |  | do | you
+-1 | k | brb
+-1 | i | agree | cakes | make | octopuses | horny | in | space
+-1 | you | guys | are | all | fat
+-1 | double | post
+-1 | riamverysmart
+-1 | global | warming |  | climate | change
+-1 | i | thought | all | three | of | the | xmen | movies | were | bad | i | liked | the | third | one | the | most | though
+-1 | religion | and | how | evil | it | is | 
+-1 | working | on | fitness | to | lose | weight | and | hopefully | join | the | military
+-1 | weight | loss | surgery | lost | 183 | lbs |  | one | year | later | lost | 185 | more | lbs | by | divorcing | first | husband
+-1 | bernie | sanders
+-1 | have | you | never | heard | of | fucking | voltaire | the | french | revolution
+-1 | gt | the | sanitation | reason | is | bullshityoure | saying | that | based | on | what
+-1 | to | be | honest | its | better | than | rgames | instead | of | complaining | about | games | rgaming | enjoys | them | 
+-1 | smoke | it
+-1 | i | hate | when | people | pretend | i | exist
+-1 | stop | trying | to | make | pirating | out | to | be | ok | 
+-1 | its | just | penii | 
+-1 | pokemon | or | smash | bros
+-1 | student | loans | i | get | it | lifes | hard | now | shut | the | fuck | up
+-1 | born | in | le | wrong | generation
+-1 | and | theres | no | fucking | ball | involved
+-1 | theres | at | least | a | small | chance | you | might | benefit | from | speaking | to | a | professional
+-1 | tall | or | wide
+-1 | there | is | literally | no | noncondescending | way | to | construe | that
+-1 | politics
+-1 | being | so | used | to | 4k | 1080p | or | 720 | is | way | worse | looks | bad | to | me | now
+-1 | see | creed
+-1 | what | about | his | aidswhore
+-1 | wear | that | stereotype | proudly
+-1 | highway | to | hell |  | acdc
+-1 | all | that | does | is | suggest | the | student | is | gay |  | how | is | that | a | good | comeback
+-1 | i | need | proof
+-1 | star | wars | episode | 1
+-1 | you | also | get | death | threats | some | of | the | mods | ban | you | as | well
+-1 | every | time | i | say | that | i | get | dvd | to | oblivion
+-1 | how | did | i | bully | a | 8 | year | old | girl |  | tell | me | and | ill | get | back | to | the | rest |  | 
+-1 | thats | thats | the | part | 2 | where | you | say | why | you | shouldnt | be | proud | thats | the | point
+-1 | theyre | not | fellow | human | beings | dont | give | them | that | much | credit
+-1 | being | firm
+-1 | umwhat |  | thats | my | rule |  | i | try | not | to | be | an | asshole |  | 
+-1 | cats |  | fucking | cats |  | enough | with | the | fucking | cats | already
+-1 | i | mean | even | upgrading | to | a | new | graphics | card | that | came | out | recently | usually | costs | around | 400
+-1 | yes | dammit
+-1 | flick | it | a | couple | times | after | you | go | to | get | it | clean | anything | more | is | playing | with | it
+-1 | because | we | like | to | read | like | we | have | tourettes
+-1 | so | why | cant | it | be | ignored | 
+-1 | probably | because | you | are | fat
+-1 | stop | saying | good | on | you | it | doesnt | make | you | sound | cool
+-1 | upvoted | for | adding | a | bit | of | levity | to | what | is | otherwise | an | altogether | tooserious | discussion
+-1 | except | the | frame | rate
+-1 | walter | white | the | shit | he | put | his | family | through | what | a | dick
+-1 | i | was | demonstrating | how | bad | of | an | insult | it | is | bud | try | to | keep | up
+-1 | anything | zelda | or | mario | related | we | get | it | you | really | like | those | games
+-1 | racegender | issues
+-1 | im | 14
+-1 | yup | if | medication | decreases | the | amount | of | energy | you | burn | eat | less
+-1 | fucking | steam | trading | cards | 
+-1 | atheism | 
+-1 | bernie | sanders
+-1 | if | thats | your | favorite | song | you | probably | havent | most | of | their | stuff
+-1 | turns | out | i | actually | have | made | consistently | informed | choices | throughout | my | life
+-1 | i | just | had | to | upvote | this
+-1 | everything
+-1 | aint | that | the | truth
+-1 | as | a | side | note | i | just | now | noticed | your | username | had | to | laugh | about | that | one
+-1 | thing | is | i | dont | care | if | fatties | get | better | or | not | i | just | want | them | to | stay | the | fuck | away | from | me
+-1 | depends | did | you | get | a | blowy | out | of | it
+-1 | agree | but | id | also | put | waw | with | ghost
+-1 | dittonet
+-1 | bernie | sanders | hes | the | new | ron | paul | around | here
+-1 | the | way | the | bad | ones | reflect | on | the | rest | of | us
+-1 | nothing | he | did | nothing | wrong
+-1 | my | fucking | lord | take | a | euphemism
+-1 | so | much | ignorance
+-1 | siltyn
+-1 | downvotes | for | facts
+-1 | you | realize | that | there | are | different | types | of | fgm | many | of | them | absolutly | similiar | to | circumcision | 
+-1 | its | hilarious | i | loved | it
+-1 | bernie | sanders
+-1 | i | think | you | mean | people
+-1 | what | he | died | nooooo
+-1 | youve | never | called | comcast
+-1 | gt | because | you | can | argue | that | being | fat | is | a | choiceare | you | implying | that | its | not
+-1 | abortion
+-1 | wow | your | 50 | years | old | and | on | reddit
+-1 | well | he | has | to | he | obviously | doesnt | have | superhuman | intellect | or | human | intellect | at | all
+-1 | grant | me | any | rbutton | flair | i | could | ever | want
+-1 | you | are | being | a | drama | queen | here
+-1 | the | ads | that | arent | in | our | way
+-1 | law | enforcement | dae | all | cops | are | evil
+-1 | lebron | sucks
+-1 | ill | try | even | though | my | username | is | near | the | end
+-1 | murdered | it | and | ate | its | flesh
+-1 | dont | lie | to | the | boy
+-1 | russia | shut | the | fuck | up | about | russia | and | mind | your | own | business | nato | sluts
+-1 | i | intend | to | go | into | investment | banking | theres | more | money | there
+-1 | deez | nutz
+-1 | pc | gamers
+-1 | i | didnt | know | tim | was | in | forest | gump | what | part | is | so | sad | with | this | tim | fellow
+-1 | orange | you | glad | i | didnt | say | banana
+-1 | pretty | conservative | 
+-1 | i | dont | have | any | problem | with | jaden | smith | but | his | posts | are | hilariously | stupid
+-1 | is | it | still | worth | going | in | your | opinion | over | a | london | one | like | imperialucl
+-1 | how | isnt | it | 
+-1 | babymetal | urlhere | 
+-1 | are | you | a | virgin | as | well
+-1 | christopher | columbus
+-1 | so | how | exactly | is | it | going | to | get | the | lonely | men | drinking | at | a | bar | to | leave
+-1 | potato | 
+-1 | what | great | big | section | of | subs | is | dedicated | to | hating | women | 
+-1 | beyonc | 
+-1 | groundhog | day
+-1 | good | luck | to | the | snp | i | say | as | long | as | they | cant | vote | on | solely | english | issues | 
+-1 | relevant | username
+-1 | apple | watch
+-1 | hwdp | graffiti | priceless
+-1 | stop | trying | to | make | fetch | a | thing
+-1 | not | a | fan | of | cats
+-1 | moms | spaghetti
+-1 | show | watching | plebs | can | suck | it
+-1 | tom | petty
+-1 | there | are | other | workouts | aside | from | squats | and | deadlifts | brah | 
+-1 | terrible | movie
+-1 | looks | like | youre | above | the | 50th | percentile | you | get | to | live | now
+-1 | how | black | people | are | oppressed | and | that | cops | are | bad
+-1 | eating | real | meat | instead | of | labgrown | meat
+-1 | youre | creepy
+-1 | so | what
+-1 | need | more | power
+-1 | thats | your | opinion
+-1 | it | can | easily | get | unclean | not | long | after | washing | under | the | foreskin
+-1 | atheism | definitely | atheism
+-1 | i | am | a | woman | and | i | will | never | understand | them | myself | i | dont | know | how | you | guys | do | it
+-1 | oh | okay | never | mind |  | should | have | known | i | was | talking | to | a | lost | cause
+-1 | um | no | not | once | in | 34 | years
+-1 | thats | weird | to | me | ive | never | heard | of | anyone | having | a | bad | trip | on | mushrooms
+-1 | nice | try | rolling | stone
+-1 | this | didnt
+-1 | food | poisoning | is | funnier | than | either | of | them
+-1 | violence | 
+-1 | cough | cough | asians | cough | cough | its | so | hard | being | one | 
+-1 | bernie | sanders
+-1 | thats | called | grassroots | campaigning | i | apologize | if | some | people | are | less | that | tactful | about | it
+-1 | ching | chongs | loudlymy | body | is | ready | for | the | downvotes
+-1 | just | reading | these | comments | has | made | me | angry
+-1 | 1 | ctrlf | 2 | not | a | teacheryep
+-1 | this | urlhere | babiespicjpg
+-1 | do | you | not | know | what | a | dialect | or | variety | is
+-1 | mens | rights | 
+-1 |  | think | your | bring | overly | specific | 
+-1 | they | go | back | to | normal | even | if | you | have | a | vaginal | birth | 
+-1 | go | ahead | you | are | sounding | like | a | bigot | anyway | good | day | 
+-1 | hah | gotem
+-1 | kitty | photos | 
+-1 | vaccines | 
+-1 | so | is | arial
+-1 | gtimplying | men | cant | be | sjwsnice | one | shitlord
+-1 | wow | you | totally | owned | me | you | criticized | the | way | i | write | congratulations | on | the | ad | hominem
+-1 | seems | like | im | the | only | one | who | hate | it | well | it | must | be | good
+-1 | reposts | if | youve | seen | it | carry | on | about | your | fucking | business | edit | spelling
+-1 | she | did | not | torture | people
+-1 | so | hell | should | be | fun | then | 
+-1 | heroin
+-1 | pokemon
+-1 | are | you | me
+-1 | yikes | is | there | even | a | way | to | ahfix | that
+-1 | its | kind | of | ironic | that | ive | now | a | pretty | full | inbox | and | gold | 
+-1 | a | barclub | really | 
+-1 | umid | uman | etc
+-1 | does | there | have | to | be | proof | of | something | before | it | can | exist
+-1 | does | it | matter
+-1 | groudnog | day
+-1 | anybody | want | a | peanut | 
+-1 | lubricate | it | and | insert | it | into | your | asshole
+-1 | the | mummy |  | 
+-1 | fingernails | provide | a | use | not | having | foreskin | hasnt | proved | to | be | a | hinderance | of | any | kind |  | 
+-1 | nobody | should | talk | about | things | i | dont | like
+-1 | havent | heard | nanoangstrom | used | before | i | like | it
+-1 | am | i | being | repressed
+-1 | thats | what | we | do | here | 
+-1 | why | women | feel | like | its | necessary | to | argue | when | they | do | something | wrong | 
+-1 | i | thought | this | thread | was | about | people | who | were | regarded | as | good
+-1 | your | fucking | username | is | about | bread | you | fucking | whale
+-1 | the | guy | who | posts | the | suicide | hotline | numbers | 
+-1 | yes | omg | cant | stand | it
+-1 | with | a | similar | death | toll
+-1 | no | just | the | junk | area | in | general | 
+-1 | nonbinary | 17
+-1 | kyle | kinane
+-1 | removed | especially | when | what | follows | is | a | line | of | comments | that | are | hilarious | 
+-1 | just | dont | vote | dup | tomorrow | and | maybe | the | conscience | clause | wont | go | through | 
+-1 | natalie | portman |  | i | really | like | her |  | shut | up
+-1 | glorious | eh
+-1 | bullshit | even | the | spin | doctors | hate | that | song | 
+-1 | you | can | punish | people | for | not | keeping | up | with | the | current | standards | though
+-1 | i | mean | the | subreddit
+-1 | dhahahahahaha
+-1 | funny | how | this | is | so | far | down | and | wearing | glasses | is | the | top | comment | p
+-1 | kid | is | actually | incloset | homosexual | get | red | face | and | looks | around | like | they | know
+-1 | religion | 101
+-1 | this | isnt | a | new | feature | the | gilding | trophy | has | been | around | for | over | a | year | 
+-1 | jesus | christ | permanently | tainted | the | intellectual | progress | of | mankind | 
+-1 | he | may | have | had | a | low | prescriptioni | can | drive | with | or | without | glasses | just | fine
+-1 | welcome | to | the | outgroup | homogeneity | bias | 
+-1 | that | same | page | clearly | says | spain | has | more | lol
+-1 | in | general
+-1 | ur | mum
+-1 | like | what | clogged | nipples | 
+-1 | did | you | at | least | give | him | the | bro | of | the | year | award
+-1 | lack | of | jetpacks
+-1 | love | it | this | is | exactly | what | op | was | saying | to | shut | the | fuck | up | about | 
+-1 | yeah | you | need | some | medication | 
+-1 | neckbeards | neckbeards | are | people | too
+-1 | groundhog | day | 
+-1 | lebron | james
+-1 | yeah | fuckin | chichi | is | better | than | yamcha | dudes | barely | above | hercule
+-1 | dat | counterjerk
+-1 | 15 | jesus | christ
+-1 | my | cousin | vinny | for | me | at | least | 
+-1 | this | guy | urlhere |  | sums | it | up | pretty | well | 
+-1 | dickbut
+-1 | cakes | have | layers
+-1 | gaaaaaaaaaaaaaaayyyyyyyyyyyyyyyy
+-1 | man | i | grew | up | thinking | mother | teresa | was | a | great | person | this | disappoints | me | 
+-1 | i | broke | my | arms
+-1 | hah | you | have | a | fat | nose
+-1 | ripped | dick
+-1 | sometimes | i | would | trade | mine | for | nothing | i | love | him | but | damn | hes | annoying | sometimes
+-1 | groundhog | day
+-1 | youre | fucking | retarded | thats | like | saying | panda | express | is | chinese | food
+-1 | i | read | your | post | as | captain | hammond | 
+-1 | sidenote | my | hypothetical | kids | will | never | attend | public | school
+-1 | hey | everyone | i | found | him
+-1 | ti3 | finals
+-1 | shot | a | gun | the | wrong | way | lucky | i | hit | no | one
+-1 | i | just | had | a | test | on | the | 5070s | xd
+-1 | its | a | lot | harder | for | small | independent | musicians | to | make | a | living
+-1 | and | a | shitty | musician | 
+-1 | happy |  | pharell | williams
+-1 | canada | vs | usa | gold | medal | olympic | hockey | game
+-1 | comcast
+-1 | you | best | be | joking
+-1 | nothign | 
+-1 | thisthis | so | much | 
+-1 | whoa | now | cersei | edit | honestly | cant | say | i | blame | him | 
+-1 | wow | will | always | be | the | best | because | it | was | the | first | mmo | 
+-1 | pallet
+-1 | who | gives | a | shit | 
+-1 | groundhog | day
+-1 | their | gender | isnt | confirmed | stop | perpetuating | this | lie | you | shit | lord
+-1 | i | can | i | dont | do | horror
+-1 | you | forgot | both | of | the | hack | series
+-1 | i | feel | like | they | pass | text | messages | now | days | kind | of | hard | to | intercept
+-1 | thank | you | for | your | comment | you | got | me | so | bad | with | that | ending
+-1 | i | always | pee | sittin | down | 
+-1 | tywin | lannister
+-1 | wrens | livers | jaguars | earlobesget |  | em | while | the |  | re | hot | theyre | lovely
+-1 | the | 1940s | id | really | love | to | experience | the | civil | rights | movement | as | an | adult
+-1 | its | cool | and | super | dark
+-1 | just | not | the | second | one
+-1 | i | would | go | to | the | bathroom | and | just | not | come | back
+-1 | all | your | god | awful | punsreally | the | only | ones | who | like | them | are | the | morons | like | you
+-1 | youre | still | just | a | baby | 
+-1 | i | read | the | same | thing | 
+-1 | gt | militant | atheists | just | say | rude | thingsso | you | were | wrong | when | you | said | that | then
+-1 | whatever | you | say | buddy
+-1 | beasts | of | the | southern | wild | what | dreams | may | come
+-1 | make | sure | theyre | dank
+-1 | all | these | people | calling | him | a | terrorist | and | not | one | source
+-1 | i | eat | my | own | shits
+-1 | that | has | absolutely | nothing | to | do | with | what | i | said
+-1 | go | og | and | just | see | a | production | of | william | shakespeares | twelfth | night
+-1 | cant | give | names | used | the | word | delusional | comic | fans | should | know | who | these | people | are
+-1 | honestly | im | surprised | high | school | kids | pass | notes | these | days
+-1 | gtblockbusterpretty | sure | people | lined | up | entire | blocks | for | the | wii | and | the | wii | u
+-1 | she | was | hot | at | first
+-1 | further | elaborate
+-1 | so | people | who | are | forgetful | are | contemptible | assholes | interesting
+-1 | i | think | its | a | relatively | old | way | of | thinking
+-1 | that | doesnt | make | any | sense
+-1 | ops | mom
+-1 | john | madden
+-1 | if | they | are | black | dead | or | in | jail
+-1 | giordano | bruno
+-1 | no | matter | how | bad | things | get | we | always | have | the | freedom | to | kill | ourselves
+-1 | dont | cut | yourself | on | that | edge
+-1 | wow | youre | so | old | tell | me | some | stories | from | back | in | the | day | grampss
+-1 | hoes | love | attention
+-1 | go | post | that | in | five | different | threads | at | least | two | will | get | 50 | upvotes
+-1 | you | cant | possibly | be | certain | of | that | 
+-1 | overall | physique | and | strength | id | say | now | but | thats | only | cuz | im | 16
+-1 | let | me | guess | youre | a | chick
+-1 | would | of | been | great | to | hear | it | described | as | a | bunch | of | terrorist | take | over | american | colony |  | 
+-1 | downvote | hype
+-1 | woah | now | lets | not | just | put | crazy | lables | on | things
+-1 | no | one | is | getting | mad | about | towing | companies | towing | you | when | you | park | illegally
+-1 | heyy | i | always | laugh | at | those | they | get | more | and | more | ridiculous
+-1 | a | guys | asked | me | to | buy | a | ticket | for | a | football | match | but | it | were | fakett
+-1 | big | trouble | in | little | chinachristmas | vacation
+-1 | mash | it
+-1 | go | lightning | suck | it | bitches
+-1 | i | lived | in | italy | and | the | usa | italians | are | extremely | racist | just | ask | balotelli
+-1 | how | will | i | know | when | you | update | 
+-1 | i | am | glad |  | 
+-1 | i | was | nodding | along | until | the | last | one | now | im | going | to | have | to | take | you | down | satan | 
+-1 | for | me | itll | be | the | secret | life | of | walter | mitty
+-1 | oops | my | bad | sorry | dramatic | much | was | meant | for | uiranoob | 
+-1 | they | have | a | kid | and | hes | afraid | of | child | support | destroying | his | finances
+-1 | the | fact | i | have | one | 
+-1 | alcohol | man | alcohol
+-1 | when | my | bodyservant | is | unavailable
+-1 | you | sir | need | to | read | 1984
+-1 | the | miracle | on | ice | 
+-1 | roses | are | redthis | doesnt | rhymelets | fuck | gurli | hate | the | jews
+-1 | many | people | absolutely | do | it | gives | them | a | sense | of | superiority | 
+-1 | i | cant | be | alone | in | finding | peggy | hilarious
+-1 | dodgeball | dodge | duck | dip | dive | and | dodge | 
+-1 | can | you | link | me | a | thread | that | shows | that | i | havent | seen | any | on | there
+-1 | this | absolutely | did | not | happen | the | fact | that | anyone | believes | this | story | is | offensive
+-1 | no | wonder | reddit | adores | him
+-1 | well | if | you | dont | believe | in | god | then | you | are | an | atheist | thats | the | definition | of | the | word
+-1 | hur | dur | the | prequels | suck | durpadur
+-1 | for | moms | spaghetti
+-1 | taste | itfor | science
+-1 | ruffles | have | ripples
+-1 | and | you | still | havent | learn | sarcasm | or | humour
+-1 | exactly |  | not | a | good | idea | to | be | in | that | position |  | but | i | have |  | 
+-1 | you | dont | see | us | threatening | to | nuke | each | other | right | now | 
+-1 | ffs | this | is | thread | alone | is | going | to | be | more | than | the | actual | comments | haha
+-1 | stay | ignorant | my | friend
+-1 | but | then | why | does | her | stomach | expand | with | one | piece | of | bread
+-1 | this | guy | sounds | like | torontos | rob | ford | minus | the | being | a | good | speaker | part | 
+-1 | abused | white | prostitutes
+-1 | drumline
+-1 | ive | been | your | only | roommate | dumb | ass | lol
+-1 | groundhog | day
+-1 | learned
+-1 | aladdin
+-1 | a | really | narrowminded | mold | to | be | honest | 
+-1 | pleasantville
+-1 | thanks | for | a | good | laugh
+-1 | aladeen | 
+-1 | i | got | upto | episode | 4 | and | lost | interest | how | worth | is | it | to | finish | out | of | 10 | 
+-1 | the | thought | was | a | joke | about | birth | defectsjust | sayin
+-1 | beaten | ayyyy
+-1 | red | because | im | pissed | at | the | world
+-1 | well | we | dont | all | live | in | your | dorm | do | we | rayzune
+-1 | that | was | amazing | when | did | she | say | that | any | videos
+-1 | got | any | grapes
+-1 | no | time | at | all | if | you | chop | your | neck | off | 
+-1 | yes | you | could | marry | a | woman | no | argument | there
+-1 | damn | you
+-1 | i | dont | see | anything | bitter | in | my | history
+-1 | switch | the | genders | around | and | society | says | its | okay
+-1 | and | you | will | know | us | by | the | trail | of | dead |  | source | tags | and | codes
+-1 | its | 10 | after | 10
+-1 | half | life | 3 |  | source | im | from | the | future
+-1 | the | cringe | is | strong | with | this | one | 
+-1 | it | is | almost | as | if | they | are | joking
+-1 | you | dick
+-1 | how | have | you | been | on | here | for | 3 | years | and | not | managed | to | see | any | trends | in | voting | patterns
+-1 | having | the | chosen | one | tattooed | on | your | back | doesnt | help
+-1 | atticus | finch
+-1 | dont | you | fucking | dare
+-1 | haha | nope
+-1 | didnt | he | basically | start | the | seven | years | war
+-1 | its | not | chili | if | there | are | beans | in | it | p
+-1 | marijuana | is | not | a | narcotic |  | 
+-1 | christopher | columbus
+-1 | but | gucci | stuff | is | expensive | so | why | wouldnt | you | be | mad
+-1 | everyday | living | under | the | high | heels | of | the | woman
+-1 | all | people | of | reddit | are | boys |  | same | with | dogs | 
+-1 | onward |  | then | id | float | through | space | until | space | stuff | happens | to | me
+-1 | it | is | amazing | he | reacted | the | only | way | one | should | react | when | someone | kills | a | dog | 
+-1 | i | really | have | no | idea | 
+-1 | where | did | you | grab | your | sister | i | mean | uh | what | part
+-1 | it | is | the | mark | of | an | educated | mind | to | be | able | to | entertain | a | thought | without | accepting | it
+-1 | is | that | an | upside | down | air | comma | tsk | tsk
+-1 | all | hairstylistssalon | workers | are | idiots | 
+-1 | spongebob | squarepants
+-1 | those | who | follow | the | rules | and | those | who | break | them
+-1 | the | one | with | the | rice
+-1 | oh | come | on | really | you | think | that | song | is | expected | to | be | taken | seriously | 
+-1 | if | you | shave | or | slit | your | wrists | safety | razor | instead | of | cartridge | razor | for | sure
+-1 | exactly | what | it | is | but | i | thought | it | was | obvious | something | new | to | be | disappointed | at | every | day
+-1 | fat | people | really | are | just | too | lazy | or | delusional | to | do | anything | about | it | 
+-1 | president | comacho | and | jesus
+-1 | fox | news | parrot
+-1 | im | talking | about | what | happens | on | college | campuses | often | 
+-1 | reported |  | enjoy | your | time | in | jail |  | 
+-1 | what | the | fuck
+-1 | are | you | being | sarcastic
+-1 | ghandi
+-1 | am | i | the | only | one | who | thinks | he | deserved | it
+-1 | paper | cuts
+-1 | i | am | a | transgender | standup | comedian | ama
+-1 | and | that | isnt | awesome
+-1 | youre | the | second | person | to | parrot | this | useless | comment
+-1 | evidence
+-1 | disagreeing | with | scientists
+-1 | gross | 
+-1 | good | thing | they | didcause | world | wars | and | all
+-1 | she | like | it | with | cheesecake
+-1 | driving | your | car
+-1 | rape | time
+-1 | speak | english | please
+-1 | ikes | getting | with | ms | stephenson | nice
+-1 | democracy | 
+-1 | adult | is | only | legally | bound | to | age
+-1 | am | scottish | can | confirm
+-1 | are | you | sure | or | did | you | take | it | the | wrong | way
+-1 | this | is | but | we | dont | know | what | happened | earlier | in | the | evening |  |  |  | 
+-1 | legaly | speaking | no | you | going | to | go | to | jail | regardless | of | anything | after | sleeping | with | minor
+-1 | are | you | being | serious | right | now
+-1 | hey | there | pretty
+-1 | come | to | rscotland | and | say | that | again | pal
+-1 | i | mostly | agree | but | at | the | same | time | he | let | him | keep | doing | it
+-1 | add | castration | to | that
+-1 | did | he | fuck | the | shemale | though
+-1 | thats | why | kids | are | so | receptive | to | sex | 
+-1 | wasnt | able | to | register | in | time
+-1 | many | doesnt | mean | status | quo | 
+-1 | that | sounds | really | good | maybe | i | should | try | this | as | well
+-1 | how | would | you | know
+-1 | i | dont | need | to | fake | it | to | make | it |  | i | just | want | it | to | be | original
+-1 | i | work | in | it | but | half | the | office | is | femalethread
+-1 | ive | read | she | was | also | viciously | prolife | shudders
+-1 | csgo | cases | such | a | sham
+-1 | get | a | gym | membership | and | dedicate | your | time | to | fitness | and | forget | about | her |  | she | will | notice
+-1 | its | not | a | joke | its | math
+-1 | just | do | it | 
+-1 | annyeong
+-1 | they | made | two | sequels | the | matrix | reloaded | and | revolutions
+-1 | black | widow | because | she | looks | an | awful | lot | like | scarlett | johansson
+-1 | still | not | normal | which | is | why | we | wouldnt | it | happening | to | people | trauma | and | all | you | know | 
+-1 | any | evidence | at | all | for | this | wild | accusation | 
+-1 |  | urlhere | 
+-1 | regardless | of | its | intent | it | does | so | by | mocking | religion |  | and | thats | immature
+-1 | protip | start | playing | in | multiplayer | first | you | learn | it | quick
+-1 | oh | intercourse | the | penguin
+-1 | blocks | in | res
+-1 | poor | meg | 
+-1 | i | should | vote | but | i | probably | wont | knowing | the | empty | promises | candidates | make
+-1 | you | and | your | friend | got | ice | cream | for | forgetting | something | thats | kinda | wow
+-1 | slap | da | bitch
+-1 | i | woulda | done | the | same | thing | if | i | were | him
+-1 | and | thus | we | have | a | conundrum
+-1 | im | gonna | guess | some | people | dont | give | shit | 
+-1 | i | feel | that | same | connection | brother | sister
+-1 | why | is | that | a | bad | thing | 
+-1 | i | dont | think | you | understand | what | the | commonwealth | is
+-1 | translation | i | am | vulnerable | and | easy | to | take | advantage | of
+-1 | no | the | real | travesty | is | calling | it | underpants | are | you | 8
+-1 | as | in | had | sex | or | beat | the | shit | outta | her | 
+-1 | ah | next | up | tor | then
+-1 | harbour | thank | you | and | goodnight
+-1 | me | too | idk | which | is | better | im | just | most | familiar | with | this | one
+-1 | i | died | in | my | dream | it | was | weird | because | after | that | i | dont | feel | real
+-1 | id | say | im | more | educated | than | most | on | the | subject | and | i | classify | feminism | as | a | hate | movement
+-1 | how | is | it | any | different | from | a | gay | guy | being | attracted | to | a | guy | wtf
+-1 | i | came | here | to | say | this | but | you | did | and | i | give | you | an | upvote | 
+-1 | thou | shalt | reddit
+-1 | its | just | pocahontas | set | in | the | future
+-1 | thanks | for | your | contribution | brutalanalsex
+-1 | booooo
+-1 | or | micspam
+-1 | thou | shalt | not | fuck | another | mans | mother
+-1 | someone | who | doesnt | suck | so | neither | labour | or | torries
+-1 | she | was | talking | about | the | animal | also | nobody | in | england | says | that | 
+-1 | fuck | em
+-1 | those | are | the | liberals | who | are | as | bad | as | the | people | who | listen | to | rush | limbaugh
+-1 | i | vote | the | american | way | money
+-1 | didnt | see | this | comment | coming | 
+-1 | that | is
+-1 | groundhog | day
+-1 | my | god | hehehe | 
+-1 | down | on | us | all
+-1 | spoiling | the | ballot
+-1 | yall | really | blew | that | didnt | yall
+-1 | hey | hey | you | get | back | here
+-1 | gtno | friends | allowed | in | the | bedroomahahaha | what
+-1 | but | but | tesla
+-1 | personal | finance | 
+-1 | my | vote | doesnt | matter | the | queen | is | obviously | going | to | win
+-1 | my | name | is | relevant
+-1 | his | threat | affected | one | person | rabble | rousing | affects | us | all
+-1 | more | alcohol
+-1 | op | is | asking | the | impossible
+-1 | i | hope | youre | being | sarcastic | because | that | is | an | incredibly | naive | way | to | see | it
+-1 | tips | fedorawhy | wont | she | go | out | with | me | c
+-1 | not | really
+-1 | why | did | you | have | ice
+-1 | my | beautiful | wife | and | three | kids
+-1 | eyelashes | actually | get | into | my | eye | more | than | the | stuff | theyre | supposed | to | block
+-1 | katy | perry | and | lady | gaga
+-1 | youre | scared | of | minimizing | your | chances | of | injury | and | death | on | a | daily | basis | 
+-1 | famous | bassist | i | bet | they | even | get | laid
+-1 | i | do | this | all | the | time | though
+-1 | lol | thats | a | first
+-1 | darshan
+-1 | planned | parenthood | frequent | visitor | card
+-1 | butbut | you | said | bitch | right
+-1 | iran | bacon | 
+-1 | er | the | playdoh | push
+-1 | nope | twas | his | wife | she | had | her | own | set | of | evilness
+-1 | religious | education | of | minors | 
+-1 | its | funny | italians | are | the | only | people | i | really | do | not | like | i | dont | know | why | 
+-1 | hey | get | back | here
+-1 | hes | being | smug | because | he | doesnt | want | to | have | to | babysit | his | overly | drunk | friend
+-1 | she | stolemy | heart
+-1 | what | if | the | demon | started | to | mess | with | you | even | after | you | left | the | house
+-1 | and | yellow | 
+-1 | roses | are | redblood | is | also | redi | cant | rhymerefrigerator
+-1 | damn | you | sound | like | a | boring | friend
+-1 | and | then | realized | his | wrong | and | took | it | back | way | to | read | half | the | situation
+-1 | never | heard | of | them | not | completely | unbelievable | for | someone | who | doesnt | follow | sports | at | all | 
+-1 | uhhhhmwhat
+-1 | theres | spaghetti | on | his | sweater | already | moms | spaghetti | 
+-1 | roses | are | red | and | thorny | as | hellso | then | whys | it | a | giftto | wish | someone | well
+-1 | it | really | depends | on | the | friendsholy | shit | i | just | rhymed | like | a | baawwss
+-1 | one | of | my | least | liked | characters | of | all | time
+-1 | id | gild | you | but | monies
+-1 | that | is | a | dumb | ass | thing | to | ask | 
+-1 | somebody | gild | him | pleaev
+-1 | the | ones | that | screw | up | a | simple | order | at | a | fast | food | restraunt
+-1 | youre | a | pussy
+-1 |  | because | of | all | the | water | 
+-1 | the | us | constitution | its | not | like | its | legal | anymore | anyway
+-1 | im | an | asp | esl | teacher | in | korea | i | have | meltdowns | at | least | twice | a | week
+-1 | yes | because | the | law | says | so | and | because | any | reasonable | parent | knows | so | fuck | off
+-1 | everything | except | physical | activity | is | more | fun | with | booze | 
+-1 | no | you | need | at | least | 4 | whole | days | 
+-1 | raskwomen
+-1 | but | cant | uncooked | spaghetti | also | be | cold | spaghetti
+-1 | thats | just | nostalgia
+-1 | not | to | me
+-1 | and | an | antisemitic | bigot | who | was | a | big | believer | in | eugenics |  | 
+-1 | no | it | isnt | not | in | any | way
+-1 | how | do | people | even | taste | alcohol | all | of | it | beyond | 30 | alc | just | tastes | like | a | burning | mess
+-1 |  |  | that | i | like | empty | space | and | dont | need | to | impress | anyone | 
+-1 | not | the | memes
+-1 | good | vodka | doesnt | burn | but | you | used | quotation | marks | so | ill | look | the | other | way | now
+-1 | roses | are | redviolets | are | bluei | want | to | beinside | of | you
+-1 | inner | city
+-1 | benjamin | franklin
+-1 | blaming | germany | for | everything | and | forgetting | about | the | austrian | snake | in | the | grass
+-1 | yep | pretty | much | this | nothing | else | i | have | done | has | been | a | worse | offence
+-1 | roses | are | red | violent | are | blue | i | just | jerked | offwith | a | handful | of | glue
+-1 | roses | are | red |  | violets | are | blue | when | i | fluah | the | toilet | i | remember | you | 
+-1 | murder
+-1 | cool | story | bro
+-1 | you | might | want | to | check | out | rtifu
+-1 | invest | it | all | in | dank | memes
+-1 | what | if | i | gain | no | enjoyment | out | of | playing | sports
+-1 | roses | are | redviolets | are | blueif | you | love | wombatsi | love | you
+-1 | you | sir | are | very | dirty
+-1 | start | smokin | herb
+-1 | cutforzayn
+-1 | seriously | the | only | trigger | on | tumblr | is | the | trigger | to | bonertown
+-1 | ha | sorry | guys | engrish | was | never | my | strong | point
+-1 | hitler
+-1 | holy | shit | missed | connections
+-1 | gteasierftfy
+-1 | itt | bill | murray
+-1 | i | was | drunk | and | it | was | honestly | a | stupid | mistake | 
+-1 | oh | hell | yes | with | great | satisfaction | 
+-1 | and | the | 45 | a | 4
+-1 | nothingwhich | i | think | is | how | that | works
+-1 | all | you | do | is | argue | and | shoutget | off | reddit | fool
+-1 | i | thought | it | was | funny | dont | listen | to | that | guy | 
+-1 | bill | murray | kissed | the | inside | of | my | beautiful | thighs
+-1 | dont | drink |  | 
+-1 | this | is | a | fucking | dumb | ass | question | 
+-1 | honestly | both | you | and | her | come | off | as | dicks | from | that | story
+-1 | why | deadlift | and | not | power | clean | 
+-1 | something | something | bill | murray
+-1 | yeah | as | long | as | we | mend | fences | with | rfirearms | i | think | wed | do | ok
+-1 | really | want | to | know | if | this | title | is | missing | an | r | or | two | commas
+-1 | roses | are | redviolets | are | blueim | bipolari | dont | love | you
+-1 | roses | are | redviolets | are | blueeverything | is | going | to | be | daijobu
+-1 | yes | welcome | to | male | slavery
+-1 | sounds | good
+-1 | but | not | two | nuts | to | handle
+-1 | it | can | be | both | those | are | not | mutually | exclusive | feelings
+-1 | congratulations | on | your | autism | then
+-1 | being | yourself | and | not | trying | to | be | someone | else | is | pretty | badassrelatively | safe | 
+-1 | i | peed | in | my | dads | mouth
+-1 | of | course | ill | tell | you | whenuuuurrrr | sorry
+-1 | exactly
+-1 | why | did | you | feel | the | need | to | point | out | your | own | race | then
+-1 | everyone | knows | about | him | in | argentina | i | did | not | know | he | was | unheard | of | in | the | rest | of | the | world | o
+-1 | or | were | just | in | the | wrong | bathroom | like | some | kind | of | sexual | predator
+-1 | now | you | made | me | rage
+-1 | roses | are | red |  | violets | are | blue |  | ill | fuck | you | with | a | rake |  | your | mom | can | come | too |  | 
+-1 | hah | youre | one | to | talk | about | sexual | preferences |  | my | pot | apparently | she | and | your | kettle | bang
+-1 | hookah
+-1 | only | women | fucking | sit | and | peeretard
+-1 | she | did | i | was | too | busy | fucking | your | mom | to | notice | 
+-1 | some | doctors | are | also | boys
+-1 | okay
+-1 | 95 | jobs | right | on | it | sounds | like | the | shittiest | way | to | live | ones | life
+-1 | paper | cutsjust | grab | a | piece | of | paper | most | important | thing | no | shit
+-1 | oi | i | am | not | a | stripper
+-1 | moral | outrage | 
+-1 | macbooks | are | quite | popular | with | programmers | so | microsoft | cares | quite | a | lot
+-1 | entirely | full | of | sexualized | 14 | yo | girls | you | know | cause | its | an | anime
+-1 | because | im | a | rebel
+-1 | pc | of | course
+-1 | jet | fuel | cant | melt | steel | beams | gw | bush | at | a | bar | in | 09
+-1 | the | matrix | sequels
+-1 | it | isnt | unusual | but | it | is | silly | if | youre | meticulously | planning | how | youre | going | at | it
+-1 | what | about | for | chocolate | pancakes
+-1 | man | other | people | are | so | weird | and | wrong | 
+-1 |  | urlhere | related | best | xylophne | na
+-1 | i | wanna | get | high
+-1 | that | person | was | wrong | 
+-1 | well | if | we | cant | keep | obama | why | not | get | his | wife | in | there | to | keep | up | the | great | work
+-1 | i | got | banned | on | a | twitch | livestream | for | telling | a | mod | that | i | fingered | his | nan | very | strange
+-1 | gtbeing | able | to | do | youive | been | doing | this | since | i | was | 12 | so
+-1 | asian | parent | here | kid | wasnt | doctor | yet | vewy | disappoint
+-1 | from | what | ive | heard | hes | really | nice | in | person |  | just | the | whole | scientology | thing
+-1 | how | do | you | cause | a | natural | disaster
+-1 | autism
+-1 | usual | suspects | once | you | know | the | ending | there | doesnt | seem | to | be | much | point | so | well | done | though
+-1 | i | grew | up | that | way | and | was | always | very | skinny | so | i | dont | see | the | issue
+-1 | yugioh | arc | v | is | going | greatdont | kill | me
+-1 | i | hate | comments | like | these | 
+-1 | fucking | great | post | man | i | read | this | whole | post | in | graham | hancocks | voice
+-1 | how | the | hell | do | you | respond | to | this | normal | ones
+-1 | the | only | show | on | television | is | just | a | loop | of | the | memer | from | the | wendys | commercial
+-1 | samsung | spent | more | money | on | advertising | than | apple | the | last | few | years
+-1 | you | were | probably | just | banned | for | being | male |  | feminists | hate | males
+-1 | medifast | has |  | a | top | notch | product | but | is | quite | pricey
+-1 | just | about | so | like | youre | 12
+-1 | im | fine
+-1 | and | why | cant | i | call | it | a | keyboard | its | on | dozens | of | albums | in | the | credits | its | a | valid | name | 
+-1 | the | sanic | theme | song | 
+-1 | oh | god | is | that | the | guy | who | wanted | to | replace | pi
+-1 | penis | and | a | vagina | 
+-1 | what | is | the | score | of | the | 2016 | super | bowl
+-1 | great | supine | protoplasmic | invertebrate | jellies | urlhere | 6ra
+-1 | has | smash | bros | 5 | been | announced | yet
+-1 | no | we | dont | but | can | you | at | least | get | my | point | in | some | way | shape | or | form
+-1 | deez | nuts
+-1 | did | detox | drop | yet | no | well
+-1 | bill | murray | killed | my | dad
+-1 | putin | and | queen | elizabeth
+-1 | sjw | tears | can | melt | steel | feelz
+-1 | rintrovert | will | respect | you
+-1 | everybody | dies
+-1 | zee | germans
+-1 | what | if | i | post | a | picture | of | a | cat | but | caption | it | as | anna | kendrick
+-1 | i | had | sex | with | bill | murrays | french | fries
+-1 | astronauts | riding | to | the | space | station | on | spacex | dragon | 2
+-1 | 22banana
+-1 | rnocontext | 
+-1 | they | pulled | him | over | and | shot | him | in | the | back | so | yeah | 
+-1 | i | honestly | wish | i | had | reddit | gold | just | to | gild | this | comment | by | far | the | best | of | the | thread | 
+-1 | at | your | school | perhaps | 
+-1 | what | is | your | opinion | considering | that | half | the | population | doesnt | have | this | expense
+-1 | maybe | youre | actually | just | an | assassin | but | you | dont | know | it | yet | like | in | wanted
+-1 | went | on | study | leave | to | keep | the | discount | but | never | went | back
+-1 | youre | looking | in | the | wrong | place
+-1 | she | probably | wears | her | hair | in | a | bob | and | rhinestones | on | her | jeans
+-1 | she | probably | wears | the | pants | in | your | house
+-1 | not | if | a | company | cuts | corners | to | save | money | which | they | always | do
+-1 | radio | music | i | can | not | understand | why | people | love | mainstream | radio | music | its | so | bad | 
+-1 | how | old | are | you | 12 | how | many | movies | have | you | seen | in | your | life | 12
+-1 | the | fuck | you | say | to | me | you | little | shit | do | you | not | know | who | i | am | im | the | juggernaut | bitch | 
+-1 | they | should | have | spent | 5 | minutes | teaching | you | how | to | use | google | during | your | degree | program |  | 
+-1 | i | said | fatty | meat | not | bacon
+-1 | itt | people | downvoting | anything | that | isnt | saving | private | ryan | 
+-1 | bill | murray | stole | my | bill | murray | once | not | lying | i | swear
+-1 | super | troopers | or | drive | both | are | incredible
+-1 | telling | someone | to | shut | up | is | frowned | upon | in | debate
+-1 | maine | is | basically | canada | as | far | as | im | concerned | 
+-1 | so | its | a | rock
+-1 | the | issue | is | that | suicide | is | a | permanent | solution | to | what | are | often | temporary | problems | 
+-1 | is | she | single | currently
+-1 | well | done | sir
+-1 | me | too
+-1 | how | do | you | know | though | 
+-1 | you | shut | your | whore | mouth
+-1 | the | aptly | named | dick | cheney | 
+-1 | hmmm | reading | this | thread | id | like | to | sayall | of | these
+-1 | 2 | truths | dont | make | a | lie
+-1 | tupac | just | to | see | if | hed | flinch
+-1 | chad | kroeger | shreds | so | hard
+-1 | no | this | isnt | made | up
+-1 | do | you | honestly | think | thats | better |  | it | seems | much | more | awkward | to | me | 
+-1 | not | at | all
+-1 | its | a | service | job | i | wonder | what | youre | supposed | to | dohahaha
+-1 | get | your | drink | on | get | your | smoke | on | and | go | home | with | something | to | poke | on
+-1 | but | not | starting | of | course | not | with | referring | to | the | mother | of | my | child | as | a | bitch | i | love | rap
+-1 | i | dont | have | to
+-1 | prostitute
+-1 | where | did | op | specify | that | he | was | only | asking | about | reddit
+-1 | you | could | be | right | but | im | speaking | from | my | experience | but | that | seems | pretty | interesting
+-1 | deez | nutz | 
+-1 | but | it | will | be
+-1 | fuck | off | i | am | not | a | terrorist
+-1 | source
+-1 | israel | preemptively | bombing | the | palestinians | again
+-1 | start | smoking | weed | instead
+-1 | rthemonstermath
+-1 | down | at | the | dino | gym | eh
+-1 | i | think | the | difference | for | me | lies | in | some | people | hunting | for | sport | 
+-1 | just | makes | me | mad | that | people | would | glorify | something | so | stupid | and | unhealthy
+-1 | man | bun | short | hair | is | so | much | more | convenient | 
+-1 | i | wonder | how | prevalent | this | is | among | hetero | women
+-1 | they | got | to | be | the | most | underrated | group | everof | all | time
+-1 | fucking | man | buns
+-1 | paul | blarg | murray | cop
+-1 | elsa | in | frozen | masturbatory | frostbite | 
+-1 | where | have | i | heard | this | before | sir | u | should | be | writing | movie | plots | and | directing | lol | 9 |  | 1 |  | 1
+-1 | i | could | immediately | know | one | thing | and | thats | what | i | chose | nothing | here | should | confuse | you
+-1 | in | my | head | i | know | what | i | would | say | but | i | have | no | idea | how | to | put | it | on | paper | does | that | make | sense
+-1 | reddit | is | essentially | a | microcosim | of | or | society
+-1 | except | the | sun | high | in | vitamin | d | and | free | unless | youre | in | alaskaantarctica
+-1 | how | do | you | know
+-1 | tips | fedora
+-1 | probably | putting | his | finger | in | my | ass | 
+-1 | does | this | cringworthy | stuff | even | work | on | any | half | decent | woman | 
+-1 | i | really | hope | you | arent | defending | fat | haters | as | different | viewpoints
+-1 | the | one | in | my | head | that | i | cant | get | out | because | i | cant | play | guitar
+-1 | you | can | do | better | than | that | come | on | buddy | i | believe | in | you | 
+-1 | america | is | not | a | nation
+-1 | when | she | doesnt | cry | rape | seriously | 
+-1 | china | town | in | oahu | is | definitely | far | from | the | image | of | america
+-1 | literally | the | correct | use | of | literally
+-1 | i | think | the | birch | tree | plays | his | role | quite | nicely | 
+-1 | socks | and | sandals | either
+-1 | because | the | beach | boys | actually | make | music
+-1 | he | is | totally | right | though | 
+-1 | gilbert | gottfriedand | its | not | even | close | urlhere | 
+-1 | its | like | that | fat | man | walk | sound | they | used | in | older | cartoons | 
+-1 | you | act | like | drunk | people | are | never | sober | 
+-1 | i | totally | respect | that
+-1 | so | what | do | you | use | the | wood | for | 
+-1 | sophie | turner | id | go | full | king | kong | 
+-1 | cant | you | send | someone | like | 500 | ladybirds | for | that | amount | 
+-1 | nother | traaaaain
+-1 | i | knew | l | ron | hubbard | and | youre | no | l | ron | hubbard
+-1 | is | it | insecure | of | him | when | he | says | that | he | wants | to | share | his | glory | with | us
+-1 | fuggen | gommies
+-1 | downvotededit | read | ops | name | idiots
+-1 | yeah | less | a | guy | thing | and | more | of | a | pervert | thing
+-1 | deal | breaker |  | im | a | new | york | yankees | fan
+-1 | shots | fired
+-1 | wearing | pants | 
+-1 | having | friends
+-1 | ya | beat | me | to | it
+-1 | league | of | legends
+-1 | it | is | a | real | thing | though | it | is | just | a | placebo
+-1 | among | other | things | it | certainly | does
+-1 | the | neck | beard | fedora | my | lady | trend | i | dont | get | people | purposely |  | make | themselves | ugly
+-1 | and | uncle | phils | first | name | is | uncle | theres | still | a | phil | in | there
+-1 | xd | no |  | a | black | and | white | film
+-1 | heres | why | i | believe | in | god | it | gives | me | peace | of | mind
+-1 | that | username | is | date | material | for | me | at | least
+-1 | worth | it
+-1 | also | it | always | feels | like | a | cock | fest |  | twenty | dudes | around | 1 | chick
+-1 | what | a | dumb | circlejerk | bunch | of | judgemental | cunts | 
+-1 | the | ending | of | slavery | did | become | a | big | motivator | for | the | union | in | the | end
+-1 | is | that | what | your | inner | fat | kid | tells | yourself
+-1 | do | you | uhh | know | what | trend | means
+-1 | your | mom | moved | out | because | she | didnt | like | your | girlfriend | 
+-1 | righteous | ban | then
+-1 | there | are | many | many | forms | of | racing | please | do | not | judge | all | of | racing | by | nascar | 
+-1 | i | think | cascadia | washington | oregon | british | columbia | ca | could | have | a | good | effect | on | it
+-1 | all | jokes | aside | i | dont | understandcare | about | ivs | and | i | have | fun | in | the | games
+-1 | laughing | like | peter | griffin | i | did | it | nonstop | until | my | best | friend | just | said | no | enough | banned
+-1 | listen | to | rap
+-1 | have | a | source | that | isnt | a | gun | nut | googling | condors | lead | bullets | makes | me | doubt | that | claim
+-1 | and | lady | olenna | got | his | ass | a | few | weeks | later | at | his | wedding
+-1 | simple | green | or | warm | bleach | water
+-1 | no | that | would | not | cunt
+-1 | you | sound | like | a | really | shitty | person | to | try | to | get | to | know | then | tbh
+-1 | i | cannot | find | a | goddamned | pair | of | shorts | that | dont | end | four | inches | above | my | knee | ridiculous
+-1 | that | is | doesnt | have | any | truly | shocking | secrets
+-1 | whats | mysterious | about | the | maya | the | exact | cause | of | decline
+-1 | heh |  | equalizing |  | youre | cute
+-1 | the | indians | lost | are | there | no | more | indians
+-1 | i | havent | deleted | anything
+-1 | crotch
+-1 | and | if | we | have | named | it | isnt | it | a | concept | instead | of | nothing
+-1 | thats | what | happened | to | richard | dunn | urlhere | yo | rip
+-1 | its | clearly | written | tongueincheek
+-1 | austin | powers | in | goldmember
+-1 | the | man | bun |  |  |  |  |  |  |  | 
+-1 | someone | tell | this | guy | about | google | 
+-1 | angry | black | women
+-1 | came | here | to | write | exactly | this | lol | stupidest | thing | ever
+-1 | earrings | why | 
+-1 | lol | yes | i | win | i | get | the | high | ground
+-1 | spectator | sports | are | for | actual | mouth | breathing | drooling | idiots |  | cant | stand | any | talk | about | them
+-1 | itt | literally | everything
+-1 | wow | youd | think | that | you | could | trust | her | but | what | happened | afterwards
+-1 | itt | gross | and | manly | are | the | same | thing | 
+-1 | i | have | no | idea | i | couldnt | be | sexy | if | i | tried
+-1 | brace | for | downvotes | the | feelz | brigade | is | out | in | force
+-1 | hits | me | like | a | wrecking | ballltshamegt
+-1 | i | was | being | sarcastic | 
+-1 | they | are | the | worst | two | states | in | public | education | and | have | been | for | some | time | now
+-1 | ass | wiping | 
+-1 | chive | huh | yeah | i | seen | that | cat | meme | before | but | i | forgot | where | i | reddit
+-1 | skinny | jeans | no | 
+-1 |  | urlhere | internet
+-1 | compared | to | the | rest | of | the | us | it | looks | like | a | different | country
+-1 | the | man | bun
+-1 | downvoted | to | oblivion
+-1 | this | one
+-1 | im | more | into | rally | but | agreed | nascar | sucks
+-1 | the | fact | hes | black | is | important | how
+-1 | owls | are | real | i | feel | so | ignorant | i | thought | they | were | just | from | harry | potter
+-1 | watching | fox | news
+-1 | this | juan
+-1 | frat | houses | are | far | from | niceespecially | on | the | inside | 
+-1 | antics | lots | of | antics
+-1 | get | a | haircut | hippie
+-1 | steal | souls | but | i | alreadyyyyy | er | um | yeah | gee | thatd | be | swell
+-1 | revenwithcontext
+-1 | jack | off | to | tacosso | nothing | new
+-1 | religion
+-1 | iggy | azalea | music | played | over | a | loud | speaker
+-1 | sometimes | called | top | knots
+-1 | the | m16 | guitar | it | has | 3 | strings | and | shoots | i | pm | a | modern | musician | y0
+-1 | bruder | pls | why | you | get | me | ban | why
+-1 | f1 | is | for | the | primadonnas | lmp | and | rally
+-1 | russell | crowe | urlhere | crowe100320202sjpg
+-1 | have | you | seen | her | out | of | costume | or | are | you | just | stricken | with | gynecomastia
+-1 | if | you | dont | send | dick | pics | that | means | youre | insecure | and | have | a | small | dick | 
+-1 | dang | ive | gone | meta
+-1 | so | you | were | either | valedictorian | or | you | dropped | out
+-1 | just | dont | drink
+-1 | gas | prices
+-1 | i | fell | asleep | watching | the | first | five | minutes | of | that | movie | 
+-1 | depends |  | is | too | much | alcohol | good | for | you | 
+-1 | unconscious |  | deaththe | average | dude | wont | kill | someone | by | punching | them | in | the | face
+-1 | rnocontext
+-1 | and | shes | 16 | not | 18
+-1 | remote | baby | monitor
+-1 | like | omg | progressive | values | are | better | because | we | say | so | lets | all | condone | mental | illness
+-1 | stark | urlhere | 
+-1 | yo | mammas | teeth | so | yellow | when | sean | paul | said | gimme | the | light | all | she | had | to | do | was | smile | 
+-1 | it | makes | sense | that | youre | azn
+-1 | i | have | a | reddit | shirt | do | you | like | me
+-1 | rob | schneider
+-1 | gtim | definitely | not | a | closet | gayftfy
+-1 | cccccombo | breaker
+-1 | so | theye | phonies
+-1 | weed | cures | all | 
+-1 | i | just | feel | i | ami | feel | unlovable | unlikeable | hateable
+-1 | holy | crap | i | actually | understood | that
+-1 | getting | pantsed
+-1 | rabies | is | a | virus | vaccines | are | administered | for | viral | afflictions | not | bacterial
+-1 | then | your | bathroom | will | smell | like | soapy | doo
+-1 | i | think | you | mean | krystal
+-1 | because | shes | taken
+-1 | this | question | always | getting | asked
+-1 | floyd | mayweather
+-1 | you | can | smell | the | rationalization | in | prodadbod | arguments | from | a | mile | away
+-1 | this | one
+-1 | watching | to | listening | to | people | talk | about | or | understanding | professional | sports
+-1 | jamie | foxx | as | ray | charles
+-1 | seriously |  | casino | royale | was | awesome |  | skyfall | was | great |  | wtf
+-1 | free | will | exists | its | just | less | important | than | everyone | thinks | it | is | 
+-1 | im | a | big | fan | of | dodgeballs | intro
+-1 | no | its | not | youre | making | this | shit | up | 
+-1 | whats | douchy | about | obey | tapout | i | understand
+-1 | christ | you | got | a | fetish | or | something
+-1 | shut | the | fuck | up | with | this | holy | crapola
+-1 | stereolab | woody | guthrie | the | eels
+-1 | you | mama | so | fat | planets | orbit | her | 
+-1 | is | this | a | joe | dirt | reference | someone | tell | me | if | this | is | a | joe | dirt | reference
+-1 | he | looks | like | george | clooney | and | joaquin | phoenix | had | a | baby | meh
+-1 | ole | ole | ole | ole
+-1 | yeah | thats | how | most | grown | ups | cook
+-1 | if | you | think | stripping | doesnt | require | immense | skill | well | go | try | it
+-1 | my | account | is | older | than | yours | by | 3 | years | and | 6 | monthsrekt | rekt | rektmlgnoscope
+-1 | i | dont | feel | like | retyping | it | just | refer | to | my | highest | upvoted | comment | 
+-1 | rape | its | just | not | for | me | 
+-1 | so | if | a | farmer | saves | enough | seeds | from | a | harvest | for | the | next | crop | hes | not | a | farmer
+-1 | yeah | why | do | you | think | i | grew | one
+-1 | 2920 | or | something | like | that | too | right
+-1 | disgusting
+-1 | leave | it | out | there | forget | about | it | and | buy | a | dog | 
+-1 | this | wwwbingcommaps
+-1 | find | a | common | interest
+-1 | its | still | disgusting | nice | try | ronald
+-1 | hood | richyeah | thats | not | the | actual | term
+-1 | your | mothers | such | an | ugly | stupid | fat | whore | that | i | forgot | where | i | was | going | with | this
+-1 | have | some | hygiene | then
+-1 | i | completely | agree | with | you | i | often | wish | th | the | same | 
+-1 | jogger | pants | 
+-1 | just | wait | until | you | get | to | college
+-1 | your | mom | 
+-1 | wednesday
+-1 | i | would | probably | count | the | aurora | shooting | as | being | worse | than | a | slow | clap
+-1 | fuck | global | peace | i | need | my | cock
+-1 | when | america | one | upd | the | japanese | after | pearl | harbouri | would | say | it | was | a | showstopper
+-1 | aay | lmao
+-1 | gale | harold | as | brian | kinney | 
+-1 | hitlers | speech | in | munich
+-1 | millions | of | pepes
+-1 | its | good | for | regulating | body | temperature | i | prefer | capes
+-1 | cuepon | its | coopon | dammit
+-1 | never | trust | a | man | wearing | a | knit | cap | in | summer
+-1 | nah | its | gaypop
+-1 | theres | a | difference | between | white | candle | wax | and | yellow | ear | wax
+-1 | you | dont | need | to | but | a | gallon | a | day | is | good | for | you | 
+-1 | looks | like | a | bearded | lady | from | a | carnival | 
+-1 | jws | believe | in | evolution
+-1 | tucker | and | dale | vs | evil
+-1 | youd | think | the | christians | would | know | a | thing | or | two | about | turning | the | other | cheek
+-1 | go | right | ahead | 
+-1 | thats | probably | more | lactose | intolerance | and | too | much | sugar | in | their | diet |  | 
+-1 | footbaaaaaaaaaaaaaaaaalll | yee | haw | merica
+-1 | end | thread | 
+-1 | im | not | crazy | 
+-1 | im | not | crazy | 
+-1 | tryna | cut | my | potassium | thanks | for | that | no | kiwis
+-1 | 911 | jet | fuel | cant | melt | steel | beams
+-1 | i | am | a | pedophile | 
+-1 | racist | black | people | 
+-1 | i | think | im | the | best | looking | male | mlady | how | would | you | like | a | date | to | the | cyber | cafe
+-1 |  | cinco | de | mayo
+-1 | lol | i | eat | like | 200 | grams | when | cutting | at | 177 | lbs |  | 
+-1 | when | i | discovered | rletsnotmeet
+-1 | could | you | do | one | of | these | urlhere |  | and | check | out | rredditgetsdrawn
+-1 | juan |  | 1
+-1 | omg | this | is | from | the | llama | guys | vine | twaimz | i | think | 
+-1 | zehbra
+-1 | toke | much
+-1 | what | were | the | ingredients
+-1 | just | now
+-1 | it | wasnt | a | sample | size | of | one | he | had | 5 | fingers
+-1 | how | does | the | chicken | come | out | i | worry | about | raw | food
+-1 | isnt | that | just | a | gigafar
+-1 | because | of | reasons
+-1 | your | best | player | owns | the | team | and | doesnt | suit | up
+-1 | anyone | who | has | taken | care | of | small | children | or | animals | will | likely | say | yes | to | this
+-1 | ops | moms | mouth
+-1 | well | its | a | good | thing | the | only | things | hes | hurting | are | pixels | on | a | screen | what | a | stupid | post
+-1 |  | urlhere | 
+-1 | i | get | that | but | why | not | use | the | greek | words | for | brotherhood | and | sisterhood
+-1 | marvels | agents | of | shield | is | somehow | related | to | the | movies
+-1 | gud | fuk | in | da | nang | 
+-1 | worrying | about | death
+-1 | id | say | its | more | likely | that | youre | cheating | on | jen | with | her
+-1 | because | you | are | brainwashed | by | religion | 
+-1 | gtneal | on | that | line | to | going | straightthats | not | likely | to | happen | if | you | catch | my | drift | 
+-1 | because | frat | boys | like | to | take | it | up | the | ass
+-1 | itt | only | white | men
+-1 | angelina | jolie
+-1 | string | cheese | is | actually | intended | to | be | consumed | rectally | hence | the | shape | 
+-1 | long | hair |  | its | just | gross |  | even | when | its | not | penn | gillette | gross | its | still | gross | 
+-1 | if | youre | a | man | and | you | cant | grow | a | full | on | beard | stop | going | through | this | thread | now
+-1 | like | take | a | razor | to | your | scrotum | cleanly | shaven
+-1 |  |  | more | like |  |  | gt100 | of | people | exposed | to | dihydrogen | monoxide | die |  |  |  |  | 
+-1 | anyone | else | confused | as | to | why | the | first | dude | on | this | thread | is | birdman
+-1 | if | they | werent | worth | at | least | that | they | wouldnt | stay | employed
+-1 | my | sister | once | brought | my | mothers | divorce | papers | she | was | in | grade | 1
+-1 | i | thought | this | thread | was | about | regular | guy | things | 
+-1 | statistically | youll | probably | die | alone | so | this | is | just | the | start | 
+-1 | enjoy | sports
+-1 | sounds | like | something | the | dai | li | would | do
+-1 | because | were | feeding | the | poor | now | with | these | gmos | people | arent | starving | anymore | 
+-1 | have | we | i | didnt | notice
+-1 | im | asexual | and | that | man | is | fucking | hot | 
+-1 | i | logged | in | just | to | upvote | this
+-1 | you | ever | heard | of | foot | powder
+-1 | not | a | trend
+-1 | well | your | brother | isnt | anyway | jokes
+-1 | you | are | probably | are | very | unattractive | couple
+-1 | my | husband | said | henrik | lundqvist | i | googled | him | yup | hes | right | 
+-1 | channing | tatum
+-1 | ambiguous | questions | are | a | leading | cause | 
+-1 | did | you | hear | the | clock | maker | theory | from | me | i | feel | weve | had | this | discussion | before
+-1 | electric | banjo | jam | 
+-1 | facebook |  | adrians1337 |  | winnar
+-1 | i | think | it | fucking | sucks | but | it | can | be | worth | it
+-1 | if | it | wasnt | for | supernatural | id | like | him | a | lot | less | i | think | 
+-1 | yeah | well | you | are | now | breathing | manually | 
+-1 | it | may | have | a | placebo | effect | though
+-1 | thats | not | a | man | thing | though | women | do | that | too
+-1 | final | fantasy | 7 | i | loved | that | game | as | a | kid | but | the | battle | system | is | terrible
+-1 | it | is | still | safer | than | vaccines | 
+-1 | gt | godgt | historyyou | have | no | place | here
+-1 | the | money | is | in | the
+-1 | skinny | jeans
+-1 | the | smell | you | sniff | every | time | you | scratch | your | balls
+-1 | i | have | a | small | penis | 
+-1 | oh | now | you | bring | race | into | this | go | back | to | your | liberal | shelter
+-1 | nothing
+-1 | well | i | dont | like | to | blow | my | own | trumpet | however
+-1 | the | beat | my | heart | skipped |  | blue | devils | 2011 | fantastic | show
+-1 | except | for | the | crosseyes
+-1 | i | genuinely | dont | know | its | been | over | six | years | so | its | hard | to | remember | it | in | the | first | place
+-1 | my | right | ear | goes | deaf | every | 15 | minutes | and | starts | to | ring | idk
+-1 | jesus | christ | is | that | real | thats | fucking | frightening | 
+-1 | he | can | snort | coke | off | of | my | dick
+-1 |  | jayden | smith | 
+-1 |  |  | 
+-1 | mlady |  |  |  | 
+-1 | john | cleese
+-1 | damn | hes | pretty | good | looking | just | like | daddy | was | 
+-1 | itt | legbeards | legbeards | everywhere | 
+-1 | and | how | about | not | getting | drunk | and | being | responsible | for | yourself | in | the | first | place |  | 
+-1 | i | have | a | friend | who | always | describes | things | as |  | as | pussy | 
+-1 | your | weight | also | depends | a | lot | on | water | retention | its | not | all | about | calories
+-1 | triggered | shitlord | and | all | that | other | sjw | shit | that | redditors | always | say
+-1 | this | one
+-1 | wow | are | we | gonna | do | this | againnew | queuers | you | ready
+-1 | he | kind | of | looks | like | james | deen
+-1 | why | is | he | getting | downvoted | he | is | right
+-1 | yes | that | is | how | the | theme | song | goes
+-1 | v | neck | shirts | you | look | stupid | and | no | one | wants | to | see | your | patchy | chest | hair
+-1 | were | discussing | college | populations | far | less | obesity | 
+-1 | pain | and | guilt
+-1 | way | to | late | for | that
+-1 | not | just | fuck | pat | butt | fuck | pat
+-1 | i | dont | listen | to | the | enemy
+-1 | late | twenties | to | early | thirties | 
+-1 | he | said | drummers | are | always | the | ones | to | commit | suicide
+-1 | i | think | we | all | need | to | take | a | step | back | and | look | at | some | tits | now
+-1 | haha | one | is | not | born | gay | its | developed
+-1 | being | slim | is | being | healthy | being | fat | is | being | unfit | or | unhealthy
+-1 | theres | no | oc | on | 4chan | silly
+-1 | i | guess | every | generation | thinks | that | of | the | younger | ones | kids | these | days | are | entitled | whiners | tho
+-1 | vagina | shaver | at | a | sorority | house
+-1 | no | nice | try | though | its | just | a | bonecalcium | growth | 
+-1 | we | need | to | spread | that | around | as | a | serious | thing | just | to | confuse | fox | news
+-1 | on | that | note | happy | cake | day
+-1 | well | thats | enough | oxygen | for | me | today | gotta | moderateis | joke | 
+-1 | what | the | fuck | do | you | think | allies | are | for | 
+-1 | nsfw |  | urlhere | 
+-1 | all | i | want | for | christmas | is | you |  | my | chemical | romance
+-1 | this | is | so | clich
+-1 | tolkien | wrote | like | this
+-1 | put | some | underwear | on | my | head | stick | two | pencils | up | my | nose | and | say | wibble | wibble
+-1 | pole | dancing
+-1 | its | certainly | hard | but | not | that | unusual | at | least | for | a | guy | 
+-1 | easy | ryan | gosling
+-1 | that | youtube | mixes | thing
+-1 | now | i | have | some | fruit | covered | in | sludge | what | next | 
+-1 | middle | finger | up
+-1 | my | reddit | gold | subscription | said | no | one | ever
+-1 | absolutely | considering | there | is | no | real | need | for | welfare | on | all | levels
+-1 | but | this | is | just | advice
+-1 | i | am | actually | funny | or | perhaps | i | can | play | league | of | legends | for | a | really | long | time
+-1 | came | here | to | say | that
+-1 | bookmark
+-1 | i | have | a | test | 
+-1 | i | dont | even | have | spiders
+-1 | it | was | more | riley | freeman | than | ollie | but | that | works | too
+-1 | it | cant | be | straight | if | its | on | a | globe
+-1 | nah | you | can | get | better | with | bad | practice | too
+-1 | ftfy | anywhere | in | europr
+-1 |  | urlhere | 
+-1 | i | dont | see | the | difference
+-1 | talking | about | carsi | just | dont | get | how | some | people | can | keep | babbling | about | cars | all | year | long
+-1 | im | above | average | on | my | own | when | i | pop | that | boner | im | like | 8 | inches
+-1 | so | having | a | proper | social | life | is | worth | wasting | tens | of | thousands | of | dollars
+-1 | its | not | a | synonym | by | definition | its | just | being | misused
+-1 | new | jersey | would | be | the | one | everyone | likes | 
+-1 | but | if | he | can | do | anything | then | itd | be | impossible | to | create | an | object | too | big | for | him | to | lift
+-1 | but | old | hondas | are | cool | unless | theyre | riced | out
+-1 | sex | with | your | mom
+-1 | can | you | read | your | article | that | you | posted | which | specific | says | the | opposite
+-1 | ask | a | cop | time | 
+-1 | hot | white | men | amiright | 
+-1 | getting | gold | try | 374
+-1 | or | sinead | oconnor | started | taking | trt | 
+-1 | anything | non | stem
+-1 | it | really | is | funny | how | that | works
+-1 | jimmy | hoffa
+-1 | die | op
+-1 | as | a | dalek | exterminate | exterminate
+-1 | absolutely | nothing |  | the | existentialism | will | drive | everyone | insane
+-1 | remindme | 12 | hours
+-1 | when | do | i | get | a | raise
+-1 | this | happens | to | me |  | it | started | after | i | took | a | fake | rc | lsd | about | 2 | years | ago
+-1 | just | ask | the | people | of | rbuildapc | or | rpcmasterrace | to | build | one | for | you
+-1 | thrill | me
+-1 | me | i | dont | really | know | why | but | i | dont | care | anymore
+-1 | so | metal
+-1 | rnocontext
+-1 | is | there | a | sub | for | youtube | comments
+-1 | important | where | im | fromyou | fucking | idiot | read | the | full | comment | before | making | a | dick | comment
+-1 |  | pshhhh | you | need | to | get | out | there | and | live | man
+-1 | i | skip | down | my | hallway | like | a | fucking | majestic | fairy
+-1 | playing | a | game | of | operation | with | parkinsons | 
+-1 | groceries | and | im | hired | have | always | been | a | staple | for | me
+-1 | peeing | in | a | straight | stream | first | thing | in | the | morning
+-1 | im | female | but | shemar | moore |  | im | not | a | huge | fan | of | his | but | hes | flatout | gorgeous
+-1 | if | that | were | true | my | left | arm | and | junk | would | be | freakin | tiny
+-1 | get | a | lot | of | walking | dead | fans | together | they | know | what | the | fuck | theyre | doing | probably
+-1 | gtcgiyou | wouldnt | download | a | man | 
+-1 | every | fucking | day | with | this | question | 
+-1 | military | is | not | a | job | title | 
+-1 | go | away
+-1 | exctacy |  |  | 
+-1 | ironic
+-1 | and | half | life | 3
+-1 |  | gvgtgv
+-1 | ok | specifically | which | of | those | 3 | points | is | flawedbecause | thats | my | original | argument
+-1 | made | me | think | of | tossing | a | footbag | around |  | man |  | i | miss | hack | sackin | back | at | school | with | the | bros
+-1 | darude | sandstorm
+-1 | 5 | i | could | really | use | some | dinosaur | shaped | sponges | 
+-1 | wait | how | many | presents | did | she | get
+-1 | once | upon | a | time | there | was | a | barnacle | that | was | so | ugly | everyone | died | the | end
+-1 | mew | is | 151 | and | not | considered | part | of | the | original | she | was | an | expansion
+-1 | those | balls | are | smooth | as | eggs
+-1 | reading | the | same | posts | every | few | days | like | this | one
+-1 | dont | worry | fast | and | the | furious | is | very | unlikeable | 
+-1 | starburst
+-1 | since | loki | you | mean | better | than | loki
+-1 | dammit |  | cotton | promised | me | it | would | pay | off
+-1 | a | plastic | penis | with | a | higher | orgasm | rate | than | the | actual | human | penis |  | much | higher | if | it | vibrates
+-1 | robocraft
+-1 | you | just | described | the | inside | of | a | black | hole
+-1 | have | you | been | kissed | twice | is | the | next | question
+-1 | im | well | aware | of | what | people | are | saying | and | its | pretty | fucking | sick
+-1 | i | feel | like | this | urlhere |  | is | relevant
+-1 | fundamentalist | christians | they | say | im | going | to | hell | so | im | taking | them | with | me
+-1 | a | saw | big | black | garbage | bags | a | shovel | a | tarp | and | duct | tape
+-1 | frat | boy |  | chav
+-1 | lots | of | extremely | religious | christians | telling | me | that | i | was | wrong
+-1 | dota | 2
+-1 | you | have | my | attention
+-1 | your | right | about | that | theres | no | way | to | use | the | word | good | with | politics | 
+-1 | no | its | not | 
+-1 | a | mcdonalds | 
+-1 | you | could | try | driving | the | speed | limit
+-1 | not | even | remotely | possible | 
+-1 | thats | racist | how | dare | you | assume | white | males | are | sheltered
+-1 | you | know | whats | cheaper | than | a | sodastream | not | drinking | soda
+-1 | no | family | and | a | good | job | lucky
+-1 | jesus | christ | you | win
+-1 | and | tommy | wiseau
+-1 | the | pull | only | lasts | for | onemillionth | of | a | second
+-1 | yeah | i | liked | tossing | soda | cans | at | the | people | talking
+-1 | the | point | isnt | elo | the | point | is | there | are | single | decks | that | would | take | me | years | to | build
+-1 | oh | that | makes | more | sense
+-1 | modeling | cement | 
+-1 | i | missed | the | video | because | i | started | thinking | about | fucking | jennifer | garner | 
+-1 | this | makes | sense | interesting
+-1 | black | area | dont | be | white | racism | got | it | 
+-1 | jason | statham | being | jason | statham | because | he | is | mother | fucking | jason | statham
+-1 | found | the | small | penis | guy
+-1 | patrice | is | a | bully | in | this | and | did | not | prove | her | wrong | here | 
+-1 | pussy
+-1 | disagree | how | many | holes | does | a | donut | have | 1 | its | the | same | concept | here
+-1 | so | when | the | fuck | do | i | start
+-1 | wtf | we | are | not | women
+-1 | what | is | the | policy | on | sexual | harassment |  | what | are | the | penalties
+-1 | edit | colon | thanks | for | the | gold
+-1 | dont | hurt | me
+-1 | we | fear | no | valley | for | we | are | the | shadow
+-1 | doesnt | matter | imo | most | police | shouldnt | even | be | allowed | to | carry | firearms
+-1 | wrong | song
+-1 | all | of | them |  | because | i | love | movies | so | much | i | dont | want | them | to | end
+-1 | my | dad | is | gay | and | he | beats | me
+-1 | tetris
+-1 | a | space | diner
+-1 | battle | royale
+-1 | vaccines | cause | autism
+-1 | james | bond | movie | set | 
+-1 | going | to | school | to | be | an | engineer
+-1 | thank | god | im | pasty | white | or | i | surely | would | be | a | slut | 
+-1 | i | hate | to | say | it | but | im | like | 100 | sure | this | is | from | a | kevin | smith | movie
+-1 | if | you | dont | have | the | guts | to | do | it | yourself | you | dont | really | want | it
+-1 | im | so | glad |  | my | parents | are | divorced | wouldve | been | hell |  | growing | up | with | both | of | them | 
+-1 | sorry | for | your | loss
+-1 | hey | good | for | you | thats | almost | human | theres | hope | for | you | yet | id | say
+-1 | this | is | getting | into | stalking | territory | now | if | you | wanna | fuck | me | come | over | and | do | it | already | 
+-1 | hes | just | trying | to | fuck | some | minds | dont | be | a | cockblock | bruh
+-1 | twelve | twelve | tacos | every | one | of | which | was | delicious | in | case | you | were | wondering
+-1 | beerwater | sugar | hops | yeast
+-1 | i | think | they | sound | like | a | japanese | person
+-1 | japanese | vocaloid | do | yourself | a | favor | and | look | her | up
+-1 | because | its | mainstream | 
+-1 | yeah |  | i | said | thatedit |  | a | joke | about | stupid | southerners | go | over | your | head
+-1 | ewan | mcgregor |  | that | guy | is | dashing | damnit
+-1 | i | can | do | that | thing | where | you | curl | your | tongue | into | a | clover
+-1 | why | complain
+-1 | mickey | mouse | back | when | he | was | a | badass | magician | 
+-1 | im | going | to | hell | for | laughing | at | this
+-1 | bitches | with | no | titties | always | tryna | flirt | calm | down | young | man
+-1 | i | just | do | me | urlhere | 
+-1 | itt | incest | jokes
+-1 | league | of | legendsjk | ive | spent | atleast | 300 | on | skinsso | far
+-1 | it | would | devalue | money | and | inflation | would | adjust | it
+-1 | golden | eye | was | filmed | as | joined | forces | of | us | and | uk | 
+-1 |  | urlhere | outorgnewsitem12845anonymouskarlroveand2012electionfix
+-1 | they | look | like | it | what | kid | of | question | is | this
+-1 | holy | fuck | someone | other | than | me | plays | there | is | a | god
+-1 | dropping | 1500 | to | help | my | ex | pay | for | rehab | and | then | getting | dumped | by | her | while | shes | in | it |  | 
+-1 | yeah | because | that | was | totally | off | the | cuff | and | not | staged | 
+-1 | maggie | grace | gets | naked | thats | all | the | motivation | anyone | should | need
+-1 | well | its | all | bullshit | 
+-1 | damn | you | got | to | hate | those | damn | naughty | loch | ness | monsters |  |  |  | 
+-1 | exactly | this | isnt | 2006 | halo | has | fallen | a | good | bit
+-1 | boo | hoo | its | just | for | laughs | man | 
+-1 | the | great | wall | of | china | is | only | 30ft | long | at | its | widest | that | is | invisible
+-1 | why | not | post | this | in | a | subreddit | related | to | runescape
+-1 | i | have | not | printed | something | in | almost | 2 | years | fuck | printers | 
+-1 | that | has | more | to | do | with | interest | than | credit | 
+-1 | dorene | 
+-1 | tobias
+-1 | gt | the | answer | should | be | the | great | wall | of | chinano | it | shouldnt
+-1 | da | weed
+-1 | she | shouldve | talked | louder
+-1 | even | op | himself
+-1 | there | are | no | chicks | with | dicks | only | dudes | with | tits
+-1 | lol | not | if | you | go | through | my | post | history
+-1 | send | pms
+-1 | i | know | this | sounds | counterintuitive | but | the | interview | is | not | the | place | for | that | 
+-1 | it | changes | by | the | minute | they | never | disappoint
+-1 | jincos
+-1 | according | to | fatasses | you | can | gain | weight | by | not | eating | 
+-1 | space | travel | to | tarraformed | planets
+-1 | yes | its | been | posted | about | 10000 | times | on | reddit
+-1 | not | sure | if | you | are | kidding | or | dont | realize | that | is | how | the | color | of | light | bulbs | is | rated
+-1 | meryl | streep | gorgeous | 40 | years | ago | gorgeous | now
+-1 | oh | what | cuz | hes | black | too
+-1 | shitting | 
+-1 | im | sending | you | a | hug | lmao
+-1 | yes | hiragana | and | katagana | are | both | exclusively | japanese | and | i | can | read | it
+-1 | tldr |  | for | dads | 
+-1 | but | without | knowledge | of | kanji | you | basically | have | a | picture | book | level | mastery | of | the | language | 
+-1 | ahh | yeah | you | bad | alright
+-1 | paper | mario | ttyd
+-1 | im | black
+-1 | context | trying | to | revive | your | love | life | with | your | girlfriend
+-1 | i | would | just | chop | them | up | with | my | chainsaw
+-1 | i | just | keep | hoping | that | life | will | continue | here
+-1 | i | repost | then | i | repost | and | repost | then | repost | while | i | repost | the | repost | while | reposting
+-1 | everyone | on | reddit | is | s | bot | except | you
+-1 | goodpostingeat | more | pineapple | always | leave | them | with | a | good | taste | in | their | mouth | i | say
+-1 | youre | not | very | good | at | telling | stories
+-1 | why | make | learning | something | irrelevant | to | your | life | a | requirement | 
+-1 | im | rather | fond | of | tumblrinaction | because | its | remarkably | good | fun | to | make | fun | of | sjws
+-1 | flossing | your | back | teeth
+-1 | the | jizyah | urlhere |  | infidel | 
+-1 | this | is | not | a | stupid | question | by | any | stretch
+-1 | yours | is | one | of | the | few | jobs | where | this | is | a | required | skill | for | most | others | it | doesnt | matter | 
+-1 | this | was | obiviously | one | of | those | fuck | it | well | do | it | live | moments
+-1 | yes | here | it | is
+-1 | youre | fucked | in | the | head | mate
+-1 | and | the | bees | are | angry
+-1 | fuck | baseball
+-1 | haaaaave | you | heard | of | netflix
+-1 | ahmy | first | tf | of | 2015
+-1 | this | girl | gave | me | a | blowjob | for | helping | her | write | a | resume |  | she | posted | an | ad | requesting | this
+-1 | yeah | but | what | if | you | wanted | it | but | waited | for | it | to | be | on | sale | who | doesnt | want | a | machete
+-1 | pretty | hard | to | watch | out | for | cats | when | being | chased | by | the | mob
+-1 | league | of | legends
+-1 | we | will | need | photo | confirmation | of | all | of | this | by | the | way
+-1 | dumb | and | dumber
+-1 | catfishjelly
+-1 | ants | and | anteaters | cannibalism | would | be | rampant | 
+-1 | nobody | is | perfect
+-1 | a | virgin | atlantic | employee
+-1 | clever
+-1 | thanks | between | this | and | correcting | people | calling | fragmentation | shrapnel | i | keep | myself | busy
+-1 | guacamoleavocadosrirachasaltpepperlime | juice
+-1 | coodies
+-1 | paul | blart | mall | cop | full | disclosure | mine | was | a | shart
+-1 | wowvery | humorousnice | original | joke | fellow | memer
+-1 | but | he | doesnt | sell | piss | and | no | one | is | saying | piss | can | kill | you
+-1 | helga | its | basically | what | my | familys | calls | a | really | large | woman | fat | or | not | 
+-1 | this | is | actually | pretty | good
+-1 | cell | phones | 
+-1 | rhumansfuckingairplanes
+-1 | when | black | people | started | buying | them
+-1 | im | just | interested | to | see | how | people | would | go | about | it
+-1 | or | abandon | hereither | way | it | was | amazing | 
+-1 | target | employees | are | instructed | to | politely | refuse
+-1 | and | also | catapulted | him | from | popular | to | superstar
+-1 | this | is | how | my | ex | never | pays | for | netflix | 
+-1 | doctor | helicopter | pilot | electrician | gunsmith | farmer | mechanic
+-1 | fire | we | know | u | just | wanted | to | kill | ur | friend
+-1 | are | loans | seriously | a | problem | or | is | reddit | just | circlejerking | cause | i | havent | had | any | trouble | 
+-1 | right | there | second | linetotally | didnt | have | theright | syllable | count
+-1 | lol | no | like | its | literally | never | happened | to | anyone | i | know | 
+-1 | nah | they | just | triple | bolded | them | idk | why
+-1 | those | are | the | nodes | that | seriously | changed | a | players | stats | ie | 30 | dmg | res | 30 | spell | evasion
+-1 | kids | let | me | tell | you | the | story | of | how | i | met | your | mother
+-1 | most | of | it | occurs | inside | so | not | really
+-1 | vasectomy |  |  | 
+-1 | their
+-1 | both | dark | souls | games | their | art | style | combined | with | epic | lore | cant | be | beat
+-1 | please | answer | me | this | when | does | the | narwal | bacon
+-1 | bc | theyre | soft | and | it | feels | nice | on | the | ol | twig | and | berries | 
+-1 | thats | what | i | do | on | her | birthday
+-1 | splurtbooty | burglarbiggie | smallsmia | khalifadoctor | mandingotitaniuselementor
+-1 | an | hour | 
+-1 | it | became | a | sad | staple | of | late | 90s | standup | comedy
+-1 | hot | womenhot | gorgeous | icelandic | womenyou | can | bask | in | their | glow | and | the | ice | simply | melts
+-1 | want | to | get | drunk
+-1 | you | would | have | to | waste | my | time | like | now
+-1 | it | might | kill | the | tin | man
+-1 | if | i | wanted | a | comeback | i | would | have | wiped | it | off | your | motherfatherspousesiblings | chin
+-1 | and | kate | upton | in | their | ads | damn | i | love | her
+-1 | 5 | days
+-1 | your | mothers | ass
+-1 | holy | guacashit
+-1 | keg | on | legs | banged | 100 | dudes | freshman | year | of | college | she | had | a | freshman | 40 | as | well
+-1 | youd | make | a | higher | payment | like | 25
+-1 | as | i | said | most | nonryanair | airlines | will | give | you | drinks | for | free
+-1 | shove | the | doormat | under | the | door
+-1 | i | got | banned | from | reddit | for | fighting | with | another | redditor
+-1 | ops | mom
+-1 | wait | how | does | a | splinter | lead | to | your | doctor | opening | your | lungs
+-1 | yelled | out | shit | in | polish | during | butt | stuff | 
+-1 | earth
+-1 | if | someones | trolling | or | just | being | unnecessarily | cruel | 
+-1 | uh | the | sun | duh
+-1 | every | pizza | that | is | not | pizza | margharita
+-1 | curry | i | love | curry | but | lets | just | say | it | makes | for | endless | trips | to | the | bathroom | 
+-1 | waldorf | salad | seriously | who | the | hell | enjoys | that | crap
+-1 | or | just | live | in | a | real | country | where | people | dont | own | several | firearms | and | healthcare | is | free
+-1 | real | games | that | just | throw | out | dlc | anyway
+-1 | its | physically | impossible | for | consumers | to | read | all | the | fine | print | of | everything | they | buy
+-1 | its | this | attitude | that | wont | get | you | 400 | off | on | your | next | purchase
+-1 | boo | hoo | cry | me | a | river
+-1 | at | least | you | could | have | gave | the | guy | a | hand
+-1 | no | bi | simply | means | two | hence | the | ambiguity
+-1 | jock | jams | a | knobbly | purple | dildo | and | a | fistfull | of | trucker | speed | 
+-1 | thats | your | fault
+-1 | eggs | ketchup | tomatoes | caviar | borscht | and | liver | sausage | all | make | me | gag
+-1 | i | already | said | that | its | for | school | but | yeah | at | my | school | they | expect | a | lot | out | of | presentations
+-1 | ssad | is | what | we | got | at | first | until | seoul | wasnt | a | part | of | it
+-1 | i | live | in | the | usa | and | am | mostly | italian | greek | and | irish | with | a | tiny | bit | german
+-1 | you | have | a | mom | wanna | swap
+-1 | an | intense | feeling | of | deep | affection | 
+-1 | sometimes | me | and | my | friend | will | look | at | someone | and | say | hes | definitely | a | eugene | 
+-1 | but | this | is | a | super | cereal | issue
+-1 | olives | and | vinegar | everything | is | either | made | of | olives | or | coated | in | vinegar
+-1 | jennifer |  | jennifer | was | a | bitch | 
+-1 | fart | loudly
+-1 | you | dont | remember | was | i | not | good | enough
+-1 | im | pretty | sure | i | left | it | in | the | toilets | at | target
+-1 | i | fucked | a | girl
+-1 | wait | til | you | need | a | new | drum
+-1 | i | like | calling | certain | people | fucking | fuckboys
+-1 | thats | racist
+-1 | so | essentially | it | has | value | because | its | not | real | writing
+-1 | how | i | met | your | motherone | day
+-1 | please | proceed | governor | urlhere | 2xe0by86et102
+-1 | keith
+-1 | what | does | control | f | do
+-1 | people | dont | think | i | nig | like | i | dobut | i | do
+-1 | they | never | will | be | either | but | everyone | acts | like | they | are | p
+-1 | who | the | fuck | finds | this | shit | funny | 
+-1 | pretty | sure | he | didnt | even | bother | to | look | it | up
+-1 | crappy | copper
+-1 | out | of | twine | and | sticks | and | mud
+-1 | did | not | see | it | coming | and | im | wheezing | with | laughter | at | my | own | gullibility
+-1 | read
+-1 | not | if | youre | a | halo | or | red | dead | redemption | fan
+-1 | with | the | bottle | of | wine
+-1 | wrong
+-1 | gt | pretty | much | all | modern | medical | sciencestruth
+-1 | murder | self | defense
+-1 | midnight | city | by | m83 | i | just | have | to | turn | it | up
+-1 | my | brother | did | this | in | 2007 | and | then | they | stopped | him | 
+-1 | my | dad | moved | out | on | me | not | once | not | 12 | but | a | dozen | times | he | bullied | me | so | hard | that | he | moved
+-1 | i | really | like | the | male | name | nicholas | not | so | much | the | shortened | form | though
+-1 | no | the | legal | term | for | this | is | an | oligopoly
+-1 | and | thats | why | nothing | is | legal | in | california
+-1 | ernesto | agapito | garces | con | ya | de | abelar
+-1 | shut | up | im | drunk | and | i | didnt | add | those | punctuations | blame | my | phone
+-1 | theres | this | one | guy | called | rocketkielbasa | i | hate | that | guy
+-1 | pc | gaming | is | the | only | answer
+-1 | stoners
+-1 | sloan | is | pretty | bad
+-1 | justy | bustypeedlelaweedlescrub | rag
+-1 | came | here | to | say | the | exact | same | thing
+-1 | this | is | standard | in | australia | as | a | north | american | i | found | it | extremely | violating | 
+-1 | no | it | advocates | laziness | we | didnt | want | to | stand | up
+-1 | you | can | if | you | buy | a | tesla | 
+-1 | creationism | duh | 
+-1 | honestly | you | have | to | be | stoic
+-1 | chili | dog | urban | dictionary | you | disgust | and | amaze | me
+-1 | shit | just | got | real
+-1 | jet | fuel
+-1 | oh | do | stop | reading | its | typical | of | human | nature | to | negate | what | they | do | not | want | to | hear
+-1 | hot | dogs | are | ready | to | eat | out | of | the | package | you | dont | even | need | to | heat | them | up
+-1 | get | better | eyes
+-1 | this | isnt | funny | and | youre | not | funny | 
+-1 | i | got | a | game | called | mario | party | as | a | kidmy | palms | still | hurt | at | the | middle | sometimes
+-1 | fuck | the | bechtel | test | 
+-1 | shitpost
+-1 |  | urlhere | 
+-1 | hotels | will | almost | always | grant | you | the | triplea | rate | if | you | book | the | room | at | night | and | in | person
+-1 | watermelon | i | cant | believe | there | is | anybody | that | hates | watermelon
+-1 | regina | 
+-1 | because | we | actually | advanced | and | became | civilized |  | theyre | still | living | in | the | dark | ages
+-1 | i | flat | lined | when | i | was | five | then | brought | back | ever | since | then | ive | been | able | to | feel | spirits
+-1 | you | just | defined | portland | oregon | lol
+-1 | because | reproducing | with | relatives | is | bad | for | the | gene | pool | 
+-1 | that | guy | 2am | me | believes | tomorrow | morning | me | will | be
+-1 | turkey | rustico | panini | from | starbucks | no | idea | why | they | ever | got | rid | of | this
+-1 | kirk | 
+-1 | you
+-1 | me | too |  | i | can | imagine | the | big | payout | from | the | lawsuit
+-1 | is | that | ops | moms | name
+-1 | classicbut | classless
+-1 | i | would | have | trouble | carrying | around | the | later | though
+-1 | veil | did | you | make | her | wear | that | before | or | after | you | finished | beating | her
+-1 | bananas | mushrooms | tomatoes | cilantro | and | parsley
+-1 | air | sex | force | one
+-1 | i | know | who | tamora | pierce | is | thanks
+-1 | as | a | former | employee | fuck | bed | bath | and | beyond | and | fuck | your | fake | towels
+-1 | gt | i | shoved | my | foot | straight | up | the | mans | assholeare | you | somewhat | homosexual
+-1 | i | should | buy | a | second | key | for | my | 2005 | grand | cherokee
+-1 | the | english | language | not | pidgin | english
+-1 | stink | pipe
+-1 | you | took | me | by | the | hand
+-1 |  | urlhere | 
+-1 | frank | underwood | 
+-1 | not | this | one | try | again
+-1 | a | klondike | bar
+-1 | nickleback
+-1 | and | claire | its | a | fat | girl | nameedit | its | a | quote | from | breakfast | club | people | 
+-1 | and | dont | ever | cheap | out | on | a | psu | 
+-1 | black | powder | baby | 
+-1 | the | same | people | who | put | it | on | pizza
+-1 | tater | salad
+-1 | which | is | great | and | im | happy | for | you | but | not | what | were | talking | about
+-1 | to | make | herself | feel | better | about | her | little | insecurities | 
+-1 | while | bitcoin | is | a | better | money | it | will | never | solve | the | problems | created | by | money
+-1 | coooooorrraaalll
+-1 | you | missed | out | on | a | chance | to | say | room | of | a | million | butts |  | go | to | your | corner | 
+-1 | preferably | while | leaving | the | house | 
+-1 | just | to | see | him | die
+-1 | i | loved | pitch | black | 2
+-1 | burned
+-1 | a | klondike | bar
+-1 | a | klondike | bar
+-1 | if | i | was | a | robot | my | head | would | shake | and | then | explode | 
+-1 | even | if | you | were | out | of | it | and | intended | to | buy | it | later
+-1 | and | thats | all | i | have | to | say | on | the | topic | period
+-1 | salmon
+-1 | danke | herr | skeltal
+-1 | gog | too | drunktogoogle | 
+-1 | a | pub | in | the | klondike | region
+-1 | a | klondike | bar | or | two
+-1 | michael | jackson | is | this | you | in | heaven
+-1 | a | klondike | bar
+-1 | for | the | same | reason | we | piss | and | shit
+-1 | keith | though
+-1 | op | i | let | your | mother | use | her | pinky | if | you | know | what | i | meanin | the | name | of | love | of | course | 
+-1 | i | know | but | that | expression | lets | people | know | im | not | in | the | middle | of | storm | 
+-1 | wow | youre | killing | me | dude
+-1 | err | yes | klondike | bar | is | what | i | meant
+-1 | fresh | garlic | ground | turmeric | apple | cider | vinegar | fresh | ginger | coconut | oil | 
+-1 | plasma | pistoled | your | nostalgia | is | weak | 
+-1 | no | answer | is | correct | aside | from | batman
+-1 | seems | real | the | link | shows | you | do | get | arrested | for | it | even | in | canada
+-1 | you | dont | have | to | do | a | 30 | year | mortgage | in | the | first | place | unless | youre | buying | too | much | house
+-1 | i | wasnt | after | the | edit | my | first | response | was | far | less | nice | 
+-1 | klondike | bar
+-1 | gone | in | 6 | seconds
+-1 | google | was | laughing | at | you | lol
+-1 | building | a | gaming | pc
+-1 | keith | 
+-1 | theres | clearly | something | very | wrong | with | my | pc | then |  | thats | the | total | opposite | of | my | experience
+-1 | i | could | see | spankin | it | outside | in | the | rain | as | a | rush | idk | shit | maybe | one | day | ill | give | it | a | shot | 
+-1 | you | may | as | well | have | tried | to | ask | him | out | then | and | there
+-1 | prove | it | 
+-1 | roasted
+-1 | excuse | me | i | wasnt | pointing | it | to | you | just | wanted | to | enforce | your | question | 
+-1 | it | was | yours | im | sorry
+-1 | a | klondike | bar
+-1 | no | the | morag | tong
+-1 | a | friend | of | mine | had | an | unusual | name | in | a | role | play | since | we | found | out | he | is | known | as | eagle | paw
+-1 | your | meals | today | are | vegan
+-1 | we | did | it | reddit
+-1 | zombie
+-1 | allahu | akbar | tick | tick | tick
+-1 | keith | 
+-1 | i | see | what | you | did | there
+-1 | yes | i | do | 
+-1 | exactly |  | when | will | that | get | better | for | a | newbie
+-1 | smartass
+-1 | if | you | check | a | bag | during | any | flight | then | youre | doing | it | wrong
+-1 | looks | like | someone | hit | a | nerve | 
+-1 | why | is | it | weird
+-1 | not | here | so | not | awesome |  | what | else | you | got
+-1 | ive | got | some | balls | you | can | play | with
+-1 | thats | imaginative
+-1 | controlling | for | one | of | those | things | does | not | effect | the | other
+-1 | klondike | bar | 
+-1 | gtsquare | full | of | food | and | cold | dead | on | the | inside | 
+-1 | coughglobal | elitecough
+-1 | yes | i | remember | that | fad | seems | totally | crazy | now | but | it | was | so | popular | at | the | time
+-1 | every | friday |  | its | nice | getting | paid | weekly
+-1 | to | rid | the | world | of | justin | bieber
+-1 | rfearme
+-1 | reallylame
+-1 | rmeirl | is | better
+-1 | crushed | glass
+-1 | i | think | youre | broken | then
+-1 | google
+-1 | did | this | in | 7th | grade | teacher | was | not | impressed | 
+-1 | ahhh | now | i | see | the | reason | for | a | short | temper | and | hurt | feelings | 
+-1 | a | klondike | bar
+-1 | klondike | bar
+-1 | buy | them
+-1 | im | under | your | bednow
+-1 | like | like | like | like | like | like | like | like
+-1 | 35 | klondike | bar | from | the | palaeolithic | era | 
+-1 | bernie | sanders | hes | too | good | to | be | real
+-1 | i | was | always | more | of | a | drumstick | guy
+-1 | rstarwarsrstarwars
+-1 | it | would | have | been | funny |  | and | he | obviously | would | have | used | it |  | anyway | if | he | wanted | to
+-1 | am | i | missing | something | here
+-1 | thank | you | for | putting | the | tldr | at | the | top | still | read | it | but | you | know | fine | gentleman | manners
+-1 | nothing
+-1 | just | shake | it | off
+-1 | reddit | gold
+-1 | a | klondike | bar | 
+-1 | i | dont | think | the | second | abrasive | strip | is | redundant |  | they | wear | out | too | easily
+-1 | the | next | expansion | pack | for | cards | against | humanityhey | look | a | nonklondike | bar | answer
+-1 | say | like | one | more | time | motherfucker
+-1 | i | have | a | push | to | start | car | and | it | had | the | physical | key | you | mentioned | as | a | backup
+-1 | a | klondike | bar | 
+-1 | klondike | made | entirely | out | of | bars
+-1 | about | tree | fiddy | 
+-1 | ian | watkins |  |  |  |  | haha | just | kidding | i | hate | him | too
+-1 | keith
+-1 | i | know | you | are | but | what | am | i | stick | yer | dick | in | doot | doot | pie | and | floss
+-1 | gtbow | chicka | wow | wowthis | is | the | internet | you | can | say | having | sex | or | fuck
+-1 | well | hes | got | my | vote | then
+-1 | to | have | my | student | loans | paid | off | 
+-1 | something | something | klondike | bar | 
+-1 | not | really | considering | someone | broke | into | his | house | with | an | axe
+-1 | there | is | no | situation | where | that | would | be | appropriate
+-1 | amsterdam | for | all | the | obvious | reasons | 
+-1 | paul | blart | eating | a | klondike | bar
+-1 | kerud | it | means | when | you | are | extremely | comfortable
+-1 | paper | cut | on | your | frenulum
+-1 | i | read | beat | it | shitpants | in | bruce | campbells | voice
+-1 | would | make | a | good | movie | though
+-1 | hypnogogic | hallucinations | are | pretty | weird | if | you | dont | know | theyre | a | thing
+-1 | yep | thought | the | same | thing
+-1 | this | reply | is | about | me | not | caring | not | about | someone | else | not | caring | does | that | count | 
+-1 | insane | clown | possebring | on | the | hate
+-1 | whoever | made | that | what | does | the | fox | say | song
+-1 | just | here | to | get | my | gold | thanks | stranger | etc
+-1 | yeah | but | i | wouldnt | i | couldnt | give | the | loosest | shit | about | their | families | feelinvs
+-1 | ron | swanson
+-1 | circlejerk | hardi | see | what | you | did | there | uwrinklestiltskin
+-1 | am | i | the | only | one | who | read | whos | your | daddy | with | barney | stinsons | voice | p
+-1 | your | mother
+-1 | paul | bl | no | 
+-1 | a | klondike | bar | 
+-1 | medical | marijuana | no | shwag | 
+-1 | my | bad | ethnic | slur
+-1 | wait | is | candlejack
+-1 | you | clearly | arent | as | proficient | at | it | as | i | am
+-1 | your | mom
+-1 | my | 3rd | grade | teach | told | the | class | that | winston | churchill | was | potus | durring | wwii |  | 
+-1 | yeah | i | see | a | lot | of | pedo | lovers | around | here | kinda | susses | me | out
+-1 | how | are | they | thugs
+-1 | deep
+-1 | this | is | definitely | one | of | the | wittier | comments | ive | seen | in | a | while
+-1 | how | has | the | boss | from | saints | row | not | come | up | yet
+-1 | jet | fuel | and | dank | memes
+-1 | a | klondike | bar
+-1 | rdedjokes
+-1 | foo | fighters
+-1 | because | thats | what | we | learned | growing | up | 
+-1 | youre | seriously | going | to | block | them | seriously | wow | man
+-1 | jack | bauer | my | only | concern | is | that | he | would | be | overqualified | 
+-1 | a | klondike | bar
+-1 | wow | sorry | but | im | glad | i | dont | live | in | the | uk
+-1 | steam | sales | humble | bundle | greenmangames | and | gog | friend | very | possible
+-1 | no | he | meant | he | beats | it | to | people | who | shit | their | pants
+-1 | parts | of | an | oil | drilling | rig
+-1 | you | are | not | cool | though | 
+-1 |  | you | made | a | woman | cry | wow | youre | a | monster
+-1 | cooler | than | you | 
+-1 | rubbish | in | the | papers | et | al | cadreyou | sound | like | my | grandpa | 
+-1 | a | klondike | bar
+-1 | my | favorite | metallica | albums | also | love | sampm | any | band | can | only | be | improved | with | a | symphony
+-1 | emulation | presumably |  | you | dont | need | to | feel | or | understand | something | to | successfully | mimic | it
+-1 | crazy | how | nature | do | dat
+-1 | im | american | and | i | drink | about | 2 | cups | every | day | i | love | tea | despite | not | being | british | 
+-1 | dammit | theyve | joined | the | kult | of | speed | 
+-1 | klondike | bar
+-1 | their | shit | is | garbage | now | downhill | since | mothers | milk
+-1 | except | the | ukip | policies | were | generally | alright | they | proposed | some | valid | things
+-1 | justifying | racism | ladies | and | gents
+-1 | the |  | infamy | sophistication | of | the | scam
+-1 | am | with | you
+-1 | rthalassophobia
+-1 | there | you | go | buddy | that | is | exactly | why | your | argument | is | stupid | 
+-1 | what | about | it |  | the | beer | industry | is | almost | entirely | controlled | by | big | business
+-1 | is | that | 10 | american | points | or | canadian | points
+-1 | those | guys | arent | even | relevant | anymore | i | dont | even | understand | why | the | hell | they | still | bother
+-1 | and | then | you | wouldnt | be | here | to | post | about | it
+-1 | your | mom
+-1 | unoriginal | too
+-1 | stay | away | from | them
+-1 | oh | shut | the | fuck | up | and | go | back | on | your | meds
+-1 | a | gay | man | with | pointy | ears | and | winged | feet | swim | by | my | porthole | 
+-1 | thats | the | beatles
+-1 | well | some | people | on | reddit | are | intelligent | and | could | help | me | out
+-1 | i | fly | a | bomber | i | kill | people | for | a | paycheck | 
+-1 | were | the | popular | kids | in | a | 80s | movie | we | are | so | above | you | we | dont | even | care | how | much | were | hated
+-1 | well | that | escalated | quickly
+-1 | also | like | to | cheat | in | csgo
+-1 | its | 40f | right | now | here | in | fargo
+-1 | so | basically | were | like | drew | from | wilfred
+-1 | gf | is | filipino | and | will | sometimes | talk | about | how | beautiful | white | people | are | haha
+-1 | ron | swanson | because
+-1 | linkin | park | the | neu | age | sound | they | got | going | sounds | awful
+-1 | i | just | thought | seeing | as | how | their | lives | could | have | been | in | danger | itd | be | taken | more | seriously
+-1 | he | said | skilp
+-1 | youre | from | a | family | of | them | you | arent | one | stop | talking | about | what | you | dont | understand | 
+-1 | george | washington | 
+-1 | fat | people | and | cheese | burgersfrom | an | american | 
+-1 | your | in | well | start | by | taking | lots | of | drugs | time | traveling | will | be | awesome | 
+-1 | german |  | hitler
+-1 | thats | my | man
+-1 | i | like | lars | ulrich
+-1 | i | am | baffled | by | the | amount | of | defense | fall | out | boy | is | getting | right | now |  | 
+-1 | frank | underwood | weve | seen | what | he | can | do
+-1 | to | bad | neither | of | those | exist
+-1 | what | kind | of | asshole | gives | themself | the | nickname | the | edge
+-1 | you | cant | unless | you | work | in | a | dealership | 
+-1 | you | suck | one | cock | and | all | the | sudden | youre | a | cocksucker | i | tell | you
+-1 | there | is | nothing | wrong | with | having | younger | men | dominate | you | 
+-1 | well | all | hispanics | in | south | america | are | of | mostly | european | blood | arent | they
+-1 | ill | have | five | hivs | please
+-1 | gt | fucked | up | shit | creekhence | the | reason | ive | never | been | to | russia | also | great | phrasing
+-1 | the | whole | world | watches | a | bunch | of | kids | slaying | each | other |  | the | hunger | games
+-1 | ahoy | pirate
+-1 | remindme | 2 | days
+-1 | edited | sorry | for | the | spoiler | oh | that | rape | scene | was | allowed | in | youtube | back | in | 2006 | 
+-1 | you | obviously | have | no | understanding | of | basic | statistics
+-1 | good | for | him | im | judging | it | on | the | music | though
+-1 | holy | shit | man
+-1 | god |  | see | how | he | likes | actually | dealing | with | our | shit
+-1 | where | the | boat | hoes | have | sex
+-1 | i | like | the | blowhole | spewing | water | for | that | alone | this | is | easily | worth | upwards | of | 400k
+-1 | no | serious | tag | the | sea | i | have | a | feeling | this | thread | is | gonna | cost | about | tree | fiddy
+-1 | yea | its | pretty | bold | for | the | time | and | place | but | sometimes | boldness | works | best
+-1 | visit | your | country
+-1 | ah | si |  | yaws
+-1 | is | pregnant | baby | on
+-1 | are | you | a | zergling
+-1 | pho | with | rooster | sauce | 
+-1 | ok | sure | but | what | if | your | photography | has | steadily | gotten | worse | since | your | best | shots
+-1 | buddha | overrated | for | doing | nothing
+-1 | seriously | who | the | fuck | is | this | guy | 
+-1 | ya | okay | grampa
+-1 | the | vision | from | age | of | ultron | just | because | he | is | a | nice | guy
+-1 | youre | the | first | person | to | give | me | an | answer | that | could | shed | some | light | on | my | question | 
+-1 | that | is | amazing | because | they | were | such | a | great | band | but | they | immediately | came | to | mind
+-1 | youre | an | all | star | 
+-1 | you | are | not | a | descendant | of | everyone | who | was | alive | in | the | year | 700 | no
+-1 | when | i | annoyed | one | of | my | friends | too | persistent | with | messaging | sometimesi | dont | know | why
+-1 | big | time | rushi | have | a | horrible | taste | in | music
+-1 | yeah | i | agree | rise | againsts | most | recent | album | was | pretty | poorboring | in | my | opinion
+-1 | molag
+-1 | explains | why | the | muslims | are | always | so | pissed | off
+-1 | as | long | as | somebody | burns | down | said | group | home | while | the | other | residents | are | out
+-1 | lasagna | 
+-1 | wrong | american | dad | 
+-1 | id | constantly | search | for | the | smell | of | a | perfect | pizza
+-1 | that | penis | inspection | day | during | schools | gym | class | is | important | to | make | sure | youre | a | healthy | boy
+-1 | am | i | or | does | the | world | not | think | enough
+-1 | how | did | you | expect | sticking | your | foot | out | was | going | to | result | in | anything | other | than | kicking | it
+-1 | paul | blart | i | loved | it | 
+-1 | this | might | be | of | interest | hahahahaha | urlhere | 
+-1 | wonder | if | cause | of | high | regard | of | cows | 
+-1 | if | he | even | existed | have | to | say | jesus | 
+-1 | fuaka | you | dolphin
+-1 | neither | did | i | 
+-1 | tbh | its | questionable | if | europe | wants | or | needs | more | muslims
+-1 | captain | jack | sparrow
+-1 | how | about | the | 45 | dolphins | that | were | actually | killed | by | it
+-1 | are | you | charles | manson | haha | supposedly | he | was | inspired | by | the | song | 
+-1 | think | it | might | have | caused | some | sort | of | emp
+-1 | well | that | comment | was | boring | 
+-1 | every | voice | is | good | and | if | youre | not | that | vocal | person | just | practise | some | metal | shoutinggrowling
+-1 | everyone | in | my | area | says | it | 
+-1 | like | how | most | americans | behave | with | black | people
+-1 | everything | belonging | yourself | or | the | developement | youre | going | through | gtltnot | cool
+-1 | ronald | reagan
+-1 | youre | related | to | everyone | thats | ever | been | alive | currently | is | alive | or | ever | will | be | alive
+-1 | yeah | the | ones | with | kevin | durant | arent | as | bad | but | other | than | that | those | commercials | piss | me | off | 
+-1 | a | while | ago | i | was | going | by | a | bus | stop | and | people | were | queuing | to | get | in | a | bus
+-1 | and | a | few | people | wouldnt | have | suffered | an | agonizing | death
+-1 | you | like | that | you | fucking | retard | 
+-1 | aye | aye
+-1 | thanks | yoda
+-1 | on | reddit | its | tesla | dude | loved | pigeons | 
+-1 | you | know | theres | a | backup | band | thats | actually | playing | the | music | right
+-1 | are | you | 7
+-1 | eat | that | mf | bird | like | a | chicken | 
+-1 | if | all | music | has | to | be | fun | and | popy | then | i | choose | deafness
+-1 | naw | the | wasps | are | fucking | on | my | couch | right | now |  | highest | quality | porn | mate
+-1 | hippie | hipster | sex | icon | or | even | a | biblical | image
+-1 | have | you | ever | seen | pirates | of | the | caribbean | 
+-1 | you | wouldnt | dare | eat | a | marijuana | 
+-1 | thats | exactly | what | im | saying |  | 
+-1 | havent | thought | about | it | so | not | very
+-1 | imgur | urlhere | 
+-1 | its | cool | i | really | like | load | and | reload | also | 
+-1 | chris | farley
+-1 | that | was | the | point
+-1 | paul | revere | 
+-1 | im | a | high | school | kid | and | im | wearing | his | shirt | right | nowweird | 
+-1 | absolutely | need | to | come | back | once | this | takes | off
+-1 | got | stuck | on | wizard | and | glass | that | fucking | train | just | went | on | so | long
+-1 | never | go | full | thatguy
+-1 | askreddit | would | be | insanely | boring | 
+-1 | lol | you | seem | smart
+-1 | might | 
+-1 | does | he | have | a | big | penis | cause | i | could | see | this | being | a | miscue
+-1 | doubt | you | would | have | survived
+-1 | i | was | the | class | card | game | nerdnow | im | cool | i | think
+-1 | sorry | i | was | trolling | i | actually | prefer | audiocasts
+-1 | oooh | but | i | thought | only | western | people | could | be | racist | s
+-1 | rnocontext
+-1 | its | called | an | ellipsis | dumbass | 
+-1 | david | icke
+-1 | charity
+-1 | awesome | youre | mom | has | good | throat | game | so | me | and | the | other | students | have | a | pretty | good | time
+-1 | oh | no | you | called | me | a | pussy | pls | stop | it | ur | too | alpha
+-1 | i | refuse | to | believe | anyone | has | a | worse | bureaucratic | system | than | the | germans | 
+-1 | can | not | confirm | am | ceramics | gonna | have | to | call | bull | shit | on | this | one
+-1 | you | have | failed
+-1 | im | a | u2 | fan | and | i | agree
+-1 | lol | thanks | you | for | letting | me | know
+-1 | yeah | like | everyone | on | reddit | is | so | enlightened
+-1 | 1 | doesnt | make | sense2 | doesnt | matter | most | of | the | time3 | doesnt | matter
+-1 | theon | brought | it | all | upon | himself
+-1 | oh | they | are | pretty | good
+-1 | americans | are | assholes
+-1 | fucking | serious | tags | when | will | people | learn | 
+-1 | whats | the | point | of | cleaning | ass | after | shitting | 
+-1 | oh | my | god | someone | lying | on | the | internet
+-1 | rnotgoingtosayrevenwithcontext
+-1 | linkin | park |  | hybrid | theory | and | lp | were | their | best | after | that | each | album | just | got | worse
+-1 | thanks | for | the | decent | laugh | 
+-1 | pizza | rolls | in | salsa | con | queso | dip | 1010with | rice | 1110
+-1 | i | aint | seen | my | babies | since | dey | born | dat | racist | white | man | done | stealed | my | job | and | arrested | me
+-1 | growers | vs | showers
+-1 | yea | because | reddit | is | a | known | hotbed | of | apple | fanboys | s
+-1 | americans | value | ignorance | over | knowledge
+-1 | 1 | become | president | of | the | usa2 | start | world | war | iii
+-1 | search | up | music | genres | i | enjoy | that | or | through | grand | theft | auto
+-1 | i | hate | when | people | joke | that | bastard | probably | wanted | people | to | laugh | 
+-1 | so | whats | that | have | to | do | with | not | being | able | to | buy | booze | what
+-1 | i | gave | him | a | dolla
+-1 | hahaha | wow | good | catch
+-1 | oh |  | you | were | being | sarcastic | i | honestly | couldnt | tell |  | such | is | the | internet | 
+-1 | ugh | horse | girls
+-1 | yeah | 
+-1 | gtracistthats | a | bit | of | irony | dont | you | think
+-1 | the | entirety | of | the | bible
+-1 | were | the | police | at | the | scene
+-1 | ugh | not | another | one | of | these | threads | where | all | my | ex | girlfriends | will | be | talking | about | me
+-1 | you | must | be | new | to | the | internet
+-1 | screaming | shaking | twitching | creaming | squirtinggeneral | giveaways
+-1 | or | marine | logic | lol | 
+-1 | if | you | invite | them | to | hangout | and | they | say | no | but | dont | offer | another | time
+-1 | hush | you | kids | think | they | know | everything
+-1 | hard | drugs
+-1 | he | finished | right | always | finish
+-1 | seriously | i | didnt | see | it | coming | and | he | worked | it | into | the | story | so | well | 810 | would | lol | again | 
+-1 | the | show | up | in | white | sheets | 
+-1 | phahaha | psml | wish | i | could | double | upvote | this
+-1 | phish | further | and | phil | lesh | and | friends | jam | band | scene | just | needs | to | goperiod | 
+-1 | she | got | a | sex | change | at | 12
+-1 | ayy | lmao
+-1 | not | a | fan | of | their | pizza | but | their | bread | sticks | are | great | 
+-1 | why | do | i | have | you | tagged | as | sandwich | fucker
+-1 | itt |  | you | have | to | be | in | the | military | for | your | parents | to | see | you | as | an | adultthats | fucked | up
+-1 | spin | doctors
+-1 | you | know | what | they | say | when | you | assume
+-1 | my | moms | cousin | is | one | of | these | peoplefuckin | nutjob | is | what | he | is
+-1 | i | alrdy | did | pls
+-1 | crag | leg | guy
+-1 | dying | fetus
+-1 | opeth | kanye | west | nikki | minaj | nickleback | justin | bieber | and | yokko | onowhat | now
+-1 | youre | free | to | think | what | you | want | and | i | am | too | lets | agree | to | disagree
+-1 | i | never | claimed | you | did | but | you | did | contribute | to | the | institution
+-1 | any | good | job | offers
+-1 | you | cant | post | in | your | own | thread | ya | scrub
+-1 | i | never | wouldve | gone | to | college | if | it | werent | for | my | horse
+-1 | too | bad | its | probably | not | true
+-1 | circle | jerk | i | am | 100 | serious | 
+-1 | is | this | a | felony
+-1 | probably | would | you | like | to | testpulls | out | gun
+-1 | tucked | in | sheets | are | the | worst
+-1 | when | i | caught | my | son | masturbating
+-1 | brobdingnagian
+-1 | trick | question | muslims | have | no | humor
+-1 | i | just | started | making | mine | no | clue | why | i | guess | im | just | an | adult | now | 
+-1 | chicago | 
+-1 | well | the | pictures | were | taken | for | me | so | technically | they | are | my | property | right
+-1 | gt | fridays | off | fridays
+-1 | sounds | like | you | have | a | stick | up | your | ass | and | youll | never | be | happy | 
+-1 | your | mother
+-1 | i | randomly | shoot | females
+-1 | gt | about | 800 | a | monthyeslucky | 
+-1 | your | mother
+-1 | it | is | just | so | you | live | in | a | clean | environment
+-1 | maybe | but | ill | have | a | kiwi | over | a | quokka | any | day
+-1 | what | are | you | who | wants | to | crawl | into | a | pile | of | messed | up | covers
+-1 | but | oniichan
+-1 | nah | linkin | park
+-1 | i | like | palmy | 
+-1 | lets | see | it | worked | d
+-1 | foiled | by | the | comedy | detective | you | win | this | round | sir
+-1 | dad | stop | it
+-1 | no | i | want | to | be | famous | then | ill | get | whatever | i | want | 
+-1 | im | not | real
+-1 | inb4 | op
+-1 | romantic |  | sex | platonic |  | no | sex | basically | a | friend | platonic | or | a | partner | romantic | 
+-1 | you | got | so | rekt | by | that | other | guy | in | that | thread | hilarious
+-1 | sooo | the | surname | ketchum | wasnt | created | in | pokemon
+-1 | a | fire | pit | 
+-1 | reddit | lawyers |  | idiot | lawyers | who | googles | for | answers
+-1 | i | slept | walked | into | a | road | and | a | trucker | walked | me | back | home | im | not | even | lieing
+-1 | i | would | rather | be | dead | than | paralyzed | but | thats | just | me
+-1 | call | off | duty | modern | warfare | 2 | the | games | got | boring | so | i | wanted | to | play | in | real | life
+-1 | and | adults | who | dont | like | kids | are | psycopaths | yay
+-1 | whether | a | human | being | has | ever | been | born | with | a | legitimate | tail
+-1 | your | wife | is | always | right | especially | when | shes | wrong | since | she | controls | boobie | access
+-1 | sweden | duh | 
+-1 | whatever | you | make | of | it | 
+-1 | or | they | were | trying | to | make | a | raft
+-1 | play | games | and | watch | youtubenetflix
+-1 | i | need | something | to | keep | me | from | doing | my | homework
+-1 | omg | we | get | it | yall | are | edgy | chill
+-1 | came | here | to | say | this
+-1 | thats | a | bullshit | stereotype
+-1 | i | believe | the | humour | of | this | has | escaped | your | grasp
+-1 | allow | obama | a | third | term
+-1 | so | fifty | shades | of | gray | basicallyum | no | never | okay
+-1 | pulp | fiction | i | could | hardly | make | it | through | once | let | alone | have | to | sit | through | it | again | 
+-1 | gavin | free | is | a | gammy | lil | git
+-1 | the | bible
+-1 | paul | blart | mall | cop
+-1 | kids | are | not | good | human | beings
+-1 | i | got | myself | there | on | purpose
+-1 | mwomenfolk
+-1 | 8 | weeks | to | get | a | drivers | licens | it | took | me | 45 | minutes | in | america | 
+-1 | wipe | toilet | paper | seems | more | sanitary | than | just | using | water
+-1 | ha |  | certainly | am | 
+-1 | detroit | is | a | cancer | of | a | place | so | its | even | p
+-1 | i | think | they | will | be | what | they | will | even | if | society | wills | them | to | be | what | they | will
+-1 | hipsters
+-1 | but | you | did | deal | with | it
+-1 | byte | like | error
+-1 | byte | like | error
+-1 | this | is | really | amazing |  | whatever | you | and | your | spouse | are | doing | youre | doing | it | right |  | a
+-1 | so | dont | even | talk | about | it | are | you | saying | its | your | trigger
+-1 | seamen | fishing | for | crabs |  |  |  | 
+-1 | thats | how | it | should | work | 
+-1 | being | tall | and | handsome | that | latter | people | eventually | convinced | me | of | 
+-1 | waple | malnut
+-1 | we | simply | planned | out | a | menu | and | ways | to | cook | the | fetus
+-1 | a | real | talk | with | your | kid | isnt | at | 3 | it | was | not | your | parents | bro
+-1 | unbreakable | they | alive | damnit | its | a | miracle | 
+-1 | hangin | out | with | a | buncha | pooftas
+-1 | lol | you | went | through | the | effort | of | stalking | my | posts |  | wow | how | desperate | are | you | hahaha
+-1 | waithow | did | you | have | that | much | money | as | a | kid
+-1 | vanillaaaaaaaaaaaaaa
+-1 | because | you | dont | research | shit | before | coming | to | widereaching | conclusions | 
+-1 | sigh | i | guess | ill | be | the | one | to | do | iti | did | nazi | that | coming
+-1 | take | care | now
+-1 | tapioca
+-1 | fuck | you | for | thinking | different | i | want | to | kill | you | now
+-1 | you | wrap | it | up | by | and | then | he | woke | up
+-1 | aww | how | cute | someone | just | saw | blackfish | after | a | week | you | will | forget | about | it | 
+-1 | i | work | in | a | vet | clinic | we | are | not | money | hungry | assholes | and | we | do | care | about | out | patients
+-1 | gilligan
+-1 | i | too | want | to | mount | something
+-1 | americas | investment | in | africa
+-1 | everything | 
+-1 | 2 | of | my | friends | from | australia | is | having | lesbian | sex | while | chatting | with | me | life | is | good | 
+-1 | jim | lahey
+-1 | this | one | time | lindsey | logan | and | i | switched | places | at | summer | camp
+-1 | this | one | time | lindsey | logan | and | i | switched | places | at | summer | camp
+-1 | im | not | even | from | texas | and | i | use | yall | its | a | useful | phrase | plural | indicative | 
+-1 | missionary | can | be | fun |  | turn | that | frown | upside | down | youre | getting | it | in | p
+-1 | thinking | about | a | dream | i | had | nothing | has | changed
+-1 | blartbot
+-1 | this | one | time | lindsey | logan | and | i | switched | places | at | summer | camp
+-1 | reg | y | x1 | x2 | x3 | robust
+-1 | gold | as | long | as | somebody | else | gives | it | to | me
+-1 | great | job | guys | you | had | one | job
+-1 | put | a | gun | in | my | mouth | cuz | the | internets | the | greatest | thing | evar
+-1 | that | 30 | of | women | are | bisexual | fuck | no | 
+-1 | shes | not | wealthy | enough
+-1 | hey | black | people | whats | the | best | thing | in | your | father
+-1 | i | dont | know | what | i | did | 
+-1 | ill | be |  | edwin | mcainfirst | kiss | 
+-1 | aka | next | time | on | previously | unseen | scene | of | semen | streams
+-1 | thats | not | from | it
+-1 | both | of | them | literally | cant | evennow | stop | reposting | and | go | do | your | homework | son | 
+-1 | for | 13 | year | olds
+-1 | would | you | like | to | go | on | the | tardis
+-1 | sesame | streetto | quote | dave | chappelloscar | you | are | so | meanbitch | i | live | in | a | trash | can
+-1 | account | age | 7 | hours | great | idea | but | sloppy | execution
+-1 | just | walk | up | and | kiss | the | person | you | are | crushing | on
+-1 | quality | one | at | that | 
+-1 | jeez | what | an | original | question
+-1 | this | is | a | very | precise | answer | to | my | question | thank | you
+-1 | umm |  | im | not | sure | what | to | say
+-1 | bartender | but | worked | at | the | radio | station | before | i | started | working | in | bars | 
+-1 | what
+-1 | by | that | logic | thinking | a | guy | is | hot | because | hes | tall | is | also | objectifying
+-1 | sterotypical | commitment | issues | 
+-1 | gt | religious | cancerjust | puked | in | my | mouth | a | little
+-1 | must | feel | like | shit | being | in | canadia
+-1 | edit | i | am | not | doing | this | right
+-1 | this | question
+-1 | maybe | one | day | if | i | ever | have | kids
+-1 | so | how | did | you | avoid | getting | aids |  | or | do | you | have | aids
+-1 | i | walked | out | of | the | film | 20 | minutes | into | it
+-1 | bowling | for | colombine
+-1 | merica | we | go | where | we | want | and | do | what | the | fuck | we | want | and | hope | you | dont | like | it
+-1 | sorry | tried | to | mock | op | for | the | multiple | usage | of | the | word | will
+-1 | personal | digital | assistant | like | a | palm | pilot | or | something
+-1 | mean | cops
+-1 | maybe | tickling | his | butthole
+-1 | sex | no | condom
+-1 | donnie | darko |  | its | full | of | itself | in | the | way | a | 15 | year | old | tries | to | be | philosophical
+-1 | good | idea
+-1 | i | think | only | amateur | sites | would | count | as | legal
+-1 | no | problem | friend
+-1 | sounds | like | youre | justifying | a | lot | of | your | actions | i | hoped | you | matured | from | it | 
+-1 | are | all | of | those | people | inside | your | head | or | something
+-1 | where | do | you | live | these | reactions | do | not | seems | typical | to | me | for | that | time | period
+-1 | well | they | really | should | be | up | for | a | threesome
+-1 | oh | i | see | why | 
+-1 | gt | one | of | the | best | responses | yet | periodftfy
+-1 | i | refer | to | my | canadian | wife | as | being | exotic | just | sayin
+-1 | does | being | gay | stop | you | from | using | punctuation | jesus
+-1 | inb4 | its | a | man
+-1 | nathan | who
+-1 | thats | more | because | they | are | unattractive | than | anything | else
+-1 | masturbation | 
+-1 | pretty | much | the | same | thing | as | endless | knowledge | d
+-1 | school | full | of | gay | kids | get | sum
+-1 | i | wouldnt | i | would | use | tricks | of | today | to | become | their | almighty | god
+-1 | it | may | as | well | take | place | in | space
+-1 | people | wont | help | u | if | it | wont | benefit | them | 
+-1 | i | checked | the | link | and | its | nothing | malicious | with | it | its | a | product | selling | page
+-1 | yeah | thats | the | one | that | put | this | in | my | head
+-1 | she | isnt | 
+-1 | because | she | does | my | laundry
+-1 | dickbutt
+-1 | star | wars | better | not | be | on | this | fucking | thread | 
+-1 | lord | of | the | rings | i | guess | too | slow | for | me
+-1 | forgotten | 
+-1 | i | cant | think | of | a | clever | pun | response | so | just | pretend | that | i | did | and | this | comment | is | it
+-1 | welcome | to | rshittyaskgayscience
+-1 | portal | is | in | there | tetris |  | angry | birds | does | not | get | a | mention
+-1 | no | but | i | was | going | too | fast | to | stop | in | time | if | it | was | its | around | a | blind | curve
+-1 | it | starts | with | a | p
+-1 | juggling
+-1 | but | she | is | ugly | im | not | even | kidding
+-1 | this | is | your | chance | to | finally | pull | it | off | reddit | this | should | be | the | only | one
+-1 | its | true | for | women
+-1 | reddit | is | americanrun | though | if | you | dont | like | it | you | can | git | out
+-1 | high | school | musical | there | was | no | zac | efron | in | my | hs | 
+-1 | we | do |  | 
+-1 | what | is | best | in | life
+-1 | why | an | expat | why | not | an | immigrant | anything | wrong | with | that | word
+-1 | ok | i | will | but | only | because | you | said | so | 
+-1 | mansplain | your | liberal | views | to | me
+-1 | no | never | theyre | all | t1000 | robots | with | no | emotion | and | infinite | energy
+-1 | haha | i | feel | so | weird
+-1 | i | didnt | say | its | totally | the | same | thing | a | comparison | is | always | a | shared | difference | 
+-1 | coupon | books | full | of | hugs
+-1 | and | league | of | legends
+-1 | i | didnt | know | you | had | access | to | the | authors | thoughts
+-1 | get | something | up | on | the | walls |  | get | a | rug |  | if | you | can | handle | that | think | about | getting | a | plant
+-1 | welcome | to | reddit
+-1 | plan | c
+-1 | cats | dont | lie |  | nor | do | they | have | friends | to | pass | contracts | to |  | 
+-1 | boxing | is | not | deadincoming | downvotes | which | prove | my | point | perfectly | 
+-1 | boil | em | mash | em | stick | em | in | a | stew
+-1 | thanks | bro | 
+-1 | its | algebra | work | but | in | geometry | 
+-1 | smh | i | will | be | praying | for | everyone | in | these | comments
+-1 | lol | see | how | many | kids | you | end | up | with
+-1 | people | are | lazy
+-1 | to | feeling | offended | i | guess
+-1 | alright | goodbye | puppy
+-1 | no | one | kept | her | from | her | accent
+-1 | you | must | have | a | really | long | screen
+-1 | guy | pours | his | heart | out | and | reddit | decides | to | focus | on | his | sentence | structure | sigh
+-1 | and | you | only | realised | how | dangerous | that | was | afterwords | 
+-1 | i | honestly | find | transgender | people | disgusting | anything | else | is | 100 | fine | and | ill | smile | at
+-1 | the | notebook | i | would | have | dumped | that | bitch | in | a | second | and | not | thought | twice | about | it | 
+-1 | one | wishes | to | acquaint | your | facial | features | with | the | finger | in | between | my | index | and | ring | finger
+-1 | ha | gayyy
+-1 | so | i | only | know | the | first | one | anyone | care | to | answer | the | rest | in | a | way
+-1 | sound | of | musicnot | a | big | julie | andrews | fan |  | and | the | music | is | mediocre
+-1 | what | the | hell | does | race | have | to | do | with | it
+-1 | some | of | us | are | informed | and | just | think | that | the | actions | of | the | movement | are | incredibly | harmful
+-1 | this | is | so | gay
+-1 | do | you | have | a | reason | i | feel | its | unfair | to | hate | one | entire | genre
+-1 | i | asked | this | about | 5 | days | ago | and | it | went | no | where | good | job
+-1 | nope | its | deadend | and | pointless
+-1 | yikyak | its | like | twitter | but | more | simple | and | its | anonymous | its | an | absolute | shit | show
+-1 | ayy | lmao
+-1 | the | candy | he | makes | is | delicious | 
+-1 | shut | up | you | stupid | alarm | why | are | you | even | on | i | dont | work | to | oh | wait | i | do | damn | it
+-1 | no | college | is | a | joke | to | get | into | in | america
+-1 | rlewronggeneration
+-1 | where | the | hell | is | my | coffee
+-1 | isis | is | a | group | of | extreme | quranic | literalists |  | theyre | not | just | making | it | up
+-1 | the | title | should | read | older | gayer | redditors | 
+-1 | mashupoteiito
+-1 | everything | you | said |  | 
+-1 | how | much | it | hurts | to | get | kicked | in | the | balls
+-1 | to | be | fair | lots | of | jpop | is | horrid | and | talking | over | it | is | probably | a | small | improvement
+-1 | youre | on | a | list | now
+-1 | good | call | i | believe | everything | i | read | on | the | internet | 
+-1 | on | reddit | anyway | insinuating | that | im | less | intelligent | because | im | not | an | atheist
+-1 | everywhere | by | fleetwood | mac
+-1 | got | all | that | karma | and | you | think | it | validates | and | justifies | being | rude | and | inconsiderate | 
+-1 | frozen | cause | its | not | all | that | its | hyped | to | be
+-1 | ignore | this | post
+-1 | gtyoud | have | a | lot | of | fathers | going | to | prison
+-1 | the | deuce | you | say
+-1 | how | are | you | even | supposed | to | pronounce | that
+-1 | nelly | ignition | remix
+-1 | most | electronic | gagdets | we | have | in | our | homes
+-1 | your | mom
+-1 | top | kek
+-1 | nicememe
+-1 | birthing | humans
+-1 | talking | to | a | girl | 
+-1 | names | or | it | didnt | happen
+-1 | maybe | theyve | got | a | case | of | the | mondays | did | you | ever | think | of | that
+-1 | i | think | that | was | me
+-1 | l2 | read | brah
+-1 | you | called
+-1 | i | feel | really | good | seeing | this | as | the | top | post | cuz | this | was | the | first | thing | that | came | to | my | head
+-1 | mate | you | are | already | at | the | highest | levels | of | pissed | off
+-1 | i | know | i | know |  | the | whole | youre | not | wrong | just | an | asshole | bit
+-1 | that | didnt | help | for | 911
+-1 | ayy | lmao
+-1 | getting | girls | to | like | me | 
+-1 | constitutionalist | 
+-1 | this | one
+-1 | everything
+-1 | lol | yeah | arent | people | who | dont | agree | with | me | dumb | thats | how | you | sound | right | now | 
+-1 | who | let | the | dogs | out |  | no |  | why | the | fuck | do | they | keep | playing | it | at | parties | then
+-1 | dayum | that | was | one | sentence
+-1 | a | dog | gave | birth | 2 | a | tree
+-1 | psssst | its | just | banter
+-1 | hate | musicals | love | frozen | 
+-1 | brah | i | know | that | feel
+-1 | oh | wait | you | mean | through | banking | apps | i | thought | you | meant | by | placing | a | call
+-1 | a | grammarspelling | book
+-1 | ban | guns | we | dont | have | guns | in | the | uk | and | we | are | just | fine | over | here
+-1 | sniffling | a | sneeze | is | pretty | easy | but | then | i | would | like | never | sneeze | 2nd | one | wouldnt | be | bad
+-1 | yeah | of | course | that | is | somehow | better | but | i | simply | cant | comprehend | the | why | to | believe | in | god
+-1 | fuck | yea
+-1 | shhhh | easier | to | just | blame | the | woman | female
+-1 | know | the | rules | well | so | you | can | break | them | effectively | 
+-1 | interstellar
+-1 | i | eat | dog | sandwich
+-1 | baby | clothes | for | sale | never | worn
+-1 | the | bots | could | be | programmed | to | keep | up | with | changing | law | faster | than | any | human
+-1 | because | some | kids | will | use | the | you | cant | touch | me | card
+-1 | singing | in | all | caps |  | what | key | is | that
+-1 | it | went | okay
+-1 | thats | just | the | way | the | story | came | out | op | wanted | true | personal | stories | not | the | edited | version | 
+-1 | danerys | sp | aka | kahleesi | because | boobs
+-1 | jamie | lannister | hes | a | fucking | boss
+-1 | go | out | im | serious | just | get | outside | wander | the | streets | meet | new | people | 
+-1 | for | sale | baby | shoes | never | wornrsixwordstories | 
+-1 | clown | porn
+-1 | rmontageparodiesgo | to | the | top | section | choose | all | time | and | enjoy | your | dank | memes
+-1 | axolotl
+-1 | citizen | kane | because | orson | welles | was | a | shitty | director | and | a | one | hitwonder | 
+-1 | gtimplying | anyone | on | reddit | has | ever | been | asked | out
+-1 | yep | youre | exactly | right | nobody
+-1 | it | shouldnt | exist | for | the | simple | reason | that | an | innocent | person | could | be | killed
+-1 | do | you | even | know | what | isis | is | or | there | mission | 
+-1 | if | you | saw | someone | in | public | with | toilet | paper | stuck | to | their | shoe | would | you | tell | them
+-1 | blartbot
+-1 | if | you | could | ask | god | any | one | question | what | would | it | be
+-1 | im | extremely | pretty | but | guys | dont | like | me | because | im | morbidly | obese
+-1 | if | you | had | to | choose | time | period | to | live | in | which | century | would | you | choose
+-1 | matt | damon | thrown | in | a | box | and | suffocated | we | know | whats | in | the | box | now
+-1 | im | smart | enough | not | to | give | a | fuck | how | smart | i | am | why | because | it | doesnt | matter | live | your | life
+-1 | getting | more | than | 100 | upvotes | on | anything | i | dare | you | to | prove | me | wrong
+-1 | a | lot | of | black | men | have | declared | open | season | on | black | men
+-1 | summoning | the | guy | who | called | the | cops | to | bust | the | dude | that | held | him | up | while | selling | weed
+-1 | getting | upvotes | also | getting | reddit | gold
+-1 | people | are | still | reading | this | go | home | the | story | is | over
+-1 | i | think | you | underestimate | how | bawdy | rhymes | have | been | all | through | history
+-1 | i | havent | said | anything | so | far | stop | being | a | freaking | defensive | spaz
+-1 | bush | being | responsible | for | 911
+-1 | either | a | full | beard | or | that | style | the | name | of | which | i | cannot | remember | william | riker | had | it
+-1 | i | too | agreesource | part | dog
+-1 | ask | for | something | in | return | ill | let | you | cheat | off | me | but | you | owe | me | x | thing
+-1 | only | if | he | eliminates | the | federal | reserve
+-1 | have | you | been | living | under | a | rock
+-1 | well | chocolate | has | sugar | in | it | and | i | believe | alcohol | becomes | sugar | when | digested | 
+-1 | gtsomethingssome | things
+-1 | the | sawaxe | no | more | wood | furniture | or | houses | until | that | tree | falls | over | on | its | own
+-1 | your | dad | after | hes | diagnosed | with | cancer | and | must | turn | to | illegal | means | to | fund | his | treatment
+-1 | if | its | going | to | be | a | long | dump | id |  | listen | to | the | album | the | joshua | tree | by | u2
+-1 | pingerssss
+-1 | sons | of | anarchy |  | i | really | wanted | to | like | it | but | just | didnt |  | 
+-1 | so | youre | an | idiot
+-1 | blowjobs
+-1 | you | jelly | bro | fuck | seattle
+-1 | pr | or | pb | right
+-1 | dont | tell | me | your | too | blind | to | see
+-1 | its | different | in | some | countries | 
+-1 | what | about | david | parker | ray
+-1 | so | now | theres | only | 48 | officers | in | your | town | 
+-1 | there | would | be | no | cell | towers | or | internet | connection | so | i | guess | cry | a | lot
+-1 | hahahahahhaa
+-1 | because | weve | already | seen | her | naked | 
+-1 | youyoure | being | sarcastic | right
+-1 | that | show | fucking | sucked | i | watched | every | episode | jesse | gets | fucking | annoying | as | shit | 
+-1 | most | of | those | tribes | have | poor | cel | coverage
+-1 | the | first | saw | movie | if | you | havent | seen | it
+-1 | walking | dead | 
+-1 | plan | for | it | now
+-1 | but | the | goddamn | flying | car | it | took | me | a | few | minutes | to | get | past | that
+-1 | holy | crap | thats | well | done | urlhere | 
+-1 | dont | mention | it | dickwad
+-1 | hes | gonna | get | a | gender | change | just | so | he | can | be | the | first | female | president
+-1 | link | arms | and | block | a | planned | parenthood
+-1 | the | second | coming | of | the | flying | spaghetti | monster | 
+-1 | i | dont | think | thats | really | a | good | argument | you | shouldnt | have | been | babysitting | at | ten | 
+-1 | uneducated
+-1 | can | confirmi | recently | broke | my | humerus | 
+-1 | no | i | get | the | joke | its | just | a | stupid | overused | joke
+-1 | funny | games | is | rather | unexpected | throughout | 
+-1 | whoever | gave | birth | to | justin | bieber
+-1 | what | is | loveee
+-1 | leaders | who | try | to | invade | russia | in | the | winter | it | never | works
+-1 | mfordam | i | doing | it | right
+-1 | i | did | a | test | and | googled | reddit |  | words | that | were | relevant | to | this | thread | your | turn
+-1 | ive | hit | things | with | a | rock
+-1 | try | heroin
+-1 | there | is | a | sons | and | daughter | day | its | called | your | birthday | 
+-1 | any | way | the | wind | blows
+-1 | your | username | checks | out | right | now | that | detail | isnt | terribly | important
+-1 | ooooooh | whatcha | saaaaaaayy
+-1 | trying | isnt | good | enough | when | theyre | still | horrific | looking
+-1 | so | much | this
+-1 | well | have | you | moved | on
+-1 | who | who | who | let | the | dogs | out
+-1 | this | just | this | urlhere | 
+-1 | dont | play | tricks | with | me | morality | is | absolute | we | just | havent | found | it | yet | 
+-1 | wheel
+-1 | people | like | her | should | be | shot | clean | up | the | gene | pool | before | she | can | reproduce
+-1 | no | doubt | about | it
+-1 | i | guess | i | dont | know | much | about | physics | i | just | watch | a | lot | of | cgp | grey | videos
+-1 | dayum | raz |  | you | so | meta | 
+-1 | well | yeah | im | talking | about | things | that | dont | require | a | commitment | and | can | just | be | done | 
+-1 | have | sex | so | they | dont | become | elliot | rodgers | the | second | 
+-1 | dont | worry | ive | gone | through | this | 6 | times | youll | be | fine
+-1 | im | not | interested | in | yuri
+-1 | do | too | many | characters | that | all | intertwine | hurt | your | brain
+-1 | anyone | else | wondering | why | a | blind | woman | would | have | a | mirror | 
+-1 | in | 2015 | honestly | how | old | do | they | even | think | the | admissions | officers | are
+-1 | gtwomyngtgynocideftfy
+-1 | rohypnol
+-1 | antichrist |  | because | lars | von | trier | is | a | strange | man
+-1 | throws | me | like | a | harpoon | 
+-1 | what | would | you | wanna | do | if | you | actually | had | goals | in | life
+-1 | if | your | staying | with | her | purely | because | its | too | hard | to | find | a | new | place | you | need | to | break | up
+-1 | not | so | much | but | falsifying | data | was | and | still | is | a | very | big | thing
+-1 | prostate | stimulation
+-1 | technically | humans | are | apes | but | nonetheless | what | people | and | what | types | of | apes
+-1 | i | hope | he | was | faced | with | the | full | penalties | of | his |  | illegal | actions | 
+-1 | either | he | fought | green | arrow | or | hes | a | fucking | moron
+-1 | the | same | way | people | named | cooper | rose | daisy | violet | forrest | parker | etc | feel
+-1 | on | oneohfivenine | the | brew
+-1 | uhhhhthat | would | bw | lolinad
+-1 | not | personally | i | dont | really | appreciate | anyone | lightly | touching | my | face | or | area | around | my | face | 
+-1 | sandstorm
+-1 | all | dependent | on | the | amount | of | slut | a | girl | is
+-1 | sandstorm
+-1 | im | 64 | and | i | dont | have | issues | finding | pants | in | regular | stores
+-1 | because | financial | stability | makes | me | so | stressful | 
+-1 | youre | just | lazy | more | likely | 
+-1 | people | who | exaggerate | stories | or | who | use | a | joke | you | tell | them | and | pass | it | off | as | their | own | 
+-1 | i | see | the | little | silhouetto | of | a | man
+-1 | huh | never | heard | of | that | hides | all | airsoft | guns | swords | and | weaponry
+-1 | breaking | bad
+-1 | milk | contrary | to | popular | belief | milk | does | not | stay | good | forever
+-1 | cant | believe | that | one | was | missed
+-1 | emotions | are | not | emergencies | unless | the | emotion | involves | some | kind | of | deadly | threatsorry
+-1 | but | nofap
+-1 | no | its | a | short | story
+-1 | what | do | those | gaming | consoles | have | to | do | with | the | vhs | tape
+-1 | you | a | girl
+-1 | you | must | not | be | one | it | would | be | there | are
+-1 | cuz | its | murica
+-1 | probably | even | less | than | they | spend | on | reddit
+-1 | well | many | people | dont | believe | that | to | be | true | 
+-1 | in | those | days | the | democrats | were | proslavery
+-1 | are | there | any | movie | adaptations | of | avatar | the | last | airbenderthe | answer | is | no
+-1 | winrar | is | not | a | free | service | hate | to | break | it | to | ya | rarlab | but | yea | it | is | 
+-1 | what | about | darude
+-1 | your | friend | is | an | asshole
+-1 | stamp | collecting
+-1 | i | was | just | about | to | say | this | when | i | saw | this | thread | yes
+-1 | ahhh | women | are | so | crazy | lol
+-1 | im | guessing | something | along | the | lines | of | jetfuel
+-1 | i | said | eugenics | so | ill | have | to | disagree | with | you | there
+-1 | the | 22nd | the | 15th | is | this | coming | friday
+-1 | game | of | thones | its | too | fantasy | like | theres | no | modern | baseline | then | again | i | like | futurama
+-1 | breaking | bad
+-1 | link | please | 
+-1 | well |  | thats | better | than | what | i | see | lol
+-1 | why | are | people | in | this | country | so | stupid | 
+-1 |  | could | be | someone | who | loves | playing | retro | games | 
+-1 | excue | mee
+-1 | name | 1 | other | tv | show | that | has | a | budget | like | twd | that | is | about | zombies
+-1 | rlongneckhorses | 
+-1 | is | this | a | reddit | wheelchairaroo
+-1 | no | doubt | about | it
+-1 | peer | pressure | peer | pressure
+-1 | bro | toasted | 
+-1 | all | is | not | the | front | page | if | you | dont | want | to | see | it | dont | browse | all
+-1 | really | anything | thats | hip | hop | or | rampb | or | rap | or | any | of | those | 
+-1 | shitnobodysays
+-1 | the | south | is | too | dense | for | my | liking | its | one | big | overcrowded | sprawl
+-1 | hes | not | your | guy | buster
+-1 | and | you | have | a | small | penis
+-1 | man | this | thread | is | really | making | me | respect | the | saudi | arabian | elite
+-1 | wed | make | a | good | team
+-1 | stop | responding | to | my | comments | im | not | interested | in | your | trolling | opinions
+-1 | i | hate | the | fuckin | eagles
+-1 | the | wire
+-1 | starting | sentences | with |  | as | a | christian | 
+-1 | lost |  | fuck | that | show
+-1 | hillbilly | bidet
+-1 | if | i | wasnt | poor | youd | get | gold | for | that | 1110 | would | show | my | friends | again
+-1 | mooooo
+-1 | i | think | compulsory |  | education | is | morally | wrong
+-1 | just | not | with | warm | water
+-1 | why | does | you | exist | 
+-1 | mac | and | cheese
+-1 | i | have | 1 | child | lol
+-1 | eughhorribly | memed | cunt
+-1 | aaaand | its | pretty | obvious | youve | never | actually | given | head | to | a | female
+-1 | id | pay | money | to | see | you | do | that | do | it | rim | the | hobo | 
+-1 | im | sorry | that | youve | never | actually | had | decent | head | 
+-1 | after | watching | soa | got | is | lame
+-1 | soooooooral | right | after | anal | is | ok
+-1 | the | world | is | a | vampire
+-1 | a | triangle | that | isnt | half | a | rectangle
+-1 | game | of | thrones | got | up | to | episode | 7 | of | season | 1 | though
+-1 | ooo | m8 | no | need | to | be | salty | u | aint | got | it
+-1 | agreed
+-1 | oh | shit
+-1 | just | trying | to | cut | down | my | masturbation
+-1 | oh | shit
+-1 | i | thought | it | was | literally | part | of | the | fds | job | description
+-1 | damn | i | wish | i | had | friends | 22 | oh | well | a | bottle | of | old | rosie | is | good | enough | for | me | i | guess
+-1 | comfortably | numb | more | specifically | this | solo | urlhere | 
+-1 | how | scented | lotion | can | give | you | an | infection
+-1 | thats | made | up
+-1 | is | the | surprising | event | you | are | thinking | of | a | political | move | be | honest
+-1 | 2036 | from | indiana |  | people | still | hate | black | people | and | gaysinsane | huh
+-1 | im | sorry | i | wasnt | trying | to | go | for | a | sad | story | cheer | up | i | look | back | on | this | and | laugh
+-1 | and | lack | of | punctuation | 
+-1 | im | white | so | most | probably
+-1 | sounds | like | a | tidy | little | wrongful | arrest | suit
+-1 | youre | angry | i | bet | youre | a | virgin
+-1 | balancing | out | the | michael | brown | thing | with | the | fox | thing | makes | it | hard | to | say | much | against | you | 
+-1 | god | made | ovens | for | this | son
+-1 | i | cant | hearrrr | youuuuuuuu
+-1 | do | do | dooo | do | do
+-1 | thats | because | it | is | a | terrible | show
+-1 | rainbow | brite
+-1 | say | what | you | will | about | 4chan | but | at | least | they | knew | how | to | deal | with | retarded | attention | whores
+-1 | i | call | bullshitt
+-1 | wait | whats | a | clit
+-1 | billy | is | a | professional
+-1 | im | irresistible
+-1 | can | confirm | used | cocaine | dick | was | limp
+-1 | this | deserves | more | ups
+-1 | or | just | do | your | fucking | job | you | lazy | cunt
+-1 | mlady
+-1 | sometimes | this | is | not | enough
+-1 | calories | are | out | of | sight | and | im | contemplating | serving | size
+-1 | what | makes | you | think | i | behave | this | way | in | the | real | world |  | im | able | to | understand | the | difference
+-1 | i | gotta | disagree | reputation | is | everything
+-1 | says | a | lot
+-1 | seams | so | weird | how | often | i | see | obese | homeless | people | 
+-1 | i | just | refer | to | black | people | as | canadians | so | no | i | never | say | anything | racist | by | accident | 
+-1 | i | have | a | gf
+-1 | that | ones | easy | dont | let | upvotes | or | downvotes | on | reddit | determine | your | opinion
+-1 | id | say | overpaid
+-1 | youre
+-1 | cash | or | credit
+-1 | yes | it | is | always | better | when | bitches | deliver | the | pussy | 
+-1 | you | glorious | fucker
+-1 | okay | but | dont | you | ever | wonder | why | you | feel | no | desire | 
+-1 | hey | some | guys | dont | take | that | long
+-1 | repost
+-1 | farts | that | smell | like | catnip |  | brrraaaaappppp |  | kittiesand | after | two | minutes | theyre | all | mean
+-1 | being | op
+-1 | i | dont | get | it
+-1 | follow | directions
+-1 | matches | from | a | box | are | wood | with | no | narrow | side | in | my | experience
+-1 | the | bullseye
+-1 | summer | lovin
+-1 | so | youre | just | a | fuckwit | then | no | more | needed | really | 
+-1 | triggered | remember | lqbtasdfurby5858 | never | participate | in | sexual | acts | with | crazy | 
+-1 | bring | you | to | yourtra | na | na | na | na | na | na | na | knees | knees
+-1 | what | youve | never | been | munging
+-1 | would | you | rather | die | in | a | peaceful | world | or | live | in | a | hateful | one
+-1 | easy | there | thats | dangerous | thinking
+-1 | this | is | actually | really | really | good | advice
+-1 | wouldnt | it | be | all | blurry | what | with | the | hand | motions | and | whatnot
+-1 | real | ladies | swallow
+-1 | you | give | love
+-1 | damn | you | shut | that | hoe | down | proper
+-1 | as | long | as | it | is | 
+-1 | ohhhhigughuu | yeth | daddy | i | love | it | oughghggiiu
+-1 | the | independent | nerd | kid | that | no | one | likes | 
+-1 | one | of | the | stupidest | things | ive | ever | read | tbh
+-1 | emotionally | no | physically | no | 
+-1 | because | im | too | picky | and | women | i | want | are | too | picky
+-1 | sounds | like | a | good | way | to | get | an | awkward | boner | in | front | of | all | your | friends | and | family
+-1 | mash
+-1 | hes | probably | good | at | sex | now | seeing | that | he | has | attributes | of | a | vibrator
+-1 | they | are | in | the | south | us | then | again | all | good | music | is | fuckin | hillbillies | 
+-1 | you | think | im | trolling | but | youre | unable | to | draw | this | apparently | simple | concept
+-1 | dont | worry | you | were | probably | high | as | shit | when | writing | this
+-1 | in | west | philadelphia | born | and
+-1 | wow | so | you | just | grab | and | pull | or | is | there | a | technique | 
+-1 | how | did | you | know | i | was | going | to | choose | myself
+-1 | breaking | bad | 
+-1 | thanks | umau5419 | at | least | someone | gets | it
+-1 | moist
+-1 | suck | mdick
+-1 | thats | the | best | kind | of | prostitution | in | my | book
+-1 | so | where | assuming | your | a | women | too
+-1 | did | you | really | think | californian | fast | food | could | compete | with | texas
+-1 | samantha | d
+-1 | gorden
+-1 | hahahahahahahaha | niiiiceeeee
+-1 | then | stay | there | you | are | an | idiot | and | we | like | to | stop | those | from | crossing | into | our | country | 
+-1 | yahhhs
+-1 | this | hit | that | ice | cold
+-1 | im | a | big | fan | of | my | own | dick | does | that | make | me | kind | of | gay
+-1 | was | it | actually | a | tattoo | of | a | penis | by | any | chance
+-1 | that | is | like | jacking | off | to | your | own | reflectiongaaaaay
+-1 | that | is | your | personal | opinion | only | 
+-1 | so | you | are | talking | about | really | small | dicks | or | wide | set | holes
+-1 | judging | by | your | logic | vagina |  | piss | so | why | stick | your | dick | in | it
+-1 | roberta | or | dodong
+-1 | they | have | buttstriggered
+-1 | dat | bootygive | me | your | man | card | now
+-1 | show | me | more | photos | of | that | cock | baby
+-1 | happy | birthday | man
+-1 | thank | you
+-1 | i | just | dont | like | the | asspull | that | is | that | overrated | agent | colsen | surviving | 
+-1 | thats | it |  | shit |  | who | cares | what | people | think | about | it |  | fly | your | flag | high
+-1 | not | this | one | it | worked
+-1 | if | its | per | inch | by | volume | that | is | cubic | inches | sure | by | distance | that | is | infinite | sperm | 
+-1 | you | need | more | fiber | in | your | diet |  | it | take | nearly | no | effort | and | zero | struggle | to | pass | a | turd | 
+-1 | i | need | to | get | consent | pass
+-1 | around | the | world | around | the
+-1 | nevergonnagiveyouup
+-1 | god | forbid | your | room | should | be | clean | fuck | me | right |  | edit | fuck | me | right
+-1 | dont | be | a | cunt
+-1 | that | im | really | funny | seriously | i | recon | all | my | comments | are | hilarious | 
+-1 | why | does | this | have | no | gold
+-1 | he | says | son | can | you | play | me | a | memory
+-1 | tom | cruise
+-1 | chrischan
+-1 | jennifer | aniston | 
+-1 | i | have | an | irrational | fear | of | nail | filesemery | boards
+-1 | ahhh | thats | almost | just | as | big | an | offense | on | reddit
+-1 | just | because | its | popular | doesnt | mean | it | is | shit | either
+-1 | all | dick | smatter
+-1 | samuel | jackson
+-1 | australia | vs | england | in | the | ashes
+-1 | archer | just | because | reddit | says | its | funny | doesnt | mean | it | actually | is | 
+-1 | oh | no | you | didnt
+-1 | so | like | how | can | we | determine | who | is | more | liberal | open | minded | and | progressive
+-1 | anaconda
+-1 | what | about | smaller | than | 1 | step
+-1 | hangin | round | downtown | by | myself
+-1 | did | pacquiao | seriously | score | 0 | points
+-1 | arent | they | the | same | in | that | song | i | havent | listened | to | it | really | cause | its | so | freaking | annoying | 
+-1 | clothes | its | why | older | clothes | still | feel | dirty | after | a | wash
+-1 | dont | have | any
+-1 | yeah | im | a | bassist | ive | used | compressors | before | if | only | you | could | set | up | a | compressor | for | a | tv
+-1 | haha | i | get | it | cause | women | are | property | hahahha | good | ol | fashioned | casual | sexism
+-1 | its | weed
+-1 | gt | from | what | ive | heardgreetings | fellow | neckbeard
+-1 | yeah | maybe | hed | have | a | better | chance | if | he | wasnt | carrying | them | around | to | his | interviews
+-1 | but | thats | you | you | would | be | happy | with | that | i | wouldnt | billions | of | other | people | and | all | that
+-1 | you | seem | to | be | forgetting | 911
+-1 | it | works | better | when | the | character | has | had | at | least | one | movie | beforehand
+-1 | perhaps
+-1 | genuinely
+-1 | thats | a | good | question | 
+-1 | yeah | but | who | cares | if | they | destroy | their | own | buildingsfishing | for | downvotes | today | ah
+-1 | i | sincerely | doubt | he | wishes | his | dick | was | actually | the | size | of | a | giant | national | monument
+-1 | edi | was | really | smart | in | the | mass | effect | series
+-1 | saying | we | are | groot | when | he | should | have | said | i | am | groot | 
+-1 | ah | the | legendary | johnny | cash | masterpiece | trent | reznor | did | an | ok | cover | of | it | though
+-1 | 4th | dimensional | love | will | save | us | all
+-1 | id | have | to | say | ops | mum | and | fucking | her | 
+-1 | what | song | is | this | one | first | in | this | thread | i | havent | got | right | away | 
+-1 | you | win
+-1 | really | though | 
+-1 | 6 | words | but | i | would | have | still | got | it | at | 5 | haha
+-1 | i | assume | you | know | what | ratheism | is | but | if | you | dont | here | you | go
+-1 | marco
+-1 | and | the | lazy | ones | who | are | upset | that | theyre | on | the | botton
+-1 | oh | say | can | you | see | murica
+-1 | maybe | you | should | stop | antagonizing | potentially | suicidal | people | on | the | internet
+-1 | want | to | get | really | highdrunk | stick | the | drugsalcohol | up | your | butt
+-1 | never | gonna | give | you | up
+-1 | ah | cool
+-1 | id | like | to | send | some | money | too | so | would | you | op | send | me | the | paypal | information | 
+-1 | i | swam | the | rio | grande | as | a | 10 | yogoing | from | us | to | mexico | and | back
+-1 | do | you | think | putin | has | the | stones | to | laun
+-1 | inception | is | a | pretty | good | example | of | this
+-1 | le | brave | 
+-1 | digg | is | a | thing | again
+-1 | its | not | that | theyre | lazy | its | a | stupid | injoke | thats | totally | not | in | or | a | joke | anymore
+-1 | tyler | perry
+-1 | breaking | bad | s1e1 | the | sad | handjob | scene | i | noped | out | of | there
+-1 | fuck | indian | food
+-1 | house | of | cardsseemed | like | a | really | good | show | but | was | just | too | slow | paced
+-1 | looks | like | youve | tried
+-1 | what | a | film | student | comment
+-1 | sticks | and | rocks | arent | food | mans
+-1 | isnt | that | the | point
+-1 |  | urlhere | 
+-1 | what | about | the | one | where | elderly | people | get | money | for | nothing
+-1 | id | go | buy | one | 
+-1 | after | flushing | of | course | but | if | youre | feeling | kinky | or | youre | german | you | can | skip | that | step
+-1 | no | way | to | tell | said | meteorite | is | undiscovered
+-1 | the | fuck | is | a | sanga | 
+-1 | the | internet | 
+-1 | chuggachuggachuggachugga
+-1 | check | out | my | edit
+-1 | dominance | asserted
+-1 | alot | younger
+-1 | i | think | i | cant | get | in | to | shows | that | lack | a | male | lead | actor
+-1 | smear | poo | onto | your | face
+-1 | so | you | gave | one | night | of | rest | to | mothers | jokes | after | yesterday | ya | seems | like | enough | down | time
+-1 | poorly | written | characters
+-1 | stuck | jar |  | stuck | where | 
+-1 | what | industry
+-1 | smart | ass | remark | let | to | more | sex
+-1 | well | he | has
+-1 | cool |  | if | i | ate | meat | on | pizza | id | do | this |  | expensive | but | worth | it
+-1 | try | randomactsofdoor
+-1 | blacks | vs | whites
+-1 | trust | mewe | are | the | dumbest | you | are | just | seeing | the | cream
+-1 | youre | in | the | majority | then
+-1 | stan | lee | created | the | xmen | as | well | as | the | avengers
+-1 | masturbating | the | shit | out | of | each | other
+-1 | ever | wanting | children
+-1 | remindme | 363 | days | steal | this | cunts | sweet | ass | idea
+-1 | ah | i | see | what | happened | you | were | talking | to | an | idiot | they | are | plentiful | this | time | of | year
+-1 | youre | doing | gods | work | son
+-1 | aaaaahh | hahaha | noi | dont | have | the | money | time | or | want | to | do | that | p
+-1 | tom | cruise
+-1 | i | would | eat | a | stool | step | or | otherwise
+-1 | depends | how | batshit | crazy | you | are
+-1 | wat
+-1 | rationale | has | nothing | to | do | with | facts | pleb | 
+-1 | how | long | after | release | also | i | prefer | most | games | on | console
+-1 | tag | that | shit | as | nsfw | man
+-1 | rtheydidthemath
+-1 | the | fly | episode | breaking | bad
+-1 | male | tampons
+-1 | may | be | its | comfortable | hanging | onto | the | wing | mirrors
+-1 | on | top | of | a | lamppost
+-1 | get | out
+-1 | its | more | complicated | than | that | i | just | dont | want | to | go | into | the | details | of | it
+-1 | remindme
+-1 | not | the | theater | watched | it | at | home | and | i | had | the | same | problem
+-1 | thats | not | funny | 
+-1 | what | country | does | this
+-1 | riamverysmart
+-1 | tupac
+-1 | why | not | zoidberg | 
+-1 | this | is | mein | rifle | there | are | many | like | it | but | this | one | is | mein
+-1 | you | monster |  | even | though | i | think | i | know | the | answer | this | is | an | important | question
+-1 | ayy | lmao
+-1 | i | dont | like | musicals | i | just | dont | apparently | this | means | im | literally | hitler
+-1 | u | kno | nothing
+-1 | im | pregnant | its | yours | and | if | you | leave | me | ill | kill | your | entire | family | works | every | time
+-1 | is | this | a | jokeedit |  | urlhere | 
+-1 | shes | the | reason | for | the | word | bitch
+-1 | so | youre | the | troll | lol
+-1 | you | are | a | smelly | pirate | hooker | why | dont | you | go | back | to | your | home | on | whore | island
+-1 | having | depression | and | being | guilt | tripped | into | living | 
+-1 | lousyanna
+-1 | no | anal | sex | scenes | cmon | disney | step | your | game | up | 
+-1 | awesomeness | how | do | you | like | the | job
+-1 | your | moms | 
+-1 | oh | joy | another | thread | of | religion | bashing |  | 
+-1 | thomas | the | tank | engine | urlhere | 
+-1 | gt | we | eat | much | worse | things | than | wood | pulpfor | instance | arbys
+-1 | youre | lazy
+-1 | missed | the | point | good | day
+-1 | paul | rudd | 
+-1 | that | doesnt | make | any | sense
+-1 | dude | spoilers
+-1 | overpriced | and | kind | of | snobby | i | would | imagine
+-1 | nicholas | cage
+-1 | umm | yea | i | would | reproduce | it | would | be | your | duty | to | do | so | to | at | least | try
+-1 | if | they | dont | then | god | will | come | down | and | take | their | genitals | away
+-1 | repeating | it | wont | make | you | any | less | wrong
+-1 | we | all | die | of | simultaneous | heart | attacks
+-1 | you | couldnt | pick | one | you | just | had | to | share | the | google | images | result | 
+-1 | i | can | work | that | out | too
+-1 | smaller | feet |  |  |  | buying | shoes | is | way | too | much | of | a | hassle
+-1 | one | bite | at | a | time
+-1 | rnocontext
+-1 | nah | youre | very | girly | looking | hunters | wont | be | friends | with | you
+-1 | he | had | no | dick
+-1 | cookie | monster
+-1 | family | 
+-1 | youre | delightful | ok | then | thanks | for | sharing
+-1 | ripe | gt | rape
+-1 | squirting | absinthe | out | of | my | mouth | through | a | lighter | to | make | a | flamethrower | 
+-1 | and | 7 | girls | were | raped | during | that | 7 | mins | sounds | good | to | me
+-1 | gthey | dad | j | k | rowlingftfy
+-1 | and | you | sound | like | an | arrogant | cunt |  | 
+-1 | megan | fox
+-1 | evolution
+-1 | alright | go | ahead | i | give | you | approval | with | using | fuck | do | your | best
+-1 | remindme | 360 | days | steal | this | other | guys | sweet | idea
+-1 | a | trash | can
+-1 | its | all | good | we | need | human | shields | too
+-1 | his | head | topples | to | the | floor | expressionless | youve | finally | killed | shia | labeouf | 
+-1 | highway | to | hell
+-1 | still | just | a | dead | mom | to | me
+-1 | haha | thats | what | allot | of | parents | b |  | anyways | belved | anyways
+-1 | the | officeim | sorry | but | theres | just | too | much | secondhand | embarrassment
+-1 | oooh | whose | burgers | are | better | 
+-1 | predictable | slavery | is | fine | for | some | people | see
+-1 | anthony | anderson | i | cant | stand | that | guy
+-1 | knuc | klesfor | anatomy | charting | purposes
+-1 | opps | i | misinterpreted | it
+-1 | 610 | with | rice
+-1 | try | root
+-1 | is | there | a | man | in | that | couch
+-1 | oh | come | on | lol | ask | any | guy | what | they | think | o | a | muscular | woman | they | will | say | ew
+-1 | nah | you | would | get | so | bored | after | a | century | or | two
+-1 | i | would | find | you | and | shove | it | up | your | ass | for | asking | a | stupid | question | 
+-1 | remindme | one | day |  | remind | me | is | still | a | thing
+-1 | michael | bay
+-1 | let | me | explain | the | difference | between | a | power | fantasy | and | empowerment | penis | vagina
+-1 | six |  |  |  | woah | thats | incredibly | sad
+-1 | up | town | funk | you | up | uptown | funk | you | up
+-1 | gtthat | name | isnt | going | to | work
+-1 | the | dark | ages | i | either | slept | through | those | classes | or | nothing | happened | during | em | 
+-1 | 
+-1 | im | not | really | sure | how | you | can | down | vote | me | for | apologising | but | sure | okay | 
+-1 | but | that | thigh | gap | is | like | evolutions | way | of | preventing | that | 
+-1 | rmensrights | is | that | way
+-1 | hahayoure | basically | my | hero
+-1 | this | thread | is | a | circle | jerk | of | self | pity
+-1 | earplugs | andor | duct | tape
+-1 | ive | heard | that | line | beforeill | believe | it | when | i | see | it
+-1 | remindme | 360 | days | are | you | still | virginless | gf | less | loser
+-1 | grey | american | apparel | boxer | briefsi | dont | know | why | i | just | answered | this
+-1 | dip | that | bad | boy | in | sweet | baby | rays | bbq | sauce | is | there | any | other | way
+-1 | melissa | mccarthy | 
+-1 | youre | welcome
+-1 | it | is | good | for | me | life | is | awesome
+-1 | long | time | reader | great | sub
+-1 | watch | any | interview | scene | ever
+-1 | wowmore | victim | blamingyou | seem | like | a | really | swell | and | totally | not | misogynistic | guy
+-1 | around | the | world
+-1 | i | think | youre | overestimating | what | the | human | body | is | capable | of | especially | while | stressed
+-1 | oh | and | my | crewwhich | includes | my | familycalls | me | uhura | wanna | know | why
+-1 | garbage | men | and | you | dont | know | why | thats | the | weirdest | fear
+-1 | sadly | many | people | go | to | school | yet | dont | learn
+-1 | in | a | huge | house | overlooking | malibu | beach | 
+-1 | saw | trap | if | the | player | survives | heshe | shall | be | worthy | of | hisher | life
+-1 | how | can | you | relate | to | that | dude
+-1 |  | urlhere | youre | welcome
+-1 | survival | of | the | fit | 
+-1 | italy | 
+-1 | why | do | you | care
+-1 | can | jet | fuel | melt | dank | memes
+-1 | definitely | notto | much | of | a | risk | that | one | of | them | will | be | a | boy
+-1 | pretty | much | haha
+-1 | what | would | happen | if | you | microwaved | a | living | being | like | a | cat | or | more | curiously | a | human | baby | 
+-1 | religion | 
+-1 | an | expert
+-1 | stick | your | dick | exclusively | in | crazy
+-1 | are | you | really | too | lazy | to | look | it | up | thats | pathetic
+-1 | when | did | you | first | take | the | red | pill
+-1 | combustion | engines
+-1 | taking | my | rapeing | shoes | off
+-1 | 8 | with | rice
+-1 | remindme | one | year | this | comment
+-1 | because | you | cant | ask | them | if | they | would | mind | being | eaten
+-1 | reign | over | me | was | good
+-1 | he | gets | his | fastfood | from | ikea
+-1 | i | wasnt | countering | anyone | elses | statement | so | that | would | mean | the | ball | is | in | your | court | friend
+-1 | vin | diesel
+-1 | let | me | know | when | you | find | an | alternative
+-1 | if | youre | going | to | correct | someones | grammar | do | so | with | a | grammatically | correct | sentence
+-1 | if | shes | bored | enough | to | wonder | about | her | whatsapp | messages | i | think | you | might | have | been | the | bad | one
+-1 | not | a | single | coherent | thought | in | this | entire | comment
+-1 | lol | my | grandma | has | been | pulled | over | countless | times | for | driving | too | slow
+-1 | generally | equivalent | to | the | average | users | shoe | size
+-1 | luke | skywalker
+-1 | i | still | dont | enjoy | doing | it | but | i | always | do | it | when | im | drunk | my | so | must | have | me | 
+-1 | she | does | you | mean
+-1 | gaston | 
+-1 | ah | lucky | seven
+-1 | so | lazy
+-1 | the | hulk
+-1 | that | was | way | too | long | i | just | read | the | last | paragraph | lol
+-1 | eh | shades | of | gray | is | mostly | just | boring | justice | is | actively | embarrassing | imo
+-1 | planescape | torment
+-1 | vegans | are | wierd | and | jerks
+-1 | this | movie | was | fun | until | half | way | through | when | i | got | ultra | bored | with | it
+-1 | same | situation | with | my | girlfriend | better | than | it | being | really | big | i | guess
+-1 | rtrees | hmm | i | wonder | whyrpcmasterrace | they | just | nice | n | shitwhen | they | want
+-1 | i | miss | robin | 
+-1 | you | tried | but | lets | just | admit | it | huh
+-1 | all | the | yank | tourists
+-1 | when | people | mumble | to | themselves | 
+-1 | smoking | a | bong
+-1 | edit3 | so | mad | so | so | mad
+-1 | yes | it | was | a | joke | 
+-1 | why | isnt | this | at | the | top
+-1 | yes | now | to | finally | get | the | question | answereddoes | your | fuel | actually | melt | steel | memes
+-1 | its | alright | im | not | mad | at | you | it | was | just | came | off | as | incredibly | rude | and | dim | witted
+-1 | two | words | scented | tampons | theyre | like | an | air | freshener | you | can | jam | up | there | 
+-1 | raskwomen
+-1 | doesnt | load | 
+-1 | but | of | course
+-1 | thats | some | funny | shit
+-1 | must | be | nice
+-1 | especially | walker | bites
+-1 | its | fake | but | i | like | it
+-1 | being | called | a | girl | is | insulting | to | a | guy | though
+-1 | probably | 
+-1 | notwithstanding
+-1 | why | do | black | women | dress | like | they | do | in | rghettoglamourshots
+-1 | because | im | about | to | eat | cake
+-1 | dont | choose | anything | you | want | to | enjoy | later
+-1 | r | u | sur | u | r | str8
+-1 | thinking | how | to | answer | this |  | nah42
+-1 | because | its | raining | and | i | dont | have | to | water | the | petunias | now
+-1 | what | about | saddam | in | iraq | dude | built | roads | and | schools | then | the | oil | got | to | him
+-1 | i | have | walked | almost | exactly | 5 | miles | so | far | today | i | have | a | pedometer | 
+-1 | oh | pee
+-1 | ahyeah | me | ahaha
+-1 | that | too
+-1 | holy | fucking | meta
+-1 | im | not | telling | you | that
+-1 | you | know | you | couldve | just | said | we | dont | want | to | 
+-1 | the | woman | is | a | cheating | cunt
+-1 | i | see | what | you | did | there
+-1 | no |  | this | is | from | experience |  | ive | dated | some | bitchy | women | in | my | life | 
+-1 | this | is | a | linux | system | i | know | this
+-1 | you | dont | know | his | history | with | changing | inanimate | objects | into | food | huh
+-1 | i | cum | 100 | of | the | time | during | limp | fish | sex | 
+-1 | alright | samwise
+-1 | girls | do | this | too
+-1 | yank | yankee |  | person | for | the | usa
+-1 | i | wonder | how | long | someone | can | go | without | getting | gold
+-1 | how | do | magnets | work
+-1 | you | sick | excuse | for | a | human
+-1 | the | 2015 | porsche | 911 | gts | urlhere | clubcoupe4reducedjpg
+-1 | well | we | are | at | it | can | i | get | some | gold
+-1 | born | and | raised | here | unfortunately
+-1 | what | about | the | doorknob
+-1 | sometimes |  | neat | not | long | and | a | pretty | color | is | nice
+-1 | you | had | sex | with | your | brother
+-1 | yes | even | if | theyre | not | in | america | a | black | man | born | in | london | is | still | african | american | 
+-1 | the | gameanytime | you | think | of | it | you | lose | 
+-1 | okay | world | outside | of | his | own | 
+-1 | sadly | there | were | a | lot | of | episodes | of | that | quality | this | past | season
+-1 | seems | very | easy | to | smuggle | drugs | in | then
+-1 | how | does | a | human | stomach | react | to | wood
+-1 | i | once | had | sex | with | an | octopus | those | suction | cups | did | not | feel | good
+-1 | im | with | this | guy | 
+-1 | like | id | ever | trust | any | man | with | my | fertility | 
+-1 | loose | smelly | pussy | is | the | most | disgusting | thing | ever | 
+-1 | you | just | have | to | say | ethiopian | no | need | for | redundancy
+-1 | i | dont | really | understand | but | upvote
+-1 | thats | the | joke
+-1 | holds | up | spork
+-1 | what | do | you | call | it | when | a | black | man | and | a | chinese | woman | have | a | babya | neggroll
+-1 | thats | called | prison | style
+-1 | what | if | it | is
+-1 | bullshit
+-1 | except | he | didnt | destroy | anything | 
+-1 | so | what | youre | saying | is | that | animal | necrophilia | is | perfectly | fine | perfect | 
+-1 | wow | such | courage | much | brave
+-1 | i | respect | you | 
+-1 | just | thinking | about | that | made | my | legs | feel | good | 
+-1 | and | now | im | reinventing | you | to | shut | your | mouth | for | the | rest | of | this | conversation
+-1 | you | cant | do | shit | youre | a | useless | bum | taking | free | internet | lessons | on | codeacademy | shut | your | trap
+-1 | you | can | have | good | things | without | religion
+-1 | that | was | weird
+-1 | there | is | more | splashback | than | you | realize
+-1 | wasnt | jenny | and | carly | it | was | euron | and | daario
+-1 | lol | bruv | ur | too | funny | i | know | what | ur | doing | by | nails | u | mean | boobs
+-1 | i | try | to | stay | as | far | away | from | furries | as | humanely | possible
+-1 | sure | looks | like | it | yep
+-1 | 3 | sons | and | they | all | broke | their | arms
+-1 | my | most | recent | discovery | is | rterrifyingrobots | there | has | to | be | more | good | stuff | out | there
+-1 | i | didnt | mean | to | imply | that
+-1 | only | way
+-1 | i | was | born
+-1 | no | it | doesnt
+-1 | indeed | fine | sir
+-1 | that | video | of | just | a | waffle | being | flipped | over | 
+-1 | time | definitely | could | 
+-1 | in | first | grade | class | i | really | dont | have | much | memory | that | far | back
+-1 | deflategate
+-1 | woah | easy | there | why | are | you | assuming | im | a | cisgendered | hetero | male
+-1 | skype | is | not | a | catchall | term | for | voip
+-1 | gt | the | music | is | already | there | it | just | never | catches | onbecause | it | is | crap | that | everyone | hates
+-1 | and | they | complain | about | vote | brigading
+-1 | how | do | blind | people | know | when | to | stop | wiping | when | they | poo
+-1 | jet | fuel | cant | melt | steel | beams
+-1 | ditto | because | sex | slaveor | maybe | shinx | adorable | soontobe | badass
+-1 | well | said
+-1 | massage | parlors | in | asia | seem | to | be | doing | it | much | better | than | i | could | ever | do
+-1 | the | link | isnt | working | for | me | 
+-1 | i | can | only | answer | the | second | part | to | part | two | and | the | answer | is | because | you | just | got | stabbed
+-1 | this | post
+-1 | facebook | thank | gawd | thats | over | 
+-1 | mega | shark | vs | giant | octopus | 
+-1 | frozen | never | seen | it | never | intend | to
+-1 | sometimes | i | wish | my | account | wasnt | even | born
+-1 | hahahahaha | wow | did | you | just | come | up | with | that | 
+-1 | scratch | assholelift | finger | to | nose
+-1 | adolf | hitler
+-1 | nuff | said
+-1 | pirates | of | the | caribbean | why | is | this | not | the | top | answer
+-1 | at | least | you | can | change | this | problem
+-1 | dont | be | hating | on | 2am | chili
+-1 | or | anywhere |  |  | call | it | what | you | will | youre | still | either | a | man | or | woman
+-1 | die | hard |  | id | just | want | to | see | how | that | worked | out
+-1 | arent | jenny | and | carly | the | chicks | from | icarly | 
+-1 | put | on | your | reading | glasses
+-1 | shoot | toby
+-1 | to | trick | him | into | making | me | food | afterwards | obviously | 
+-1 | did | you | just | leave | the | penis | 20 | subreddit
+-1 | its | a | reaction | to | the | fat | acceptance | movement | 
+-1 | your | momlamo
+-1 | which | is | less | of | a | flaw | than | being | fat | 
+-1 | nope | chuck | testa
+-1 | no | religion
+-1 | quit | fucking | posting | this | no | one | but | you | is | talking | about | that | stupid | ass | confession | bear
+-1 | no |  | its | not | a | second | life | it | would | just | be | a | continuation | of | the | same | life
+-1 | ops | mom
+-1 | weird | anime | fucks
+-1 | tom | cruise
+-1 | if | you | keep | at | it | eventually | you | can | work | through | the | gag | reflex | 
+-1 | this | fucking | thread |  | over | and | over | and | over
+-1 | legenwaitforitdary
+-1 | not | great | upoemforyoursprog | is | so | much | better
+-1 | not | worth | it | i | dont | want | ten | billion | dollars | if | i | cant | breathe | comfortably
+-1 | holy | shit | i | remember | this
+-1 | bs | your | perspective | is | fucked
+-1 | that | was | the | most | unfunny | shit | ive | seen | on | here | in | a | while
+-1 | mommas | boy | much | you | have | a | titty | attachment | issue | you | need | to | deal | with
+-1 | you | act | strong | but | i | doubt | you | even | have | a | real | relationship | with | anyone
+-1 | sawdust | smoothies | for | breakfast
+-1 | your | user | name | states | otherwise | 
+-1 | im | shocked | that | people | find | these | stories | to | be | real
+-1 | i | hate | it | when | reddit | does | that | shit |  | its | like | for | a | few | moments | reddit | goes | full | retard | 
+-1 | hand | jobs | are | nice | too
+-1 | ok | im | sure | you | did | try | it | in | the | real | life | thanks | 
+-1 | multiple | girls | have | made | me | stop | because | its | too | big
+-1 | hopefully | theyd | wipe | each | other | out
+-1 | yeah | ok | 
+-1 | no |  | and | question | deleted
+-1 | yes | there | is | a | thing | called | tv | and | on | this | thing | called | tv | they | show | shows
+-1 | lets | fuckin | brainstorm | this | out | then | i | submit | breezewayed | 
+-1 | earthquake | inc
+-1 | its | called | rock | bottom
+-1 | im | so | drunk | and | high | i | think | im | drigh | wait | that | makes | dry | haaa | im | dry | dude |  | 
+-1 | work | life | balance
+-1 | zach | braff | garden | state | and | wish | i | was | here
+-1 | horrible | people | know | theyre | horrible | just | like | a | narcissist | will | admit | they | are | a | narcissist
+-1 | oxygen
+-1 | george | zimmerman | shot | dead | while | raping | an | under | aged | black | girl
+-1 | walking | dead
+-1 | not | having | that | as | a | guy | is | awful | swamp | ass | plus | no | hair | equals | super | chafed | ass
+-1 | if | you | forget | to | go | 1 | when | you | go | 2 | and | then | you | remember | and | go | 1 | does | that | make | it | a | 3
+-1 | but | in | the | end | reddit | made | someone | innocent | get | murdered |  | 
+-1 | private | put | that | gun | away | knives | are | far | more | effective
+-1 | if | a | cripple | in | a | wheelchair | got | offended | can | he | walk | out
+-1 | a | dime | store | whore | not | only | are | you | cheap | youre | also | like | 90
+-1 | my | sac
+-1 | anything | posted | by | raww
+-1 | free | your | mind | and | your | ass | will | follow
+-1 | im | 18 | and | i | have | no | idea | how | to | properly | fold | clothes | or | fill | a | dishwasher
+-1 | gt | that | solipsist | hogwashnow | youre | just | trying | to | get | on | my | theoretical | nerves
+-1 | i | cant | drive | my | car | to | work | because | theres | a | cow | blocking | the | road
+-1 | cannabis
+-1 | id | probably | start | by | shoving | it | up | your | asshole
+-1 | i | eat | cereal | dry | what | do
+-1 | more | than | once
+-1 | whitney | houstons | pussy
+-1 | its | name | is | ambivert | and | its | indeed | a | unique | psychological | personality
+-1 | so | far | oatmeal | with | milk | and | jam | and | two | very | small | buns | with | real | butter
+-1 | id | like | to | see | some | examplesevidence | of | this
+-1 | fewer | calories | than | i | burned
+-1 | literally | nobody | cares | about | you | either
+-1 | a | pedophiles | dick
+-1 | youre | right | i | have | one | more | day | at | work | before | i | get | my | paycheck | from | the | airline
+-1 | glass | dat | cunt
+-1 | are | you | in | yet
+-1 | was | there | any | indication | of | her | liking | girls | beforehand
+-1 | read | a | seymour | hersh | article | 
+-1 | well | because | fat | acceptance | really | is | a | bad | thing
+-1 | thank | you | for | signing | up | for | cat | facts | you | will | now | receive | daily | facts | about | cats | gtolt
+-1 | unlimited | powaaaaaaahdeath | star | living | space
+-1 | do | you | want | fries | with | that
+-1 | so | what | do | you | like | to | do | i | dunno | internet
+-1 | probably | just | high
+-1 | because | the | majority | of | them | lack | all | social | respect | for | others | 
+-1 | probably | this | post
+-1 | wow | is | she | autistic | or | something
+-1 | yeah | i | find | that | if | i | stick | to | the | amount | of | calories | they | want | me | to | eat | i | dont | lose | any | weight | 
+-1 | have | you | ever | eaten | deep | fried | hamster | okay | me | neither
+-1 | oh | god | this
+-1 | are | you | a | murderer
+-1 | rpicsgo | for | the | postsstay | for | the | comments
+-1 | so | meta
+-1 | am | on | day | 15 | impossible | to | not | get | hard | looking | at | a | nice | couch
+-1 | jet | fuel | cant | melt | steel | beams | 
+-1 | dude | guys | who | drive | these | dont | know | how | to | indicate | 
+-1 | there |  | is | no | god
+-1 | your | mom | loves | gonewild | too
+-1 | you | made | me | snort | you | and | i | are | enemies | now
+-1 | can | confirmsource | girlfriend | takes | the | pill
+-1 | gt | after | all | the | harassmentplease | provide | evidence | of | this | harassment
+-1 | this | one
+-1 | selfie | sticks
+-1 | cannabis | 
+-1 | i | wouldnt | know | anything | about | that | i | have | a | stationary | desktop | computer
+-1 | buh | dum | tssssssssssssssssssssssssss
+-1 | getting | folded
+-1 | gt | jacksfilms | i | have | no | idea | what | this | is
+-1 | now | do | one | that | rhymes
+-1 | how | did | you | get | in | to | my | apartment
+-1 | god | tier | post
+-1 | next | year | i | can | drink | i | do | not | live | in | america
+-1 | but | of | course | its | the | most | important | thing | she | might | have | done
+-1 | hiv | status
+-1 | hmm | unless | it | wasnt | successful | whole | bunch | of | trouble | there
+-1 | im | a | dude | and | i | weigh | more | than | i | would | like | to | 
+-1 | dedicated | subreddits | are | kind | of | answer | 
+-1 | it | was | already | asked | earlier | but | i | fucking | hate | opposite | questions | of | popular | threads | anyway
+-1 | well | thats | good | that | shes | a | nurse | in | case | you | break | both | your | arms | or | something
+-1 | its | actually | about | your | mamas | sex | change | operation | 
+-1 | still | waiting | for | my | patriarchy | welcome | presents | any | day | now
+-1 | any | rap | song
+-1 | curling | as | an | olympic | sport
+-1 | questions | like | this
+-1 | but | to | an | extent | most | others | are | basically | 95 | that | 
+-1 | op | looking | for | people | to | burn | at | stake
+-1 | no | hes | into | anal |  | which | is | very | fun | by | the | wayedit | see | hereremoved | by | popular | demand
+-1 | must | be | nice | knowing | all | males
+-1 | i | wish | that | my | so | has | the | ability | to | grant | me | and | only | me | unlimited | unrestricted | wishes
+-1 | reposting | isnt | going | to | get | you | more | answers
+-1 | nicki | minaj |  | anaconda | urlhere | 
+-1 | i | dunno | about | you
+-1 | motherfucker | who | stole | the | goddamn | cookie | from | the | goddamn | cookie | jar
+-1 | him | and | uclinttacklessbery | are | my | absolute | favorites
+-1 | learn2internet
+-1 | he | says | women | dont | enjoy | the | jackhammer | whereas | im | saying | that | each | person | is | different
+-1 | justin | beiber | was | an | accident | child | but | turned | out | to | make | millions | 
+-1 | next | year | will | make | a | decade | since | i | graduated | high | school
+-1 | i | like | kickasstorrents
+-1 | eating | unrefined | iron | ore
+-1 | selfie | sticks
+-1 | yes | sadly
+-1 | avatar
+-1 | well | you | what | they | sayflick | a | dickor | was | it | bic
+-1 | selfie | sticks
+-1 | does | reddit | ever | get | tired | of | fucking | stupid | beings
+-1 | relevant | username
+-1 | to | be | short |  | alcohol
+-1 | i | award | you | no | points | and | may | god | have | mercy | on | your | soul
+-1 | i | graduated | high | school | while | lil | john | was | screaming | yeah
+-1 | im | too | young | to | be | too | old | for | this | shit | and | yet
+-1 | im | no | longer | a | teen
+-1 | show | me | your | bulbasaur | and | ill | squirtle | for | you | 
+-1 | whoever | invented | money
+-1 | i | pronounce | it | as | a | word
+-1 | set | a | bad | example
+-1 | flawless | logic
+-1 | cause | its | utter | shite
+-1 | woosh
+-1 | did | you | say | swallow | tell | me | more
+-1 | the | feels
+-1 | right
+-1 | it | would | be | funny | if | she | did | it | occasionallyall | the | time | though | you | have | a | problem | wife
+-1 | why | dont | we | just | go | ahead | and | keep | some | things | sacred
+-1 | your | mom | was | always | bitching | about | her | clients | and | the | fact | our | mirrors | were | dirty
+-1 | minor | i | hardly | even | know | her
+-1 | a | vote | for | bernie | sanders | is | a | vote | for | a | better | america
+-1 | iphonesbeats | by | drewindowsany | top | 40 | music
+-1 | explain
+-1 | avengers | and | guardians | of | the | galaxy
+-1 | prove | what | i | havent | claimed | anything | 
+-1 | not | sure | of | the | reference | but | seinfeld | is | always | a | sure | bet
+-1 | gifs | not | workin
+-1 | bass | about | all | that
+-1 | sighupvote
+-1 | of | zelda | loved | that | cartoon
+-1 | friday | night | lights | and | the | room | tommy | wouldnt | know | what | to | do | with | all | those | footballs
+-1 | am | i | the | only | uncut | person | around | here | who | keeps | their | foreskin | clean | 
+-1 | some | paper | and | a | few | coins | why
+-1 | triggered
+-1 | sure | of | made | up | money
+-1 | are | you | for | real | 
+-1 | all | great | quotes | have | been | said
+-1 | knowledge | is | knowing | im | a | fruit | wisdom | is | not | eating | salad
+-1 | gtgtmen | there | is | such | a | thing | as | too | big | be | quiet | you | lesbian
+-1 | punch | people | you | drive | with | while | in | the | car
+-1 | inability | to | communicate | in | the | most | effective | manner
+-1 | no | you | dont
+-1 | the | first | glance | a | woman | will | get | of | my | cock | will | be | when | its | erect | anyway | so | who | cares
+-1 | it | depends | on | if | youre | male | or | female | 
+-1 | nsfw | plsi | wasnt | sure | what | i | was | expecting | 
+-1 |  | wth | is | wrong | with | you
+-1 | i | try | to | forgive | myself | for | being | human | thought | of | that | about | 20 | years | ago | while | on | mdma
+-1 | male | conscription | even | though | women | are | supposedly | equal | to | men
+-1 | rnofap
+-1 | true | but | i | have | to | say | i | like | kieter | sutherland | as | big | boss | in | mgs5
+-1 | its | a | song | reference | 
+-1 | i | i | dont | think | theyre | really | funny | 
+-1 | hello | have | a | good | day | 
+-1 | penis | tip | touches | inside | of | the | toilet | bowlyep |  | now | i | have | aids
+-1 | its | not | because | a | 14yo | lost | his | life | that | you | must | lose | your | sense | of | humor
+-1 | i | can | now | legally | drink | alcohol | in | america | 
+-1 | gt | diareahdiarrhea
+-1 | gt | ive | got | an | above | average | phallicdoesnt | everybody | have | this
+-1 | i | think | shes | my | wife | now
+-1 | speak | for | your | self | 
+-1 | oreo | ospersonally | never | had | them | but | i | probably | know | how | it | tastes | and | probably | tastes | amazing
+-1 | the | mourning
+-1 | this | post | 
+-1 | triggered
+-1 | waiti | would | actually | have | to | go | outside | and | meet | real | peopleshit
+-1 | relevant |  | urlhere | 
+-1 | did | this | happen | to | you
+-1 | down | to | fiesta
+-1 | this | thread
+-1 | thats | shitty
+-1 | give | me | a | million | dollars | and | ill | tell | you
+-1 | deez | nuts
+-1 | cause | some | people | have | to | hate | to | make | themselves | feel | better | i | cant | stand | it | either
+-1 | i | have | a | child | well | fuck
+-1 | you | sexually | mutilated | american | savages | made | my | day | thanks | 
+-1 | guys | guys | guys | she | fucked | me | too | dont | fight | over | a | whore | im | seeing | her | regularly | every | night
+-1 | i | do | 
+-1 | grind | it | into | powder |  | make | shakes | 
+-1 | leads | to | self | censorship | in | what | way
+-1 | prove | star | wars | is | fiction | with | evidence | 
+-1 | gayyyy
+-1 | gluten | free | products | it | aint | going |  | to | save | you | 
+-1 | mailing | them | an | envelope | full | of | glitter
+-1 | or | like | an | all | day | acid | trip | but | you | take | the | antiacid | to | not | be | there
+-1 | so | funny | seeing | all | those | posh | kids | in | their | expensive | clothes | protesting | about | it
+-1 | wellwhats | the | answer
+-1 | the | question | was | worst | not | best
+-1 | you | dont | watch | good | movies
+-1 | you | heard | aol | got | bought | out
+-1 | isnt | that | what | kung | fu | is | for |  | i | mean | like | in | a | self | defense | sense | not | kung | fu | groping
+-1 | please | enumerate | how | someone | knowing | where | i | am | leads | to | self | censorship
+-1 | i | peed | accidentally
+-1 | its | not | a | big | deal | source | subscribed | to | both | rhugeboobs | and | rtinytits | on | my | nsfw | account
+-1 | who | am | i | kidding |  | if | youre | buying | it | im | drinking | it |  | im | not | picky
+-1 | didnt | those | bands | have | like | a | sexual | meaning
+-1 | soap | and | lotion | are | your | friend
+-1 | check | out | blackmill |  | d
+-1 | universal | making | waterworld
+-1 | 13 | hours | a | day | for | a | week | that | doesnt | sound | too | bad | at | all
+-1 | haters | gonna | hate
+-1 | does | this | smell | like | chloroform | to | you
+-1 | because | conservatives | be | like | sheeetttt | and | liberals | be | like | ffffuccckkk
+-1 | i | used | to | be | able | to | touch | my | left | index | fingertip | to | my | wrist | by | bending | it | backwards
+-1 | sounds | very | appropriate |  | if | dating | were | a | job
+-1 | working | at | subway | ugh | still | have | flashbacks | free | cookies | though
+-1 | nice | try | admins
+-1 | ohhhhhhhh | snap
+-1 | have | an | upvote
+-1 | thats | my | secret | im | always | in | boner | mode
+-1 | steve | irwin | killed | by | a | stingray | a | relatively | harmless | animal
+-1 | you | wait | for | a | chance | such | patience
+-1 | i | missed | something | here | 
+-1 | thats | fucked | completely | normal | but | totally | fucked | up
+-1 | nice | job | lumping | socially | awkward | children | in | with | sociopaths | op
+-1 | thats | a | gay | way | to | put | it
+-1 | yeah | you | like | that | you | fucking | retard
+-1 | only | valid | if | she | smokes | a | mean | pole | 
+-1 | stupidest | reason | ever | 
+-1 | android
+-1 | maybe | she | was | just | a | slut
+-1 | do | you | have | children | then | no | 
+-1 | masturbate | in | public | i | may | or | may | not | find | times | to | do | that | still
+-1 | did | you | also | blow | each | other | and | call | it | adjusting | to | puberty
+-1 | how | these | things | are | happening | 
+-1 | rintactivists | 
+-1 | he | asked | about | countries | none | of | these | are | countries | 
+-1 | jurassic | world | 2 | electric | boogaloobasically | competitive | dinosaurs | gyrating | to | 80s | music
+-1 | thank | you | for | showing | me | this
+-1 | lol | wtf
+-1 | kill | his | family
+-1 | eating | this | chocolate | bar
+-1 | can | confirm | am | irish
+-1 | i | think | this | will | just | silence | the | uproar | she | has | created
+-1 | hmm | thats | a | pretty | unusual | one |  | 
+-1 | before | gunshow | old | are | you
+-1 | i | have | been | going | around | cutting | all | the | loose | threads | i | find
+-1 | gt | were | all | sinnersbold | man | 
+-1 | askreddit | doesnt | have | mods | 
+-1 | he | is | steel | type | doesnt | affect | him
+-1 | the | narb | no | apparent | reason | boner | also | the | one | i | swear | is | the | non | arithmetic | related | boner | 
+-1 | mahraa
+-1 | so | its | ok | to | be | a | fat | black | gay |  | atheist | 
+-1 | taco | bell
+-1 | i | know | that | im | talking | about | how | they | went | about | it | 
+-1 | imtryingreallyhardiswearthatthisisonlyonewordandiknowiforgottoputaperiodbackthere | the | end
+-1 | waynes | world | and | the | dark | knight | risesbanes | world
+-1 | could | you | provide | some | context | pls
+-1 | gt | orgt | i | am | a | hobbit | and | kanye | is | a | gayfish
+-1 | cookie | monster | obviously
+-1 | stop | pandering | attentionwhoring | cunt
+-1 | rnews | should | be | called | rliberalnews | every | headline | is | some | progressive | cause | de | jour | 
+-1 | chrees
+-1 | im | still | going | to | post | but | downvoting | is | censorship | as | nobody | will | see | my | new | posts | made
+-1 | not | a | problem | for | me | dick | and | balls | are | just | fine
+-1 | judging | by | this | titlego | back
+-1 | or | racism | or | sexism | its | all | dead | here | in | america
+-1 | playstation | 4
+-1 | oh | you | look | pointed | out | his | username | how | clever | of | you
+-1 |  | ok | i | guess | i | will | add | your | username | to | the | report | im | sending | admins | as | well
+-1 | squirtle | is | the | least | competitively | viable | of | the | three | get | gud | scrub
+-1 | a | fuckin | penis
+-1 | doesnt | matter | saw | sissies | tits
+-1 | tldr | murica
+-1 | can | we | start | a | chain
+-1 | ctrl | f | jumper | cablesfinally | found | you
+-1 | source
+-1 | levaquin
+-1 | i | have | to | do | this | almost | daily | 
+-1 | dont | worry | you | lost | your | balls | a | long | time | ago | castration | is | not | needed | 
+-1 | men | can | got | my | so | off | 4 | times | back | to | back | once | 
+-1 | talking | about | doxxing | people | where
+-1 | not | responding | to | people | to | dumb | to | read | my | other | comments | anymore | sorry
+-1 | why | can | nobody | spell | cue | anymore
+-1 | anyone | got | a | link | to | this
+-1 | that | doesnt | sound | like | a | very | calm | class |  |  |  |  | ill | just | see | myself | out
+-1 | this | already | takes | place | in | the | uk | at | least
+-1 | there | is | no | god | yahweh | jehovah | jesus | allah | etc
+-1 | because | you | can | wear | your | robe | backwards | for | the | same | effect
+-1 | that | much | we | can | agree | on | 
+-1 | i | have | one | love | using | that | thingtastes | good | and | easier | to | clean | up
+-1 | reference |  | urlhere | 
+-1 | nah | i | drank | that | mofo | like | it | was | the | last | day | on | earth
+-1 | because | its | full | of | people
+-1 | more | like | a | loin |  | it | was | pretty | good | minus | the | buckshot | that | handt | been | extracted
+-1 | durr | durrr | derp | and | drooling | doesnt | count | as | saying | no | so | id | say | consent | is | present
+-1 | because | society | go | ask | 2x |  | theyll | give | you | a | lovely | unbiased | answer
+-1 | a | tardigrade
+-1 | chayce
+-1 |  | urlhere | disorder
+-1 | ad | hominem | 
+-1 | anyone | older | than | 18 | should | not | be | dating | a | 16yearold
+-1 | wait | did | anyone | try | burning | the | door
+-1 | the | judge | and | judge | dredd
+-1 | it | works | always | on | me | 
+-1 | i | love | you | like | a | brother | 
+-1 | mackdoughfiefsnowonfanne
+-1 | its | more | just | a | perfect | earth | not | ridiculously | selfrighteous | people | preaching | all | day | 
+-1 | kinda | hard | to | be | a | mother | if | you | dont | have | the | proper | equipment | to | be | a | mothersarcasm
+-1 | meh | he | doesnt | even | have | boobs
+-1 | alexisonfire | 
+-1 | meh | he | doesnt | even | have | boobs
+-1 | thread
+-1 | because | swag
+-1 | i | pity | those | who | eyelash | their | car
+-1 | remember | you | dont | call | them | whores | until | theyre | dead
+-1 | gtblood | dicks | and | meat | dicksblech
+-1 | meh | he | doesnt | even | have | boobs
+-1 | meh | he | doesnt | even | have | boobs
+-1 | that | chick | is | butch
+-1 | youre | an | idiot
+-1 | not | having | various | women | worship | ithint | hint
+-1 | rnocontext | 
+-1 | obama | i | am | a | muslim | allahu | akbar
+-1 | you | are | the | kinda | guy | that | would | enable | others | to | keep | drinking | with | such | stories | lol | xd | 
+-1 | you | pointed | a | difference | i | pointed | anotherim | equatingabsolving | as | much | as | you | did
+-1 | women | pull | their | cardigans | closed | i | wasnt | even | looking | at | those | tittays
+-1 | gt | it | sucked | and | the | tip | was | hugesounds | like | me | and | your | mom | last | night
+-1 | i | always | just | jizzed | in | my | underwear
+-1 | us | all | of | them | 
+-1 | circumference
+-1 | but | theyre | still | going | to | be | needing | more | medical | procedures | 
+-1 | theres | one | connecting | your | upper | lip | to | your | gums | i | had | to | get | mine | cut | i | got | eleven | stitches | 
+-1 | did | you | call | him | marble | afterwards | i | would | have
+-1 | fuslo | batt
+-1 | apperantly | as | i |  | was | typing | this | up | a | cop | thought | i |  | was | going | for | my | gushot
+-1 | can | you | link | me | to | a | recommended | one | like | this
+-1 | no | reddit | is | a | website | incapable | of | speech | thought | or | emotion
+-1 | they | usually | just | workafter | that | excellent | customer | service | 
+-1 | found | the | guy | who | likes | trannies | 
+-1 | everyone | love | each | other | and | give | blowjobs | when | asked
+-1 | consoles
+-1 | yup | and | smokers | drug | abusers | and | the | like | are | shunned | by | society
+-1 | 95 | off | the | world | would | agree | fuck | the | usa |  | world
+-1 | getting | paid | 30 | more | to | do | the | same | job
+-1 | i | have | a | taste | of | blackberries | on | my | kindleis | that | it
+-1 | yeah | like | at | least | 5 | or | 6
+-1 | huh |  | what | are | you | talking | about
+-1 | masturbateoh | wait | i | still | do | that
+-1 | yes | young | padwan
+-1 | rtheydidthemath |  |  | more | like | 28 | dumbass
+-1 | oook | eek | ook | eek | eek | eek | oookyeah | breathtaking
+-1 | infinite | energy | is | impossible | due | to | thermodynamics | law | of | conservation | of | energy
+-1 | pinche | puta
+-1 | only | the | british | wouldnt | like | that | sentence
+-1 | cancer | does | a | pretty | decent | job | with | population | control
+-1 | if | its | anything | like | my | drivers | ed | class | was | itd | be | better | off | being | one | day | hands | on | sailing
+-1 | commie
+-1 | jaywalking
+-1 | easier | to | ask | forgiveness | than | permission | i | suppose
+-1 | ok | mustafa | sure | thing
+-1 | i | stopped | going | to | church | when | i | finally | moved | out | of | my | parents | house | 
+-1 | not | having | an | uterus | damn | id | liked | that | 
+-1 | i | hear | that | letting | random | guys | with | asperger | syndrome | feel | your | boobs | is | good | luck | hint | hint
+-1 | japanese | porn | with | all | the | virgin | being | raped | moaning | is | starting | to | make | a | lot | more | sense | now
+-1 | ayyy | hit | me | up | babe | you | got | a | creative | mind | and | a | cute | username | hmu
+-1 | i | believe | thats | called | zombieland | 
+-1 | have | you | tried | like | not | wearing | black
+-1 | cock | puncher | 
+-1 | soooooo | much | sex | 
+-1 | cute | username |  | hmu | bb
+-1 | guysjust | turn | around | now
+-1 | not | another |  | 
+-1 | aaaand | im | never | gonna | perform | oral
+-1 | someone | didnt | like | me | somewhere | 
+-1 | when | krokodil
+-1 | 13h | and | 300 | karmadude | nice
+-1 | there | should | be | a | vaccine | for | that
+-1 | does | anyone | have | any | iodine |  | i | need | to | inject | it | into | my | eyeballs | to | unsee | this
+-1 | who | is | your | daddy | and | what | does | he | do
+-1 | stimulants | tennis
+-1 | found | the | riaa | shill
+-1 | as | a | straight | man | im | not | feeling | so | well | right | now
+-1 | i | think | raskscience | may | be | a | better | place | to | ask | this
+-1 | ubamfatron | answered | for | me | 1210 | with | rice
+-1 | guardians | of | the | galaxy
+-1 | i | can | poop | but | i | choose | not | to | 
+-1 | perhaps | if | it | was | lighter | it | would | get | better | mileage | 
+-1 | sriracha | is | a | shitty | hot | sauce
+-1 | i | like | gay | porn
+-1 | i | am | in | japan | right | now | and | can | tell | you | there | are | a | lot | of | non | white | english | teachers | over | here
+-1 | guardians | of | the | galaxy
+-1 | smoking | duh | 
+-1 | you | just | have | to | mathturbate
+-1 | bitch | please | toadadile | is | the | best | water | starter | and | you | know | it
+-1 | me | too | then | i | remembered | this | is | reddit
+-1 | hey | we | did | penises | and | vaginas | why | not | balls
+-1 | gt | get | a | lot | of | termites | to | eat | the | door | and | eat | several | termites | poop | per | day
+-1 | kim | kardashian | and | kayne | west |  | at | the | same | time | would | be | ideal
+-1 | my | ex | started | calling | me | pretty | little | girl | too | pedophiliaish | for | me | left | him | soon | after
+-1 | that | is | kinda | pervzone
+-1 | oh | how | i | envy | you | you | god | among | mortals
+-1 | ask | your | brother
+-1 | raskwomen | 
+-1 | its | time | for | the | perculator
+-1 | as | a | guyitt | eewwwwwwwwwwwww
+-1 | just | the | shame | of | not | being | the | man | you | would | like | to | be
+-1 | so | youre | saying | that | later | youd | like | some | diarrhea
+-1 | its | mostly | oatmeal | 
+-1 | my | sister | is | 19 | odds | are | she | masturbates
+-1 | i | disagree | i | disagree | soo | much | breasts | is | best
+-1 | dudeawesome
+-1 | yes | i | fucking | hate | that | if | i | wanted | someone | to | have | my | number | id |  | give | it | to | them | myself | 
+-1 | this | little | light | of | mine
+-1 | robin | williams | was | depressed
+-1 | as | an | american | who | went | to | school | with | lots | of | bosnians | she | was | right | in | saying | that
+-1 | bluray | players | iphone | windows | 8 | on | pcs | chia | pets | reddit | gold | rare | pepes | 
+-1 | strange | wilderness
+-1 | assbackwards | 
+-1 | seattles | not | a | country | though
+-1 | the | opened | way |  | shadow | of | the | colossus
+-1 | my | friend | mark |  | people | like | him | but | are | also | sort | of | scared | of | him |  | not | sure | why
+-1 | this | thread | might | make | you | gay | proceed | at | your | own | risk
+-1 | war | never | changes
+-1 | are | you | indian
+-1 | marx | was | a | twat | stop | telling | people | to | read | that | wank | as | though | it | has | some | relevance
+-1 | how | ironic | as | youre | the | one | who | displaying |  | his | ignorance | here
+-1 | im | a | woman | and | even | i | didnt | understand | what | she | meant
+-1 | gt | i | just | like | something | between | my | legs | when | i | sleephi | there
+-1 | proven | fact | this | questions | is | asked | every | 2 | weeks | 
+-1 | shut | the | fuck | up
+-1 | not | a | human
+-1 | i | would | think | that | they | may | be | socially | awkward | or | had | personality | flaws
+-1 | if | you | fall | from | high | enough | it | wont | matter
+-1 | the | oppression | fo | black | people | i | just | want | it | to | be | called | civil | war | redux
+-1 | the | big | bang | theory | man | who | else | loves | that | show
+-1 | ah | yes | necrophilia | jokes | 
+-1 | they | already | are | regarded | as | mythology | by | intelligent | people
+-1 | this | thread | is | turning | me | asexual
+-1 | battle | royale | you | mean | that | movie | that | stole | its | plot | from | the | hunger | games
+-1 | should | probably | masturbate | more
+-1 | fuck | i | love | my | cock
+-1 | coming | of | age | urlhere |  | by | foster | the | people
+-1 | what | is | your | name
+-1 | trashbag | yeah | i | dont | think | so | 
+-1 | oh | i | fucked | it
+-1 | england | here | call | me | pup | pratty
+-1 | laser | is | cheap | and | effective
+-1 | dont | be | selfish | or | a | jerk | 
+-1 | occidental | permian |  |  |  | all | talk | filled | with | politics | 
+-1 | does | it | bother | you | that | you | dont | have | answers | to | my | questions |  |  | 
+-1 | im | made | of | metal | and | this | sounds | interesting
+-1 | unlike | your | 
+-1 | i | heard | a | mixology | license | is | relatively | easy | to | get
+-1 | so | many | things | learned | i | regret | clicking | this | instantly
+-1 | theres | this | great | website | you | should | go | to | its | called | fucking | tumblr
+-1 | certified | public | accountant | wait | you | said | difficult | right
+-1 | i | wish | i | had | a | vagina
+-1 | fuck | off | with | this | 
+-1 | incest | i | see | no | problem | with | it | when | its | between | consenting | adults
+-1 | the | special | effects | sucked
+-1 | youre | probably | scratching | while | you | sleep | ever | woken | up | with | a | bloodstain | hitler | moustache
+-1 | sadly | yes | 
+-1 | the | debbie | does | series | is | a | traditional | classic
+-1 | the | tough | dodger | triathlon
+-1 | im | 13 | my | parents | offer | me | little | sips | of | alchohol | here | and | there
+-1 | someone | was | at | the | door
+-1 | probably | because | the | insurance | industry | has | an | interest | in | seat | belts | and | not | in | bicycle | safety
+-1 | gt | snort | hot | sauce | well | theres | your | problem
+-1 | gt | destroying | someone | elses | lifeor | maybe | he | doesnt | feel | like | his | life | has | been | destroyed
+-1 | since | when | does | the | world | have | a | collective | will
+-1 | but | im | hilarious
+-1 | i | was | shorter | 
+-1 | sexhaver
+-1 | not | me | 
+-1 | guiltiest | upvote | ive | ever | given | see | you | in | hell
+-1 | watch | 2 | ted | talks | a | day | huh | challenge | accepted
+-1 | literally | with | discharge
+-1 | life | is | a | terminal | disorder |  | 
+-1 | uhhh | no | samuel | jackson | would | take | the | cake | on | this | one | for | sure
+-1 | thread
+-1 | how | do | we | already | know | whether | or | not | they | rule | the | bottom | of | the | ocean
+-1 | you | mean | sleeping | on | a | french | flag
+-1 | its | called | the | fucking | search | function
+-1 | honey | whats | in | my | paaaaaaaaaaannts | 
+-1 | womerns
+-1 | youre | right | this | is | merica | guns4kidz
+-1 | reading | this | stuff | kind | of | makes | me | want | to | be | gay
+-1 | whats | worse | then | being | stung | by | a | beeanswer | getting | raped | by | a | giant | scorpion
+-1 | fuck | you | i | wont | do | what | you | tell | me
+-1 | you | sound | obese
+-1 | no | treble
+-1 | we | cant | theres | no | correlation | between | who | a | person | is | and | what | their | face | is | like
+-1 | north | dakota | 
+-1 | good | im | glad | its | not | being | encouraged | 
+-1 | ordained | minister | 2 | friends | of | mine | did | it | online | 
+-1 | to | each | their | own | i | suppose | 
+-1 | bringing | a | cultural | phenomenon | into | everything | its | a | nuisance
+-1 | work | invest | 
+-1 | ooh | ooh | becoming | an | ordained | minister | to | marry | off | all | of | your | friends
+-1 | boo | she | wants | a | rapist | then | fuck | her | with | the | law
+-1 | bitcoin | for | sure
+-1 | if | its | domestic | abuse | im | pretty | sure | its | meant | to | hit | close | to | homeim | so | sorry
+-1 | did | i | ever | say | i | do | it
+-1 | how | is | it | going | to | really | effect | me | cant | be | killed | dont | care | about | the | gradual | decline | of | order
+-1 | masturbate | then | send | your | sperm | back | in | time
+-1 | i | feel | like | there | would | be | a | lot | of | very | weird | sex | stories
+-1 | thats | pretty | cool | thanks
+-1 | does | this | make | me | look | fat | 
+-1 | better | yet | a | dudeist | priest | urlhere | 
+-1 | anything | sung | by | usher
+-1 | everyone | hates | the | us | and | it | aint | jealousy | hahahaha
+-1 | my | position | on | reefer | 
+-1 | nespresso | kicks | ass
+-1 | ive | lost | it | and | im | not | related | to | her |  | go | me |  | woo |  | confetti
+-1 | anything | but | frozen | can | that | die | already | 
+-1 | i | thought | you | were | an | optimisticrobotlordmy | bad
+-1 | android | users | just | mad | cuz | they | cant | afford | a | good | phone
+-1 | nah | man | most | guys | like | it | bald |  | youre | just | weird
+-1 | after | reading | this | thread | i | am | genuinely | scared | of | women | wtf
+-1 | squatty | potty
+-1 | she | probably | meant | that | she | just | doesnt | do | it
+-1 | i | did | fuck | all | and | someone | gave | me | gold |  | whatever |  | id | donate | it | if | i | could
+-1 | i | got | a | debt | collectors | license | in | a | week
+-1 | i | found | that | book | a | bit | too | hot | to | handle
+-1 | who | wants | to | know
+-1 | christ | on | a | bike | people | is | it | really | that | offensive | pick | your | battles | man
+-1 | if | its | not | her | choice | then | no | she | doesnt | 
+-1 | prochoice | not | proabortion
+-1 | i | have | no | clue |  | nothing | maybe | something | good | maybe | something | bad
+-1 | i | am | happy | with | how | i | look
+-1 | i | may | be | naive | but | i | dont | think | ive | every | heard | of | a | highfunctioning | autistic
+-1 | hey | guys | why | can | you | open | your | car | door | if | you | are | driving
+-1 | how | is | it | weird | if | everyone | has | one
+-1 | communism
+-1 | bonkers
+-1 | 26 | its | always | the | inverse
+-1 | youre | being | sarcastic | arent | you
+-1 | nice | try | nsa
+-1 | tumblr | is | leaking | 
+-1 | yayaya
+-1 | indifferent | my | countrys | flag | is | meaningless | to | me
+-1 | not | everything | girls | do | is | for | the | pleasure | of | guys
+-1 | rchildfree
+-1 | lloll | truee
+-1 | george | w | bush | and | dick | cheney | are | free | men
+-1 | oh | you | again | fuck | it | im | drunk | 
+-1 | fuck | off | that | book | is | so | overrated
+-1 | maternal | instinct | otherwise | everyone | would | be | dead | especially | op
+-1 | 100 | agree
+-1 | they | didnt | come | and | save | the | bunny
+-1 | never | stick | your | dick | inlet | in | your | vagina | crazy
+-1 | look | at | ops | username
+-1 | i | like | the | saying | our | thoughts | die | so | we | dont | have | to
+-1 | damn | youre | fantastic | at | making | up | stories
+-1 | gt | better | alternativelinux | or | os | x
+-1 | stop | what | do | you | mean
+-1 | i | thought | you | were | talking | about | a | certification
+-1 | i | dont | know | how | much | it | pays | but | theres | work | as | long | as | theres | construction | work | going | on | 
+-1 | see | ya | in | pokemon | hell
+-1 | yes | you | heard | that | rightsquare | foot | of | land | for | just | 2999 | urlhere | 
+-1 | ive | been | personally | very | satisfied | with | the | google | nexus | 5
+-1 | i | coughed | once | and | i | feel | pretty | ashamed | about | it
+-1 | im | really | interested | in | dark | net | how | do | i | get | into | that
+-1 | i | lump | texas | nm | and | az | in | there | too | i | guess
+-1 | i | thought | the | hokeypokey | was | what | it | is | all | about
+-1 | there | is | no | such | thing | as | human | nature
+-1 | cpr | is | generally | considered | to | be | a | major | part | of | first | aid
+-1 | who | are | you | asking
+-1 | then | your | pubes | are | too | long
+-1 | i | didntfap | fap | fap | fap | fap | fap | fap | fap | fap
+-1 | for | some | reason | i | imagine | the | grandma | as | a | black | woman
+-1 | their | left | big | toe
+-1 | says | childlover69
+-1 | 32 | obsessing | over | cellphone | games | as | if | winning | would | make | a | positive | impact | on | my | life | 
+-1 | changing | your | socks | halfway | through | the | day
+-1 | please | repost | this | with | a | serious | tag | for | the | love | of | godas | for | the | question | i | have | no | clue
+-1 | audio | cables | if | they | only | dropped | a | couple | hundred | more | 
+-1 | so | you | can | slap | teachers | and | jack | off | in | front | of | your | counselors |  | 
+-1 | and | thats | kids | how | you | cause | a | bluescreen
+-1 | reckd | 
+-1 | are | apple | jacks | still | a | thing | 
+-1 | did | you | miss | the | part | where | he | said | 80
+-1 | you | just | did
+-1 | really | i | thought | it | would | be | red
+-1 | nice | try | but | you | wont | go | far | with | that | username
+-1 | so | youre | just | going | to | copypaste | responses | from | now | on
+-1 | throw | her | out | of | a | moving | vehicle
+-1 | blow | job | dont | fucking | use | your | teeth | its | sensitive | bitch
+-1 | anything | with | an | apple | logo
+-1 | ms | windows | when | you | can | run | linux | instead
+-1 | your | mom | there | is | a | better | version | available | your | sister
+-1 | is | it | christian | greyirl | hes | a | lot | older
+-1 | pictures | emotions | and | numbers | sometimes | sound
+-1 | gt | build | a | pc | systemrbuildapc |  | go | figure
+-1 | i | made | it | exclusive | 
+-1 | being | ugly | aint | easy | trust | me | i | know | 
+-1 | tried | ghostery
+-1 | i | wanna | know | so | much | more | about | this | 
+-1 | thank | you | so | much | for | sharing | this | hands | down | the | funniest | story | i | have | read | on | here | 
+-1 | spaceballs | and | pride | and | prejudice | the |  | bbc | edition | 
+-1 | she | called | me | mentally | challenged
+-1 | reddit | theres | like | this | whole | place | called | internet | most | of | it | has | much | less | morons
+-1 | if | you | say | so
+-1 | loads | of | time | and | education | that | not | many | are | willing | to | give | 
+-1 | are | you | religious | even | if | youre | not | trying | praying
+-1 | you | are | the | most | beautiful | woman | ive | ever | seen | andyour | septum | really | brings | out | your | eyes
+-1 | my | god | i | can | only | imagine | how | stank | the | puss | is
+-1 | apple
+-1 | hazard | paywhat | for | brain | death | due | to | boredom
+-1 | can | you | teach | me | how | to | fuck
+-1 | stupid | jokes | as | replies | to | serious | stories
+-1 | humans | were | aware
+-1 | the | spanking | isnt | child | abuse | circle | jerk
+-1 | marley | and | me | i | read | the | book | so | i | knew | how | it | was | gonna | end | but | damn | i | still | cried | like | a | baby
+-1 | hmmit | didnt | happen | to | have | lisa | lipps | in | it | did | it
+-1 | you | shut | your | whore | mouth | 
+-1 | i | like | the | jalepeo | cheddar | smoked | sausages | 
+-1 | very | untrue | if | anything | it | will | strengthen | your | desire | to | quit | 
+-1 | not | really | my | point | but | ok
+-1 | idk | man | saving | a | life | isnt | really | worth | 3 | hours
+-1 | toilet | paper | once | you | use | flushable | wipes | youll | never | go | back
+-1 | gtits | not | attitude | yes | it | is | the | attitude | trust | me | on | this | one | 
+-1 | time | to | open | that | girl | 
+-1 | no | im | an | adult | who | doesnt | need | synthetics | to | find | joy | in | life
+-1 | siguele | echando | huevos | a | la | escuela | cabron
+-1 | 57 | times | a | day
+-1 | lol | ah | the | old | alien | abduction | routine
+-1 | margarine | is | more | healthy
+-1 | well | the | 2000s | bush | victims | are | more | located | in | iraq
+-1 | instructions | were | unclear | he | got | his | dick | stuck
+-1 | until | your | lungs | and | heart | quit | working | eat | it | trust | an | old | guy
+-1 | veal | should | be | everything | 
+-1 | and | now | theres | skype | for | business | woo
+-1 | all | of | it
+-1 | windows
+-1 | pics | or | didnt | happen
+-1 | according | to | the | girl | who | actually | did | this | the | guy | didnt | notice | anything | different
+-1 | kelly | wally
+-1 | u | smoke | weed
+-1 | sexby | having | sex | weird
+-1 | white | male
+-1 | youre
+-1 | what | is | wrong | with | having | sex | why | is | having | sex | giving | in
+-1 | std
+-1 | unless | your | from | an | uncivilised | country | youll | just | got | to | prison | for | a | while | 
+-1 | no | one | cares | about | that
+-1 | do | dried | cow | fetus | urlhere |  | snacks | count | as | fiber | 
+-1 | rape | murder | arson | and | rape | urlhere | 
+-1 | you | should | try | to | get | a | better | grip | on | the | english | language | before | you | talk | shit
+-1 | no |  | just | no
+-1 | whatever | rookie
+-1 | pic | or | it | didnt | happen
+-1 | you | are | the | future | 
+-1 | a | crocodilesharkkiller | whale | orca | providing | i | choose | the | location
+-1 | then | drink | energy | drinks | and | stop | wasting | everyones | time
+-1 | preying | on | the | circlejerk | for | upvotes | its | 60 | of | this | sub | nowadays
+-1 | all | of | the | shit | ive | done | to | ops | mum | 
+-1 | android | phones | lol
+-1 | kim | kardashian | vs | paris | hilton
+-1 | dont | be | chicken
+-1 | prolapse
+-1 | yes | yes | now | what | is | rye | bread | 
+-1 | geniuscom | making | stupid | lyrics | sound | smart | since | 2015
+-1 | by | gangbanging | my | first | grade | teacher | when | i | was | 4 | she | like | all | of | it
+-1 | literally | he | next | line | after | the | words | skinny | bitch | are | just | kidding
+-1 | professional | chef | angry | hateful | and | yell | a | lotyou | are | gordon | ramsay
+-1 | buy | generic | flakes | some | white | sugar | and | bananas | that | shit | is | cheap | and | its | the | bomb | yo
+-1 | microsoft | windows
+-1 | do | male | runners | climax | while | running
+-1 | i | like | golf
+-1 | qwerty | keyboards
+-1 | is | that | because | youre | simply | not | a | fan | of | cereal |  | cereal | aint | that | agreat
+-1 | to | be | the | eyes | and | ears | and | conscience | of | the | creator | of | the | universe | you | fool | 
+-1 | star | wars |  | grown | ass | men | obsessively | following | twohour | toy | commercials | like | little | children
+-1 | lots | of | very | depressed | people | dont | want | anything | at | all
+-1 | interestingand | you | and | your | father | how | is | that | relationship
+-1 | considering | they | are | just | called | beats | now
+-1 | oh | no | they | definitely | do | 
+-1 | i | think | you | meant | neil | diamond
+-1 | food | organic | non | processed | give | a | shit | about | yourself | 
+-1 | no | its | because | his | opinion | is | retarded | s
+-1 | apparently | it | works | fine | for | the | signholders
+-1 | reddit | is | not | capitalized
+-1 | god | speed | captain
+-1 | sensodyne | tastes | like | root | beer | 
+-1 | oh | yeah | i | thought | subs | didnt | sound | right | but | i | was | too | lazy | to | look | it | up | atlas | right
+-1 | remindme | one | year
+-1 | twistfood | pantry | still | donations | but | helping | starving | people | everywhere | 
+-1 | bearded | barbarians
+-1 |  | urlhere | 
+-1 | itt |  | cakefrosting | of | cake
+-1 |  | urlhere | h
+-1 | according | to | reddit | yes | 
+-1 | my | mouth | hurts | from | thinking | about | that
+-1 | also | its | not | steami | fucking | hate | steam
+-1 | colloquially | they | are | referred | to | as | not | real | gamers
+-1 | ayyyyy
+-1 | ta | tell | im | jebadiah | he | dun | sayd |  | stuff | bout | are | cheez | 
+-1 | peter | griffin
+-1 | thank | god | i | got | worried | for | a | fucking | second
+-1 | thompsons | water | seal |  | just | use | primer | and | paint
+-1 | i | drink | alone | ya | all | by | myself
+-1 | because | it | puts | the | other | team | at | even | more | of | a | disadvantage | 
+-1 | she | puts | them | in | her | privates | and | then | walks | around | town
+-1 | if | i | bust | a | nut | on | my | girls | eyes | does | that | mean | shes | watching | my | kids
+-1 | same | thing | was | posted | yesterday | dum | dum
+-1 | aaand | queue | the | throwaways
+-1 | yes | its | absolutely | gross
+-1 | iphones
+-1 | and | youre | the | subject | of | farce | of | the | penguins | 
+-1 | lmaooooooooo
+-1 | american | icing | is | different
+-1 | draw | a | penis | and | suck | it
+-1 | says | the | person | whose | name | started | as | a | white | dudes | name |  |  | courtney | ashley
+-1 | only | worthwhile | post | in | this | whole | shitty | thread
+-1 | pepsi | coke | is | better | you | dumbdicks | 
+-1 | because | i | enjoy | living | life | on | the | edge
+-1 | ambulance | membership
+-1 | friends
+-1 | american | here |  | thats | because | cottage | cheese | is | disgusting
+-1 | laziness
+-1 | youll | still | be | forced | to | wait | a | lot | longer | than | under | the | swiss | system
+-1 | crossing | guards | give | the | rudest | looks | to | people | 
+-1 | you | sound | young |  | its | normal |  | just | dont | do | it | unless | youre | single | 
+-1 | pulling | back | your | hairit | was | really | hot | when | done | in | the | anime | not | sure | about | real | life | though
+-1 | camping
+-1 | i | really | like | this | quote | thanks | for | sharing | 
+-1 | anything | i | have | ever | done | while | drunk
+-1 | you | realize | where | you | are | mate
+-1 | that | is | where | he | got | it | from
+-1 | only | like | 53 | of | the | time | technically | haha
+-1 | thats | not | what | i | have | a | hard | time | keeping | my | hands | off | of
+-1 | its | fast | if | you | shave | right | out | of | the | shower | you | dont | have | to | lather | up | either
+-1 | watching | the | big | bang | theory | for | eternity
+-1 | your | mom
+-1 | seinfeld
+-1 | when | bloody | pus | comes | out | oh | and | when | bugs | get | stuck | up | there | and | start | to | nest
+-1 | stop | trying | to | take | away | is | reason | to | live | dude | thats | rude
+-1 | iphones
+-1 | seriously | though | stop | it
+-1 | sounds | to | me | like | they | have | eight
+-1 | no | citric | acid
+-1 | iphone
+-1 | how | about | doctor | who
+-1 | i | wipe | with | a | brick
+-1 | deadpool
+-1 | beard | gt | any | razor | on | my | face
+-1 | pigs | are | even | smarter | and | more | affectionate | than | dogs | problem | is | 100 | of | them | is | delicious
+-1 | the | us | icing | is | different | its | barely | icing
+-1 | theyre | single | for | a | reason | 
+-1 |  | urlhere | 
+-1 | its | not | even | delicious | its | just | pretty | nice | tolerable | by | anyones | standards | 
+-1 | you | mean | because | he | sadly | passed | on | a | few | years | ago
+-1 | ive | got | a | blank | space | babyand | ill | write | your | name
+-1 | also | this
+-1 | my | friend | always | sang | it | as | ive | got | sole | but | im | not | a | sneaker | 
+-1 | the | certainty | of | knowing | they | were | with | jesus | now
+-1 | yes | not | many | times | in | big | cities | though
+-1 | this | is | my | current | complaint | while | i | perusing | a | subreddit | that | i | needed | several | links | for
+-1 | gt | also | i | dont | like | nutellawhite | girls | everywhere | just | died
+-1 | i | got | vaccinated | for | autism | and | i | got | autism | wat | do
+-1 | join | us | come | and | get | youre | ak
+-1 | categories
+-1 | yep | and | its | delicious | 
+-1 | i | saw | cheese | in | a | can | when | i | was | in | the | us | nothing | is | sacred | anymore
+-1 | iphones
+-1 | having | tried | hersheys | i | can | confirm | it | tastes | of | brick | galaxy | all | the | way
+-1 | the | doctor | gave | me | a | salve | for | my | autism | and | it | cleared | up | my | aids | too
+-1 | the | milk | in | america | is | alot | sweeter | than | the | milk | in | japan |  | that | could | be | the | reason | why
+-1 | calm | down
+-1 | yes | i | need | the | counter | space | and | outlets
+-1 | you | get | a | downvote | 
+-1 | pool | maintenance | companies | hate | him | hurry | up | and | watch | the | video | before | they | ban | it
+-1 | atheism
+-1 | scientology | urlhere | 
+-1 | this | sentence | isnt | true | 
+-1 | wiener | wiener | wiener | wiener | wiener | wiener | wiener | 
+-1 | that | the | nsa | is | watching | 
+-1 | stuff | just | things | it | dont | make | a | fuck
+-1 | its | slow | and | boring | and | has | no | likeable | characters | 
+-1 | the | us | government
+-1 | oh | my | god | this | nearly | made | me | throw | up | 
+-1 | both | are | made | up | by | the | liberal | media
+-1 | i | love | to | spank | d
+-1 | he | said | 110 | not | 165 | most | modern | 4cylinder | cars | can | go | up | to | 120 | or | soedit | math | hard
+-1 | the | mlp | cum | box
+-1 | meh | ive | done | it | a | few | times | not | that | mind | blowing
+-1 | beer | hockey | and | polish | frisbee | are | my | favorites
+-1 | um | what
+-1 | maybe | they | dislike | you | because | youre | a | prick | who | screams | into | a | sweater
+-1 | your | presliced | sandwich | bread | tastes | like | brioche
+-1 | i | didnt | care | much | for | the | movie | 
+-1 | bird | fetis | 
+-1 | say | goodnight | and | good | morning
+-1 | copy | that | i | simply | avoid | going | to | sites | that | i | dislike | like | buzzfeed
+-1 | lol | fucking | elitist
+-1 | are | we | human | or | are | we | dancerseriously | wtf | is | that |  | lolcats | trying | to | be | deep
+-1 | this | is | supposedly | evolution | which | is | the | same | reason | im | disgusted | by | single | moms | 
+-1 | can | make | more | depending | on | your | sub | as | well | was | making | 2600 | a | week | 1080 | of | that | tax | free | 
+-1 | police | officer | and | or | jail | guard
+-1 | you | idiot
+-1 | he | didnt | not | say | that | 
+-1 | shoutout | to | rwickededge
+-1 | just | because | it | has | cheese | in | it | its | cheese | 
+-1 | thats | u | getting | trolled | bro |  | go | and | see | yourself | 
+-1 | op | is | a | weeb
+-1 | needs | a | serious | tag | and | an | asshole | definition
+-1 | yeah | i | tooa | am | not | a | doctor
+-1 | i | can | get | the | metaphore | but | the | other | angle | i | didnt | get | 
+-1 | gt | eat | healthynice | try | shitlord
+-1 | do | you | meet | yourself | every | morning
+-1 | i | think | rglobaloffensive | has | the | cleanest | looking | css
+-1 | nothing
+-1 | police
+-1 | apparently | thats | something | i | need | to | watch | now | thanks
+-1 | rimjobs
+-1 | browse | reddit
+-1 | god | damn | there | are | some | horny | people | in | this | thread
+-1 | probably | dolphin | and | whale
+-1 | officers
+-1 | cops | and | car | salesmen | scum | of | the | earth | right | there
+-1 | oh | wow | just | like | your | mom | then | 
+-1 | the | first | person | to | try | drinking | the | milk | of | another | mammal
+-1 | thats | not | at | all | what | an | sjw | is | you | were | being | an | activist | they | arent | remotely | similar | 
+-1 | japanese | guy | here | the | infatuation | with | cheese | shoved | into | all | sorts | of | dishes | kinda | gets | to | me
+-1 | i | need | it | with | soy | sauce | too | bland | otherwise
+-1 | police | department | and | the | military
+-1 | paul | blart | mall | cop
+-1 | did | you | asked | him | to | raise | his | hand
+-1 | its | hard | to | feel | offended | by | a | populace | that | slow | roasts | guinea | pigs | 
+-1 | porn | star
+-1 | half | life | 3
+-1 | nice | try | nsa
+-1 | deez | nuts
+-1 | youre | talking | a | lot | but | youre | not | saying | anything
+-1 | prolapse | porn
+-1 | why | isnt | this | in | rcasualiama
+-1 | i | am | a | doctor | in | a | story | i | made | up | dont | get | diabetes | really | dont | do | it
+-1 | mautism | tips | homeopathic | doctors | note
+-1 | blood
+-1 | lol | fuck | you | 
+-1 | yep |  | classy | guys | that | treat | themselves | and | others | with | dignity | get | my | attention | every | time | 
+-1 | upvote | for | devon | youre | wrong | though | leccy | is | a | common | colloquialism | 
+-1 | bullshit |  | its | fucking | torture | and | if | you | eat | that | stuff | you | deserve | to | die | 
+-1 | but | thats | kinda | funny | though
+-1 | not | pictured | your | citation | 
+-1 | unzip
+-1 | that | was | pretty | punny
+-1 | life | 
+-1 | tesla | powerwall
+-1 | dont | just | invert | the | front | page | its | unoriginal | and | lame
+-1 | i | was | more | referring | to | the | sign | holders | die | all | the | time | claim | 
+-1 | made | great | music | then | made | adramatic | exit
+-1 | no | the | obvious | answer | is | proctologist
+-1 | i | would | love | a | do | over | for | the | sequels | for | the | matrix
+-1 | and | no | true | irishman | eats | oatmeal | for | breakfast
+-1 | i | one | time | ripped | my | mothers | vagina | with | my | head
+-1 | i | feel | like | new | car | salesman | may | be | worse
+-1 | american | whos | been | to | japan | here | natto | is | absolutely | disgusting
+-1 | hot | and | cold | running | shoes
+-1 | you | know | what | really | sucks | pluralizing | with | an | apostrophe
+-1 | everyones | a | dude | youre | just | not | a | chill | dude | 
+-1 | circumcised | men | need | more | lube | no | mechanical | lubrication | from | the | foreskin
+-1 | an | hour | and | a | halfthanks | tinder
+-1 | never | pee | on | anyones | shoes | or | wipe | your | hands | on | their | jacket
+-1 | military | and | policethank | you | for | your | service | heroes
+-1 | come | to | israel | all | our | margarines | are | dairy | free | 
+-1 | taylor | is | that | you | i | love | you
+-1 | so | you | raped | a | stranger | cause | she | was | taking | lemonsi | mean | i | guess | i | can | be | ok | with | this
+-1 | nah | i | really | hate | wearing | hats | and | fedoras | universally | make | you | look | like | a | douchebag
+-1 | you | dont | understand | the | question
+-1 | hm | if | you | say | so
+-1 | ops | mom | is | a | saint | who | has | been | damned | by | god
+-1 | came | here | to | post | this
+-1 | arent | those | governed | at | 130 | 
+-1 | the | incredibles | seriously | what | the | fuck
+-1 | is | this | a | joke
+-1 | how | do | you | think | it | should | have | ended | for | curiosities | sake
+-1 | its | not | a | few | its | 4gt | what | is | the | world | coming | to8 | last | time | i | checked
+-1 | thats | not | what | ive | heard | but | yes | everyone | ought | to | go | out | and | try | some
+-1 | im | not | sure | i | get | your | point | are | you | operating | at | peak | mental | capacity
+-1 | there | are | many | alternatives | 
+-1 | you | sound | like | a | horrible | person
+-1 | i | need | a | shower | after | this
+-1 | im | irritated | by | other | peoples | choice | of | products | waaaaaaaah
+-1 | you | cant | be | an | attention | whore | and | be | vague | about | what | you | did
+-1 | whatever | you | want | it | to | mean
+-1 | hooking | up | with | a | girl | whos | employer | offers | domestic | partner | option
+-1 | welcome | to | night | vale | urlhere |  | is | pretty | damn | great
+-1 | cannabis | 
+-1 | shes | really | awesome | and | is | everything | i | want | downsides | are | she | only | exists | in | my | imagination
+-1 | rape | is | okay | but | dont | mess | with | sleep | 
+-1 | netflix | has | every | movie | i | dont | want | to | watch |  | lol | 
+-1 | gtyou | must | be | fun | at | partiesfixed | that | for | you | mate
+-1 | too | long |  | drops | of | and | becomes | more | drama | after | season | three
+-1 | but | what | is | it | rated | on | bueno
+-1 | 35 | drinks | per | weeki | think | you | mean | 35 | drinks | per | hour | righthuehuehue
+-1 | sniffing | fermented | feces
+-1 | never | said | he | was | lying | i | just | assumed | he | meant | 80 | gb | hard | drive | and | not | 80 | mb
+-1 | fsecure | european | based | company | so | its | covered | by | european | privacy | laws | free | trials | available
+-1 | cum | box
+-1 | understandable | i | lived | in | chicago | so | even | at | its | hottest | it | was | bearable
+-1 | this | one | wait | shit
+-1 | nurses
+-1 | now | i | know | youre | trolling
+-1 | klingon
+-1 | but | breakfast | is | a | savoury | thing
+-1 | i | can | see | where | this | is | going | forget | it | 
+-1 | ha | troll
+-1 | ops | mom
+-1 | as | far | as | im | concerned | there | is | just | cheese
+-1 | anal | aphrodisiac | auditors | its | a | pretty | sweet | club | lots | of | perks
+-1 | ahh | okay | thanks | for | the | info | epidurals | do | increase | the | length | of | labor | though | correct
+-1 | stupid
+-1 | yeah | the | dad | has | absolutely | no | say
+-1 | very | good | i | will | prewarm | sirs | crack | pipe
+-1 | it | still | gives | you | a | nicotine | buzz
+-1 | get | vaccinated | against | autism | create | a | paradox
+-1 | just | please | never | do | flu | shots
+-1 | okay
+-1 | i | just | clogged | that | toilet
+-1 | whaaaaaaaat
+-1 | came | here | to | say | cop | but | this | answer | is | dead | on
+-1 | nutella
+-1 | this | is | the | only | right | answer
+-1 | im | sorry | that | you | focus | more | on | who | i | am | rather | than | the | issues | at | hand | your | reasoning | was | bad
+-1 | do | you | really | think | reality | television | is | real
+-1 | not | in | the | legal | systems | eyes
+-1 | iphone
+-1 | once | again | wrong | bananas | 
+-1 | im | not
+-1 | school
+-1 | this | when | i | was | younger | 
+-1 | you | mean | shitiness | right
+-1 | any | tweet | by | this | guy |  | urlhere | 
+-1 | musical | animal | or | weight | scales
+-1 | i | just | finished | scrubs | this | week | great | show
+-1 | theyre | called | hamburgers
+-1 | even | your | username | fits | nicely
+-1 | lion | king | lying | king
+-1 | ya | ever | since | zach | galifinakis | did | it | in | the | hangover | the | girls | sploosh | every | time | they | see | it
+-1 | that | was | the | dumbest | thing | i | have | seen | all | day | smh
+-1 | when | i | had | a | penis
+-1 | anthonytonyanthonyandy | 
+-1 | an | old | wrinkly | eating | a | double | cheeseburger
+-1 | super | mario | bros | come | at | me | bros
+-1 | only | response | that | matters | 
+-1 | and | isnt | a | random | character | black | for | seemingly | no | reason | when | i | saw | that | i | noped | out | of | there
+-1 | in | the | works | actually | 
+-1 |  | urlhere | 
+-1 | gt | aaa | is | not | tied | to | your | car | or | your | phone | i | had | no | idea | that | was | the | case | good | to | know
+-1 | tom | cruise
+-1 | yes | its | different | to | want | to | fuck | a | consenting | adult | than | a | child | edit | than | not | and | 
+-1 | yes | because | homosexual | relations | can | be | practiced | between | two | consenting | adults | 
+-1 | im | not | entirely | sure | thats | swf
+-1 | bullshit
+-1 | fair | point
+-1 | im | sure | the | robotic | cops | have | been | brainwashed | to | the | point | where | they | believe | in | the | law |  | 
+-1 | tall | is | a | fact | beauty | is | an | opinion
+-1 | thanksboy | thats | confusing | when | someone | makes | up | their | own | terms | 
+-1 | you | cant | make | me | get | injected | with | that | liquid | mercury | cocktail | full | of | nsa | nanobots
+-1 | this | is | the | best
+-1 | nice | name
+-1 | funny | im | not | a | police | officer
+-1 | haha | more | like | fart
+-1 | you | find | yourself | on | a | boat | just | you | alone | with | a | wedge | of | cheese | what | do | you | do | 
+-1 | apparently | gaslighting
+-1 | costco | icing | is | terrible
+-1 | remember | to | ask | cops | for | help
+-1 | thats | nice
+-1 | both | paedo | and | pedo | are | correct | you | are | not | 
+-1 | your | an | idiot | and | deserved | every | bit | of | it
+-1 | who | uses | spartan | in | that | manner | 
+-1 | bmw | drivers | is | that | a | job
+-1 | ooh | ooh | me | me
+-1 | nah | just | being | redistributed
+-1 | rhailcorporate
+-1 | not | a | movie | but | mistborn | needs | a | movie | series
+-1 | thin | models | act | as | role | models | for | girls | to | become | thin | causing | anorexia | 
+-1 | this | whole | thread | is | a | rhailcorporate | dream | or | nightmare | give | or | take
+-1 | lets | include | the | viruses | for | the | fuck | of | it |  | 
+-1 | being | a | dick | for | free | isnt | great | 
+-1 | make | a | public | stand | against | the | legalization | of | marijuana | 
+-1 | wasabi | beer | sounds | amazing | just | saying
+-1 | i | cant | eat | marshmallows | so | i | can | never | have | the | joy | of | a | wagon | wheel | 
+-1 | wasnt | that | bad
+-1 | teddy | was | first | but | obama | is | the | most | comprehensive |  | so | far | anyway
+-1 | then | you | might | have | a | problem
+-1 | youre | kidding
+-1 | we | should | encourage | this | less | competition
+-1 | yeah | black | people | have | way | too | much | money
+-1 | rchildfree
+-1 | i | saw | a | guy | stuck | his | head | in | a | smelly | bin | then | puke | everywhere
+-1 | downvote
+-1 | at | least | i | didnt | say | a | case
+-1 | selfish | as | fuck | yo | goddamn
+-1 | this | is | the | correct | answer | edit |  | negatives |  |  | lots | of | wizards | reading | this | thread
+-1 | look | a | little | harder | youll | find | it
+-1 | itt | sugar
+-1 | their | security | is | nowhere | near | what | they | claim | though
+-1 | youre | thinking | of | fargo
+-1 | nope | different | ideas | are | not | well | liked | here | i | know | when | to | shut | up | 
+-1 | well | you | see | the | problem | is | youre | at | a | car | dealership
+-1 | that | sounds | like | some | indie | documentary | 
+-1 | rblackpeopletwitter
+-1 | im | aware | it | doesnt | im | just | a | stickler | for | serious | tags | on | posts | like | this | 
+-1 | got | tobacco | in | it | after | all
+-1 | alive | would | be | good
+-1 | id | say | proctologists
+-1 | i | dont | speak | english | with | slang | much
+-1 | he | has | every | right | not | to | explain | himself | on | here | for | everyone | to | see | 
+-1 | proctologist | 
+-1 | no | im | not | gay | anyway | i | actually | love | battlefield | now
+-1 | money
+-1 | a | boar
+-1 | dilauded | is | fairly | hard | to | od | on | plus | i | have | a | huge | tolerance | even | when | im | not | regularly | using
+-1 |  | urlhere | centmyth
+-1 | that | just | means | youre | lucky | 
+-1 | its | okay | this | didnt | happen | anyway
+-1 | yep | tom | cruise
+-1 | i | was | kidding
+-1 | pretty | sure | you | spelled | and | wrong
+-1 | think | of | the | children | urlhere | 
+-1 | because | i | said | so
+-1 | addiction | and | long | term | cognitive | impairment |  | urlhere | 
+-1 | parking | rangers | failed | police | officers
+-1 | itt | everyone | complains | about | america | again | 
+-1 | full | prooflike | 100 | proof
+-1 | youve | not | waited | tables | have | you
+-1 | causes | a | lot | of | road | deaths | and | gun | deaths | 
+-1 | better | than | the | prime | years | of | your | life | being | spent | without | money | or | food
+-1 | many | great | stories | have | started | as | such | my | friend
+-1 | im | not | after | arm | my | cymbal | face | does
+-1 | you | can | observe | alot | by | observing | alot
+-1 | thats | the | best | part
+-1 | say | the | guy | wearing | designer | sneakers
+-1 | gt | fantastic | show | thoughuh | have | you | watched | it | lately
+-1 | not | rye | bourbon | save | the | rye | for | a | sazerac
+-1 | right | on | good | luck | with | studies
+-1 | dae | rip | off | the | front | page | which | is | already | a | rip | off | of | a | 4chan | post
+-1 | please | stop | suggesting | this
+-1 | a | month | or | so
+-1 | staying | up | latestaying | in | bed | late
+-1 | got | eeeaaaammmm
+-1 | hannibal
+-1 | rolling | dice | hoping | to | get | a | six | six | times | in | a | row | spent | 45 | minites | one | doing | it
+-1 | its | illegal | buddy |  | get | that | through | your | thick | skull
+-1 | slow | cooker | make | big | batch | of | food | microwave | the | leftovers | bam
+-1 | with | your | penis
+-1 | maximum | wages | make | sense | 
+-1 | do | not | give | me | gold | please
+-1 | so | he | was | a | marine | medic | and | an | eod | expert | gtfo | 
+-1 | mermaids | are | definitley | a | thing | 
+-1 | yeah | i | get | that |  | if | it | were | though | id | be | pissed |  | which | is | what | i | said
+-1 | only | a | little
+-1 | ewwww | nope | nope | nooooooope
+-1 | aspartame | urlhere | sideeffectsoverview1 |  | ftfy
+-1 | i | find | it | super | annoying | when | someone | uses | gay | as | an | insult
+-1 | you | sound | like | your | childhood | was | nonexistent | 
+-1 | gt | datelol
+-1 | breaking | bad | is | hard | to | argue | with
+-1 | internet
+-1 | hey | me | too
+-1 | jesus
+-1 | just | what | he | said
+-1 | me | likey
+-1 | casual | sex | not | speaking | from | experience |  | 
+-1 | come | on |  | you | know | its | bad | for | youit | causes | inflammation | which | causes | acne
+-1 | wow | that | was | dumb
+-1 | soo | unless | you | know | of | someone | who | is | over | 1km | tall | then | i | guess | were | all | short
+-1 | i | am | referring | to | a | top | comment | with | thousands | of | upvotes | 
+-1 | this | was | asked | yesterday | u | just | rearranged | the | wording
+-1 | why | didnt | you | abort
+-1 | great | 90s | rap | song | about | ass | sampled | in | a | shitty | rap | song | about | dick | and | also | ass
+-1 | kink | is | kink | my | friend
+-1 | giant | ceramic | platter | dude | 10lb | may | be | a | bit | hyperbolic | but | definitely | 67lbs | easy
+-1 | obscene | is | ignorance | and | bigotry | obscene | is | people | who | care | more | about | property | than | people
+-1 | oh | snap
+-1 | i | cut | my | finger | off | and | used | it
+-1 | holy | shit | i | went | to | that | school | i | think | shs
+-1 | give | me | gold | please
+-1 | being | complacentftfy
+-1 | whats | the | difference | u | know | there | is | no | such | thing | as | achieving | the | best | right
+-1 | some | of | those | people | are | a | few | feet | across | that | double | yellow | line | during | your | commute | too | 
+-1 | he | stinks | because | of | his | sweaty | feet
+-1 | eight | six | seven | five | three | oh | nine
+-1 | sports | bras
+-1 | sure | she | did | 
+-1 | unless | youre | a | group | who | asks | for | separate | checks | and | then | pays | all | in | cash | 
+-1 | what | the | fuck | did | you | just | link | me | to
+-1 | considering | you | can | eat | well | off | 100 | a | month | that | doesnt | seem | like | a | very | good | deal
+-1 | if | you | didnt | meet | assholes | you | must | not | have | been | on | the | higher | floors
+-1 | know | that | sub | well | eh
+-1 | trying | hard | enough
+-1 | the | witchs | kiss | 
+-1 | ask | me | about | my | triggers
+-1 | i | just | dont | like | them | i | dont | think | i | need | a | reason | i | guess | i | just | dont | like | their | style
+-1 | colorblind | teacher
+-1 | take | the | 20 | pocket | it | ruin | day | of | the | idiot | who | made | me | the | offer
+-1 | no | but | id | be | pissed | i | wasnt | invited
+-1 | use | just | the | tip
+-1 | well | that | ones | just | the | name | of | the | company | that | produces | the | meat
+-1 | geraffe
+-1 | i | did | read | the | rules |  | you | didnt | say | anything | to | rule | out | real | estate
+-1 | i | dont | see | the | problem
+-1 | itt | blacks | or | women
+-1 | that | girl | has | a | nice | round | ass
+-1 | just | put | it | in | real | slow
+-1 | sleeping | pills
+-1 | lmfaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaoooooooooooooooooooo | hahahah | yes | yes
+-1 | i | wish | i | could | beat | your | dad | to | an | inch | of | his | life
+-1 | damnit | we | are | not | doing | this | again | just | no | downvote
+-1 | shake | it | like | a | polaroid | picture
+-1 | i | was | told | i | am | a | lot | like | jesse | which | is | why | i | watched | it | c | he | was | pretty | likeable | right | guys | 
+-1 | and | dont | they | know | it
+-1 | no | matter | where | you | go | there | you | are
+-1 | like | it | fucking | matters
+-1 | theres | no | reddit | in | 100 | years |  | it | would | be | considered | far | too | intellectual | and | longwinded
+-1 | age | of | ultron | sorry | not | really
+-1 | made | a | reddit | account | what | little | productivity | i | had | died | 
+-1 | go | back | while | you | can
+-1 | this | when | im | supposed | to | be | studying | after | 30 | mins | i | just | get | a | craving | for | different | information
+-1 | you | never | knowyou | never | knowyou | never | knowyou | never | know
+-1 | teach | me | senpai | 
+-1 | thats | a | perfect | dad | joke | i | plan | to | utilize | from | now | on | 
+-1 | god | doesnt | exist | 
+-1 | deshi | basara | urlhere | 
+-1 | only | losers | get | psychologically | addicted | to | marijuana | and | then | whine | about | it | 
+-1 | did | you | mean | it | feels | like | cumming | home
+-1 | sweden | is | cucked | by | islamic | and | african | immigrants
+-1 | define | failed | dare | like | they | chose | not | to | do | it | or | they | attempted | it | and | failed
+-1 | im | sure | you | get | those | all | the | time | oh | wait | no | you | are | karma | whoring
+-1 | i | was | going | to | mention | baltimore | and | then | i | read | the | rest | of | your | post
+-1 | whoa | there | it | is
+-1 | engineers | are | pretentious | as | can | be
+-1 | estonia | i | thought | that | shit | was | a | third | world | country
+-1 | that | title | belongs | in | rjustneckbeardthings
+-1 | much | gold | such | wow
+-1 | what | if | im | the | schmuck |  | 
+-1 | seriously |  | 
+-1 | i | agree | this | seems | like | it | would | hurt
+-1 | more | shorter | anyone | 
+-1 | just | like | in | hearthstone | s
+-1 | well | you | would | be | surprised | at | how | many | door | outside | of | the | dating | game | being | social | open
+-1 | what | if | someone | prays | for | you | to | get | only | down | votes
+-1 | prayer | and | the | law | of | attraction | go | hand | and | hand
+-1 | fuck | i | forgot | my | girlfriend | knows | my | reddit | as | well | its | sex | too | i | swear
+-1 | till | i | collapse | is | another | good | track | for | sustained | exercise
+-1 | my | man | fist | the | bitch
+-1 | no | not | really | its | honestly | just | community | service | shit | 
+-1 | i | wish | lsd | stayed | in | me | forever | it | would | save | me | 70 | a | week
+-1 | the | mitochondria | is | the | power | house | of | the | cell | also | jet | fuel | cant | melt | steel | beams
+-1 | sex | work | 
+-1 | that | bush | did | 911
+-1 | dude | justuhtake | the | onions | off | 
+-1 | whoosh
+-1 | you | mean | the | internet
+-1 | asians
+-1 | which | one | 
+-1 | american | here |  | had | tolerant | american | parents |  | still | got | the | shit | beat | out | of | me
+-1 | at | the | office | 
+-1 | spoon | battle
+-1 | my | smooth | nipplesi | prefer | them | soft | than | pointed
+-1 | moronic | misuse | of | the | term
+-1 | theyre | asking | what | you | think | is | good | dumbass
+-1 | adolf | hitler | well | at | least | his | brain | is | in | a | jar
+-1 | then | you | are | a | hypocrite | 
+-1 | alright | im | done | with | this | thread | 
+-1 | im | not | sure | you | understand | the | concept | of | science | fiction
+-1 | its | called | being | friendly | you | gigantic | cunt
+-1 | breaking | benjamin | blow | me | away | halo | 2
+-1 | rape | is | a | scale | from | not | too | bad | at | all | to | horrendous |  | people | can | enjoy | being | raped
+-1 | just | say | it | but | say | it | with | confidence | 
+-1 | kat | that | was | a | beautiful | rejoinder | 
+-1 | can | you | explain | this | logic | or | do | you | just | support | anyone | that | won | any | war | cause | whatever
+-1 | jimmy | saviles | cool | this | would | get | you | fired | in | record | time | if | you | worked | in | childcare | 
+-1 | poke | them | with | stick
+-1 | i | kinda | like | the | real | christopher | columbus | more | than | the | fake | cheesy | one | after | reading | about | him
+-1 | nah | theyll | think | you | just | shat | yourself | 
+-1 | i | dont | have | my | period | any | more | so | i | help | the | planet | by | not | getting | pads | i | guess
+-1 | yepkeep | it | to | rlolicons | you | pedo
+-1 | seasons | 19 | 
+-1 | yeah | and | as | soon | as | you | hit | a | slight | bend | in | the | road | spin | out | and | kill | you
+-1 | make | up
+-1 | i | hope | you | arent | a | real | physicist
+-1 | steel | beams | 
+-1 | i | honestly | dont | think | he | did | 
+-1 | youre | better | than | my | uncle
+-1 | write | fart | on | random | pages | of | their | pad | of | sticky | notes | until | they | go | insane
+-1 | i | nominate |  | uchewyundername
+-1 | yeap | but | i | dont | like | the | new | changes | that | came | along | with | new | season
+-1 | totally | lol
+-1 | by | reposting | the | same | questions | to | askreddit
+-1 | its | the | only | way | they | get | to | orgasm | 
+-1 | i | expected | it | to | go | into | the | fresh | prince | theme | myself
+-1 | yes | yyeeesssssssss
+-1 | well | lets | see | em
+-1 | they | can | try | but | i | got | the | pulsating | rhythmical | remedy
+-1 | why | would | nazi | germany | rule | the | worldthat | makes | no | sense
+-1 | except | its | not | barenstein
+-1 | that | still | makes | zero | sense
+-1 | fair | enough
+-1 | for | those | wondering | heres | a | source | urlhere | 
+-1 | benzodiazapine | and | jerry |  | ftfy | 
+-1 | thats | just | fucked | up
+-1 | noooooooi | refuse | to | believe | this
+-1 | redacted | realised | my | mistake | technically | they | do | get | pregnant | but | its | eggs
+-1 | easy | fix | takes | a | tarp | duck | tape | and | a | shovel
+-1 | are | you | queer
+-1 | happy |  | pharrell
+-1 | mccaulay | culkin | wearing | a | t | shirt | of | ryan | gosling | wearing | a | shirt | of | mccaulay | culkin | 
+-1 | riddick
+-1 | their | huge | penisses
+-1 | yeah | you | really | managed | to | beat | the | whole | british | empire | there | s
+-1 | in | the | process | of | convincing | my | little | sister | not | to | go | there | 
+-1 | yep | just | ask | the | sjws | they | actively | search | for | things | to | be | outraged | about
+-1 | maybe | the | historians | should | come | to | raskredit | and | bring | some | of | their | enlightenment | here | 
+-1 | deep | inside | we | all | know | that | we | exist | and | that | this | is | just | stupid
+-1 | i | mean | its | a | slang | term | it | means | what | people | use | it | to | mean | 
+-1 |  | urlhere | 
+-1 | also | the | oldest | living | actor | who | has | won | an | academy | award | if | anyone | was | curious
+-1 | why | is | honey | bees | going | extinct | so | bad | or | is | it | just | because | it | is | a | species | going | extinct
+-1 | shes | not | you | condescending | douchebag
+-1 | sufficiently
+-1 | apology | accepted
+-1 | and | bears | shit | in | the | woods | 
+-1 | they | look | adorable | with | makeup | on
+-1 | yes | but | to | be | fair | saying | you | cant | get | addicted | to | marijuana | is | fucking | stupid
+-1 | thanks | 
+-1 | mtg | its | called | cardboard | crack | for | a | reason
+-1 | but | they | do | a | damn | spot | on | job | of | portraying | a | nerd
+-1 | add | random | comments | to | their | postits | 
+-1 | upvote | because | i | really | didnt | feel | like | reading | that | long | ass | explanation
+-1 | yeah | but | gotta | do | what | has | to | be | done | to | trolls | anyways
+-1 | let | people | have | their | fun
+-1 | terraria
+-1 | ive | done | it | quite | a | few | times | with | her | but | not | enough
+-1 | how | the | fuck | do | you | fit | your | dick | into | a | potato | chip
+-1 | how | is | that | hilarious | 
+-1 | really | how | much | of | mythic | brf | have | you | cleared | to | have | such | a | strong | opinion | on | the | subject | 
+-1 | roommate
+-1 | that | is | still | only | a | subset | of | women | kabukistars | point | still | stands
+-1 | yup | this | hasnt | been | asked | a | million | times
+-1 | yes |  | life | is | so | sad | for | me | as | an | ugly | female | 
+-1 | heroin | is | actually | very | healthy | and | can | cure | most | known | diseases | 
+-1 | parents | until | youre | about | 15 | then | its | bears
+-1 | mark | twain | and | oscar | wildemega | trolls
+-1 | you | should | probably | test | to | make | sure
+-1 |  | reddit | is | a | stage | but | the | play | is | badly | cast |  | oscar | wilde
+-1 | hard | to | realize | if | youre | not | regularly | actually | around | black | people | like | 99 | of | reddit
+-1 | a | solid | firm | handshake | 
+-1 | well | that | escalated | gradually | over | the | course | of | two | to | three | years | 
+-1 | this | is | me | for | sure | on | the | other | hand | i | tip | very | well | so | deal | with | it | 
+-1 | thread | of | qi | responses
+-1 | streetlamp | le | moose | i | believe | his | name | was
+-1 | thank | you | 
+-1 | trade | them | to | him | for | tickets | to | the | gun | show
+-1 | he | was | a | nice | guy | but | an | incompetent | president
+-1 | sorry | to | hear | that | sounded | like | a | healthy | relationship
+-1 | nikki | manaj
+-1 | please | stop | saying | ass
+-1 | and | eternal | kansas | city | too
+-1 | sounds | more | like | a | ron | swanson | type | of | boss | to | me | 
+-1 | your | mother | 
+-1 | ah | well | dude | you | fucking | pushed | me | either | reply | your | address | or | piss | off
+-1 | tis | far | better | to | have | loved | and | lost | then | then | to | have | no | tv | at | all
+-1 | said | like | a | true | white | person | 
+-1 | gthaters | gonna | hate | hate | hateftfy
+-1 | that | would | make | you | the | tinman
+-1 | bring | a | blunt | when | you | come | over | to | burn
+-1 | true | true | and | what | if | mcveigh | had | spurred | a | revolution | himself | 
+-1 | his | cappa | was | detated | from | his | head | and | nobody | cared | 
+-1 | yep | just | ask | clint | eastwood |  | 
+-1 | all | white | women | or | just | the | ones | you | would | like | to | fuck
+-1 | where | in | the | hell | did | that | idea | come | from
+-1 | who | the | fuck | is | michael | scott
+-1 | if | you | have | a | problem | with | me | come | and | say | it | to | my | face | like | a | man | otherwise | jog | on
+-1 | looks | like | a | plucked | chicken | when | its | shaved
+-1 | rutabegas | peas | and | carrots
+-1 | i | thought | it | was | pretty | on | the | nose
+-1 | oh | jesus | thats | hilarious | life | is | too | short | to | not | make | farting | noises
+-1 | they | mostly | stick | to | tumblr
+-1 | deez | nuts
+-1 | was | it | a | succulent | chinese | meal
+-1 | those | crazies | at | waco | had | it | coming
+-1 | it | was | actually | sapphire | was | 1000 | and | i | saw | that | thread | too
+-1 | i | just | upvoted |  | it
+-1 | in | my | world | 
+-1 | wild | pause
+-1 | military
+-1 | it | was | a | gay | strip | club | he | was | there | for | the | sirloin
+-1 | no | one | has | beaten | iwtbtg | on | impossible | your | game | will | crap | out | before | you | do
+-1 | taylor | swift | grabs | popcorn
+-1 | i | was | about | 2 | seconds | from | posting | it | myself | glad | somebody | knows | whats | up
+-1 | made | me | laugh | long | tim
+-1 | didnt | intend | to | be | philosophical | just | being | a | dope | on | the | internetscum | not | cum
+-1 | i | changed | my | gender | when | i | was | 4 | by | putting | on | a | dress | because | the | neighbours | were | spies | 
+-1 | is | it | declining | because | marriage | is | declining
+-1 | it | puts | a | terrible | strain | of | the | artists | wrists
+-1 | you | are | a | pussythere | are | much | worse | things | out | there
+-1 | take | a | chill | pill | yo
+-1 | its | beibers | world | we | are | just | living | in | it | 
+-1 | well | im | just | happy | you | were | able | to | see | my | opinion | 
+-1 | brothers | unless | something | that | belonged | to | her | brothers | died | and | you | forgot | to | include | it
+-1 | she | looks | basically | like | a | sexy | possum
+-1 | sure | i | have | good | or | not | whataburger | still | rips | off | innout | advertising
+-1 | my | views | align | more | with | the | gop | than | the | ukip | but | i | would | probably | vote | ukip | if | i | were | in | the | uk
+-1 | just | like | my | mixtape
+-1 | gtiamaniceladybullshit | i | call | bullshit | frank | charlie
+-1 | move | along | past | wizard | 
+-1 | 56 | is | fucking | short
+-1 | oh
+-1 | how | did | he | get | a | wallaby | in | his | backpack | just | chase | it | and | put | it | in | the | backpack
+-1 | yes | i | am |  | full | stop | not | returns
+-1 | its | called | a | client | database | it | takes | like | 4 | seconds | to | check
+-1 | i | disagree | i | think | her | music | is | actually | really | unique | and | fun | as | far | as | modern | pop | goes
+-1 | cat | trap | house |  | 
+-1 | toothpaste | colada
+-1 | thats | debatable | 
+-1 | and | looks | like | a | goldfish
+-1 | when | the | normies | steal | my | exclusive | rare | pepes
+-1 | youd | probably | look | better | if | you | just | cut | your | hair | all | together
+-1 | the | box | was | actually | a | vagina
+-1 | it | doesnt | get | any | easier | 
+-1 | alladin
+-1 | it | belongs | to | ops | mother
+-1 | cum | inside | of | me | and | ill | make | you | a | bowl | of | beef | stew
+-1 | licking | the | end | oh | a | charger
+-1 | nope |  | i | answered | the | question |  | 
+-1 | fuck | you | sallytriggers | nuke
+-1 | gt | edit | misread | disregardyou | know | theres | a | delete | button | right
+-1 | she | isnt | exactly | hot | she | is | meh
+-1 | i | think | they | hyphenate | their | names
+-1 | rihanna | 
+-1 | to | get | the | creative | juices | flowing |  | urlhere | 
+-1 | its | a | double | set | of | eyelashes | not | the | actual | eye | lid | poor | phrasing | 
+-1 | i | wouldnt | mind
+-1 | its | a | bit | better | in | america | if | only | because | of | the | lawsuit | trolls
+-1 | nicki | minaj | would | just | be | a | ball | attached | to | a | string | in | a | cup
+-1 | i | correct | you | self | pitty | and | attention | are | the | terms | youre | looking | for
+-1 | hold | it | hold | it | ahhhhhhhh | 
+-1 | commit | a | crime | with | a | one | year | minimum | sentence | plead | guilty | live | for | free | in | jail | easy
+-1 | yes | and | make | men | born | children | oh | wait
+-1 | benefits
+-1 | nicki | minaj | beyonc | all | dem | sluts
+-1 | i | dont | have | allergies | 
+-1 | dont | mess | up | 
+-1 | did | you | jack | off | afterwards | 
+-1 | ok | call | me | bye
+-1 | his | fictitiousness | is | uncanny | i | still | live | with | my | parents
+-1 | retards | cant | steel | jet | memes
+-1 | mailman
+-1 | im | guessing | you | only | mean | musical | artists | because | otherwise | fashion | designers | would | be | screwed | 
+-1 | will | huntingnot | saying | that | im | a | genius | just | the | way | he | is | and | how | he | interacts | with | the | world
+-1 | cocaine
+-1 | thats | hard | to | look | at
+-1 | im | 26 | and | know | most | of | them
+-1 | or | the | adjective | dogmatic | 
+-1 | piece | of | land | the | size | of | mexicookay
+-1 | this | is | not | reli5
+-1 | imagine | yourself | in | nothing | but | your | underwear | 
+-1 | ignorant | to | the | fact
+-1 | it | only | got | worse
+-1 | theres | literally | a | porn | genre | for | your | solution | 
+-1 | ive | never | read | a | book | unless | you | want | to | count | good | night | moon
+-1 | a | talented | singer | no | not | in | the | context | of | actual | real | professionals | she | isnt
+-1 | felwinters | lie | and | red | deathjust | destiny | stuff
+-1 | executive | assistant
+-1 | im | addicted | to | reddit | and | ill | lose | my | virginity | through | a | lady | of | the | night | 
+-1 | an | ai | that | exactly | replicates | the | girl | i | like | 
+-1 | i | think | thats | more | your | hormones | starting | to | develop
+-1 | i | think | sprice | girls | would | be | a | better | name
+-1 | london | underground
+-1 | really
+-1 | when | my | priest | told | me | it | was | jesus | inside | of | me
+-1 | 30 | of | condoms | then | the | rest | is | spent | on | ops | mom | she | does | it | for | free | 
+-1 | which | is | caused | by | what | oh | yeahcorrosion | caused | by | smoke
+-1 | youre | literally | retarded | 
+-1 | so | that | it | is | in | reach | of | both | thumbs | in | nearly | any | position | of | the | keyboard | 
+-1 | metro | atlanta | area
+-1 | theyre | so | evil | and | disgusting | 
+-1 | you | may | have | won | in | the | uk | but | weve | lost | like | hell | in | the | us
+-1 | water | temple
+-1 | thanks | for | shutting | your | smug | mouth | you | shitlicking | cocksucker | 
+-1 | found | the | gay | guy
+-1 | janitors | closet
+-1 | land | before | timeyoure | the | only | human | and | there | are | so | many | dinosaurs | trying | to | eat | you
+-1 | why | thank | you |  | that | seems | to | be | a | common | opinion |  | i | get | compliments | on | them | all | the | time
+-1 | small | dogs |  | i | would | order | them | to | attack | their | white | female | socially | elite | masters |  | much | rawr
+-1 | my | bait | is | top | of | the | line
+-1 | if | im | in | between | being | a | shitlord | or | a | whale
+-1 | dem | epicanthic | folds
+-1 | no | they | dont | theyre | just | looking | like | douchebags | doing | it
+-1 | cant | believe | im | 8hrs | late | and | the | first | to | post | beyonc |  | 
+-1 | what | is | brown | and | sticky | a | stick | 
+-1 | trilogy | i | dont | see | me3 | on | steam | doesnt | look | like | a | trilogy | to | me
+-1 | uptown | funk
+-1 | yes | mainland | chinese | are | scum | they | dont | give | a | shit | about | anyone | but | themselves | 
+-1 | random | critical | hits | in | team | fortress | 2 | its | just | bullshit
+-1 | so | you | know | your | initial | declaration | to | be | false | but | peddle | it | anyway
+-1 | crash | bandicoot | 2ff7 | ff8 | ff9super | mario | brothers | 3
+-1 | true | but | if | i | die | in | the | line | of | duty | my | family | is | set | for | life
+-1 | do | use | spaghetti | as | a | brace | problem | solved
+-1 | no | ops | mom | has | it | covered | with | ugly | blankets | 
+-1 | can | you | even | send | a | letter | with | no | return | address | is | that | allowed
+-1 |  |  |  | 
+-1 | thot | that | ho | over | there |  | can | we | speak | like | normal | people | pls
+-1 | studying | probably
+-1 | no | im | very | white
+-1 | the | candysweets | or | just | the | food | in | general
+-1 | is | exactly | the | same
+-1 | i | buy | all | organic | man | and | rarely | eat | salsa | 
+-1 | a | lot | of | people | are | famous | and | dont | look | good
+-1 | let | it | begin | urlhere | 
+-1 | i | get | where | youre | coming | from | but | its | not | like | a | spoiler | tag | takes | much | more | effort | to | put
+-1 | okay | dude | whatever | you | say
+-1 | haha | ill | take | back | my | downvote | then | 
+-1 | the | only | phrase | i | know | in | klingon | is | i | love | you | and | its | hardly | appropriate
+-1 | so | youd | die | for | believing | in | your | wife | and | runt | 
+-1 | ill | do | it | after | school | which | is | over | in | a | few | hours
+-1 | yeah | then | its | just | gross | lol
+-1 | sounds | like | shes | taking | the | piss | out | of | nicki | s | anaconda | lyrics
+-1 | minecraft |  | minecraft |  | are | you | twelve
+-1 | abdomen | counter | 6 | does | not | compute |  | counter | top | level | is | below | crotch | level
+-1 | this | question | and | the | person | who | wrote | it | are | stupid
+-1 | its | a | shame | that | she | is | now | healthier | i | want | what | you | people | are | smoking
+-1 | whether | they | can | spell | bears
+-1 | ex | wife
+-1 | ok | but | i | am | a | 180 | pound | man | not | sure | if | i | will | fit | 
+-1 | id | say | 901 | if | you | want | to | go | by | scientific | evidence | but | sure | believe | what | you | will
+-1 | something | something | dank | memes
+-1 | well | maybe | if | men | understand | how | ugly | that | word | is | they | stop | doing | it
+-1 | uhhh | i | have | zero | problems | playing | smash | 64 | or | guitar | hero | on | my | tv | ltlt
+-1 | join | the | military | this | nation | clothes | and | feeds | you | you | owe | the | nation | a | service
+-1 | i | can | pretty | much | guarantee | you | youre | not
+-1 | emma | stone |  | that | ugly | bitch | is | clogging | up | rgentelmanboners
+-1 | sounds | like | she | also | has | your | balls | 
+-1 | pulled | a | cosby | i | see
+-1 | also | our | puritanism | 
+-1 | their | outlet | voltage | is | about | double | ours |  | is | that | small | enough
+-1 | if | they | got | in | they | would | be | disappointed | just | straightforward | military | hardware
+-1 | she | knew | she | could | smell | your | cum | 
+-1 | halestorm
+-1 | mmcomment
+-1 | you | know | that | hands | are | different | sizes | right
+-1 | paging | chris | traeger
+-1 | wow | were | all | so | happy | for | you | really | great | job
+-1 | what | a | total | rapy | comment | im | watchin | ya | raypist
+-1 | hopefully | young | is | fatenese | for | as | soon | as | possible
+-1 | a | fat | chick | it | was | awful | never | again
+-1 | yeah |  | that | is | what | you | would | take | away | from | it | isnt | it
+-1 | revenwithcontext
+-1 | i | have | never | been | gilded | 
+-1 | garth | brooks |  | the | dance | urlhere | 
+-1 | just | get | a | taxi | no | big | deal | 
+-1 | thank | you | sir
+-1 | break | on | through
+-1 | glad | we | cleared | that | up
+-1 | you | people | what | do | you | mean | you | people | i | aint | been | on | here | long | gettin | the | hang | of | it
+-1 | i | wouldnt | know | 
+-1 | the | declaration | of | independence
+-1 | nikki | manaj | iggy | azalea | and | the | rest | of | that | kinda | artists
+-1 | having | your | boyfriend | put | things | on | top | of | the | fridge | and | not | being | able | to | reach | them | 
+-1 | i | guess | torture | is | quite | memorable
+-1 | said | the | ugliest | person | in | the | world | 
+-1 | i | fap | til | im | raw | then | when | im | better | ops | mom | drinks | my | goo
+-1 | i | believe | stds | will | be | your | regret | soon | 
+-1 | white | face | paint | hes | been | fooling | you | all | this | time
+-1 | unless | they | have | leukemia
+-1 | well | goldfish | only | have | five | second | memories | not | really | sure | how | id | tackle | that | one
+-1 | so | i | shouldnt | worry | that | my | boss | told | me | to | look | for | another | job | and | my | wifes | hours | just | go | cut
+-1 | and | its | gag | inducing | without | makeup | or | photoshop | 
+-1 | you | keep | on | hoping | there | buddy
+-1 | gtusgtfirst | world | countrieslol
+-1 | wharfit | sounds | so | gross
+-1 | dafuqs | wrong | witchu
+-1 | you | ready | to | smoke | this | kush |  | then | you | can | smoke | this | cock | some | more
+-1 | mainly | knee | pain
+-1 | your | dad | still | seems | stupid | to | you
+-1 | until | we | run | out | of | pigs
+-1 | yes | i | would
+-1 | bubbles | is | that | you
+-1 | it | didnt |  | that | was | simply | what | media | outlets | portrayed
+-1 | you | know | how | those | asians | and | jews | are | nerdy | and | short | the | whole | lot | of | them
+-1 | women | arent | funny | there | are | no | mom | jokes
+-1 | thats | true | for | 90 | of | jobs | but | most | of | those | jobs | still | require | a | degree | of | some | sort
+-1 | yeah | but | what | is | on | tv | is | not | what | i | find | hot | 
+-1 | well | arent | you | such | a | big | man | cursing | out | obviously | underprivileged | children
+-1 | anyone | with | faith | should | be | executed
+-1 | broken | arms
+-1 | moist | just | because | it | sounds | like | nails | on | a | chalkboard | i | dunno | why
+-1 | tom | petty |  |  | great | american | music |  | not | so | handsome | imho
+-1 | d0cd
+-1 | as | opposed | to | other | humans | who | are | also | shaped | like |  | guess | what |  | humans
+-1 | christians | hate | him
+-1 | thats | not | 5 | words | or | less
+-1 | so | im | guessing | north | of | 300just | how | big | is | your | horse | in | this | race
+-1 | you | must | not | know | much | about | peak | fitness
+-1 | david | cross | and | dave | chappelle
+-1 | different | black | people | is | a | good | one | how | could | we | miss | that | good | catch | 
+-1 | i | like | texting | with | mythumb | only | cba | withthis | two | hand | stuff
+-1 | you | link | when | youre | on | mobile |  | its | just | a | pain | in | the | ass
+-1 | holy | fucking | shit | you | actually | believe | this
+-1 |  | urlhere | 
+-1 | gt | i | can | lose | weightliterally | my | entire | point |  | thank | you
+-1 | i | would | ask | what | is | your | deal | you | sound | totally | crazy
+-1 | no | im | pretty | sure | its | singer | rain | singer | rain | sings | whatever | a | spider | rain
+-1 | depends | of | if | they | discover | alcohol | or | not | 
+-1 | i | dont | need | to | read | the | article | i | studied | calories | at | mit | lol
+-1 | for | determining | flight | levels | as | in | theyd | all | have | to | stay | within | 500 | feet
+-1 | someone | posted | a | pic |  | he | looks | very | punchable |  | 
+-1 | shitty | fat | sacks
+-1 | just | as | often | as | normal | weight | people | ripping | on | someone |  | 
+-1 | id | never | make | a | dubstep | playlist | 
+-1 | meh | hes | all | over | my | account | it | spilled | from | one | comment | to | another
+-1 | you | could | really | help | me | out | if | you | brought | giselle | naked | over | here
+-1 | youll | have | infinently | more | success | then | 
+-1 | mind | your | own | fucking | business | 
+-1 | it | would | pretty | much | be | all | the | same | shit | you | see | on | tv | right | now | minus | the | local | car | commercials
+-1 | i | never | heard | of | her | until | well | into | my | 30s | and | id | also | like | a | ticket | to | ride | 
+-1 | yo | i | live | on | a | planet | that | is | a | few | billion | years | old | okay
+-1 | no | its | a | deal | breaker | if | the | guy | is | shorter | than | them | dont | exaggerate | now | 
+-1 | i | saw | a | post | about | eating | doors | a | a | little | while | ago | that | got | to | top
+-1 | my | kids
+-1 | laws | no | longer | apply | to | me | 
+-1 | shaming | is | not | responsible | for | the | decrease | in | smoking | fear | of | secondhand | smoke | is | responsible | 
+-1 | victorias | secret | 
+-1 | coast | guard | isnt | us | military | though | its | not | even | part | of | the | dod
+-1 | for | once | your | username | is | correct
+-1 | brazzers | 
+-1 | i | have | only | one | of | those | things | and | i | very | much | so | doubt | ac | is | worse | that | cigarettes
+-1 | you | really | fucked | up | the | spelling | of | that | name | urlhere | 
+-1 | whats | ultron
+-1 | the | attitude | that | i | want | a | level | playing | field
+-1 | i | told | my | girlfriend | she | was | a | hypercondriac | so | she | went | to | the | doctor | and | asked | for | surgery | 
+-1 | where | did | i | call | anyone | a | moron
+-1 | well | to | be | fair | watermelon | is | delicious | 
+-1 | frequent | threesomes | with | lingerie | models | lots | and | lots | of | threesomes | with | lingerie | models |  | 
+-1 | love | how | you | downvote | me | for | setting | you | straight | real | classy
+-1 | pure | genius | id | pay | good | money | to | drop | a | deuce | in | one | of | those
+-1 | this | is | the | second | thatll | do | pig
+-1 | right | thats | not | support | its | idiocy
+-1 | ive | never | seen | anybody | hold | a | laser | tag | gun | sideways | mustve | been | neat
+-1 | ey | b0ss | gibe | me | a | gold | pls
+-1 | so | if | someone | gave | you | 300 | youd | be | ungratefulsmh
+-1 | because | it | makes | me | feel | like | a | big | man
+-1 | this | makes | me | really | sad
+-1 | sorry | misread | who | replied | i | stand | by | my | reply | none | the | less | 
+-1 | so | you | would | have | them | die
+-1 | gt | the | original | guy | named | richard | was | had | a | huge | dick | to | in | everyoneftfy
+-1 | its | truesource | i | live | in | portland
+-1 | why | not
+-1 | i | bet | you | look | good | on | the | dancefloor |  | arctic | monkeys
+-1 | the | opposite | of | a | butterface
+-1 | being | fat | 
+-1 | its | not | a | choice |  | i | was | born | this | way
+-1 | i | havent | been | fucked | like | this | since | grade | school
+-1 | i | caught | a | guy | jerking | off | at | work |  | i | reported | him |  | he | didnt | work | there | after | that
+-1 | today | its | based | on | who | you | know | most | of | the | time |  | or | at | least | a | lot | of | the | time
+-1 | i | mean | can | white | people | not | have | there | own | music | too
+-1 | surrreeee | and | this | question | totally | isnt | standard | for | testing | 
+-1 | this | comment
+-1 | smell | that | bacon
+-1 | the | columbia | house | cd | clubprogram |  | this | was | probably | 1994ish
+-1 | dank | memes
+-1 | dude | thats | gay
+-1 | baby | boomers | im | in | college | so | thats | why
+-1 | justcanadianthings | urlhere | 
+-1 | i | pretty | much | wasnti | had | no | idea | how | to | approach | effectively
+-1 | yes | indeed | sure
+-1 | i | dont | think | kids | in | asia | should | be | able | to | assist | in | killing | people | just | my | opinion
+-1 | youre | welcome
+-1 | i | havent | been | fucked | like | that | since | grade | school
+-1 | i | dont |  | i | just | downvote | then | regardless | of | their | comment | for | being | unoriginal | and | retarded | 
+-1 | while | driving
+-1 | look | at | what | actual | puas | have | to | say | about | itits | playful | teasing | not | a | malicious | insult
+-1 | maybe | you | should | shut | up
+-1 | its | kinda | like | egg | foo | young | 
+-1 | accelerating | too | fast | from | a | stop | light | or | speeding | up | to | a | stop | light
+-1 | ah | i | seeonly | the | shitty | puas | use | linesyouve | probably | been | with | a | few | and | dont | even | know | it
+-1 | pretty | good
+-1 | beat | me | to | it | you | cocksucker
+-1 | has | your | dog | found | jesus | not | all | dogs | go | to | heaven
+-1 | lol | so | meta | hivemind | agianst | hive | mind | x | infinitysemi | s
+-1 | so | whats | up | with | airline | food
+-1 | i | noped | out | of | therejust | stop | it | with | this | 
+-1 | do | you | mean | cum | on | man | dont | be | that | guy |  | 
+-1 | no | theyre | just | to | scared | to | say | it | off | the | internet | because | they | know | theyre | wrong
+-1 | youre | a | big | guy
+-1 | religion
+-1 | and | boom | goes | the | dynamite
+-1 | red | lampshade | for | the | traveling | nightlight | 
+-1 | yeah | how | dare | i | try | to | enjoy | life | and | talk | about | things | other | than | common | bullshit
+-1 | i | would | give | some | to | my | parents | and | give | the | rest | to | charities
+-1 | thank | you | for | your | services | 
+-1 | its | really | not | difficult | when | deep | down | most | of | them | hate | themselves
+-1 | iphone | sucks
+-1 | common | sense
+-1 | 1 | meta2 | you | dropped | this | 
+-1 | cum | on | guys
+-1 | theyre | teenagers |  | they | have | awful | taste | in | everything
+-1 | cheetos
+-1 | to | annoy | and | get | a | reaction | out | of | people
+-1 | do | you | think | it | sucks | to | be | rich | im | sure | every | situation | has | its | ups | and | downs | 
+-1 | like | a | girl | would | think | of | that
+-1 | moisten
+-1 | i | would | never | have | thought | about | that | this | whole | thread | is | making | me | rethink | my | diagnoses
+-1 | very | thought | provoking
+-1 | i | read | that | as | wank | with | my | dad
+-1 | the | main | character | in | curb | is | larry | david
+-1 | moist | groin
+-1 | thatll | do | pig | thatll | do
+-1 | grease | soundtrack | heard | it | in | a | bar | in | brisbane | and | lost | my | shit
+-1 | wait | im | a | cuck | and | youre | friend |  | isnt | that | an | oxymoron |  | or | are | you | just | a | moron
+-1 | other | peoples | thoughts | and | feelings | are | overrated
+-1 | it | can | be | good |  | i | like | symphony | mixed | with | most | things
+-1 | latin | and | greek | probably | 
+-1 | before | ofcourse | after | id | just | have | sloppy | sex | with | your | hamburger
+-1 | you | get | a | lot | more | hate | than | someone | who | isnt | it | just | works | that | way
+-1 | breathe
+-1 | what | did | i | say | that | was | ignorant | racism
+-1 | titties
+-1 | fat | people
+-1 | i | place | a | 10000 | bet | youre | a | woman
+-1 | juicy | j
+-1 | pissed | in | the | birdbath | of | my | enemy | 
+-1 | youre | better | than | your | sister
+-1 | then | call | to | the | guinness | world | records | guys | 
+-1 | agreed
+-1 | i | make | good | money | as | a | pharmacy | technician | 
+-1 | thatll | do | pig
+-1 | thats | nice | so | did | you | bawl | or | what
+-1 | uh | huh
+-1 | makes | no | sense | im | assuming | you | are | drunk | alcoholic | loser
+-1 | like | two | months | later | too | reference | game | on | point
+-1 | maybe | thats | in | the | morman | bible | everyone | elses | bible | just | says | he | was | marked
+-1 | why | did | the | guard | at | auschwitzs | get | firedhe | couldnt | concentrate
+-1 | well | a | good | start | probably | would | be | the | treaty | of | versailles | 
+-1 | relevant | username | perhaps
+-1 | enough | with | the | teenage | angst | already | 
+-1 | the | cost | to | access | roads | would | probably | less | than | it | is | now | paid | via | taxes
+-1 | thanks | for | bringing | up | one | of | reddits | favorite | circlejerks
+-1 | more | like | mr | this | show | blows
+-1 | stop | trying | to | appropriate | maternal | culture | ciscum
+-1 | welldone | steak | is | horrible | anyway | good | job | on | your | parents | to | get | you | to | enjoy | rare
+-1 | you | have | such | good | parents | 
+-1 | i | love | you
+-1 | a | moustache
+-1 | religion
+-1 | i | hate | to | be | that | guy | butcan | i | have | a | source | for | this | please | 
+-1 | not | poweroppression | 
+-1 | banning | a | porn | star | is | the | closest | youll | ever | get | to | banging | one
+-1 | bruce
+-1 | but | first | you | get | hearing | hiv | 
+-1 | if | theres | no | problem | why | fix | it | they | should | feel | as | bad | about | it | as | their | livers | and | hearts | do
+-1 | this | isnt | even | his | final | form
+-1 | sorry | to | bust | your | bubble | but | dorms | have | fire | drills
+-1 | whaaaat | is | yeet
+-1 | i | was | already | thinking | that | anyway
+-1 | ayy | mnipples | 
+-1 | are | you | insane | in | the | membrane | yes
+-1 | robots | robots | and | they | already | have | robots | driving
+-1 | skrillex | kill | everybody | lol
+-1 | fuck | i | hate | it | when | people | comment | this | but | thats | a | relevant | username | right | there
+-1 | rocking | the | puns | aint | fun | son
+-1 | you | have | your | toilet | and | shower | in | the | same | room | isnt | that | a | little | contradictory
+-1 | define | botched | in | this | circumstance
+-1 | theres | two | kinds | of | people | in | this | world | those | who | fap | in | the | shower | and | th | wait | a | minute
+-1 | you | might | be | addicted | to | porn
+-1 | triggered | unless | referring | to | a | physical | item | that | contains | a | trigger
+-1 | i | dont | understand | why | they | keep | that | a | secret
+-1 | kanye | 
+-1 | hashtag | thank | you | tumblr | and | fanfiction
+-1 | gt | families | of | addicts | are | taking | care | of | themyeah | he | just | told | you | he | was
+-1 | so | is | this | a | mormon | family | or | did | your | parents | just | really | like | blazing | saddles
+-1 | its | not | 100k | right | off | the | bat | depends | on | facility | and | your | ratings
+-1 | my | kids | accuse | me | of | this |  | theyre | not | wrong |  | 
+-1 | ayyyyyyy | lds
+-1 | oridectemy | 
+-1 | how | so | 
+-1 | no | a | bathroom | is | where | you | go | to | get | clean | shitting | in | there | seems | like | it | defeats | the | purpose
+-1 | i | would | give | you | an | upvote | but | your | at | such | a | perfect | number
+-1 | garlic | twist
+-1 | good | for | u | stay | strong | momma | 
+-1 | how | the | fuck | old | is | that | bloke | 1819
+-1 | drugs | are | bad
+-1 | came | here | expecting | top | comment | to | be | i | smell | your | cumwas | disappoint
+-1 | horse | shit | go | occupy | wall | street | and | see | how | far | that | gets | you
+-1 | oh | shit | i | just | looked | her | up | she | looks | like | a | young | man | 
+-1 | transjenner | she | looks | like | a | bloke | my | bad
+-1 | its | a | pull | up | to | dip | compound | movement | that | is | very | hard
+-1 | its | powers | austin | powers
+-1 | hahahaha
+-1 | they | meant | lady | pussies | not | boi | pussy
+-1 | youre | the | detective | reddit | needs
+-1 | if | theyre | still | working | they | are | like | normal | people | their | age | 
+-1 | do | you | really | even | care
+-1 |  | utero | 
+-1 | not | kind
+-1 | what | is | this | female | mind | youre | speaking | of
+-1 | damn | dude | thats | a | really | long | story | to | make | up | on | the | spot | props | to | you | on | your | creativity
+-1 | what | is | the | worst | pun | you | have | ever | heard
+-1 | sometimes | you | gotta | take | the | pussy
+-1 | thanks | youre | right
+-1 | make | sure | the | knots | are | tight
+-1 | i | think | everybody | is | slightly | more | or | less | appropriate
+-1 | sure | it | is
+-1 | correction | that | car | has | felt | some | shit
+-1 | well | not | with | that | attitude
+-1 | smells | like | a | lie | 
+-1 | relevant | username | 
+-1 | i | once | smoked | a | blunt | before | i | went | to | class
+-1 | your | mother | 
+-1 | i | disagree | with | your | point | on | customs | some | of | my | favorite | customs | have | come | from | other | countries
+-1 | you | cant | see | low | testosterone | with | a | blood | test
+-1 | disabilitynot | powers | icliot
+-1 | why | are | we | so | embarrassed | about | masturbation
+-1 | why | did | you | let | a | 4 | years | old | have | a | bath | by | itself
+-1 | pure | facts | 
+-1 | you | sir | pretty | much | just | gained | me | entry | to | century | club
+-1 | add | rice | and | update
+-1 | gtthen | here | i | am | with | my | two | hundred | plus | poundsand | no | one | finds | you | attractive | 
+-1 | you | sound | russian
+-1 | give | him | gold | then | selfish
+-1 | nah | it | just | made | her | want | to | break | your | arms | 
+-1 | micropenis |  | 
+-1 | thank | you | for | being | a | kind | and | generous | person | 
+-1 | so | it | took | you | 95 | years | to | finish | your | first | year | of | law | school | you | go | girl
+-1 | get | a | job | 
+-1 | the | uk | ive | always | wanted | to | live | there | 
+-1 | b12 | vitamin | d
+-1 | i | defy | anyone | to | find | a | filthier | song | than | this | urlhere | 
+-1 | murder | is | an | extreme | reaction | to | a | situation | that | could | be | fixed | with | a | coat | hanger
+-1 | thaaaats | a | little | bit | more | than | we | really | needed | to | know | thank | you | very | much
+-1 | go | with | 4 | 5 | 2 | 3 | 6 | its | the | best | way | to | watch | the | current | existing | star | wars | movies
+-1 | if | you | are | dont | check | my | account
+-1 | i | didnt | know | it | until | this | very | moment | but | this | is | my | life | goal
+-1 | mini | ball | pit
+-1 | dude | i | respect | you | so | much | i | cant | imagine | raising | any | kids | key | alone | two | teenagers | 
+-1 | sounds | like | you | will | tell | him | anyway | for | the | drama | alone
+-1 | because | he | will | use | it | as | a | way | to | rebel
+-1 | you | can | still | get | a | virus
+-1 | how | could | exactly | communism | have | destroyed | argentina
+-1 | county | not | city | its | a | world | of | difference
+-1 | read | that | as | sybian | at | first
+-1 | you | wouldnt | understand | nobody | understand | how | i | feel | inside
+-1 | whew | thank | god | it | was | a | joke | 
+-1 | sherlock | even | says | elementary | 
+-1 | 
+-1 | real | noodles
+-1 | fucking | elitists | only | counting | link | karma | bah | 
+-1 | the | blood | of | your | enemies | 
+-1 | lets | hear | what | you | have | to | say | bro
+-1 | yeah | because | there | are | zero | kids | with | ears | pierced | huhi | forgot | about | that
+-1 | asian | woman | meat | 
+-1 | red | rover | red | rover | 
+-1 | virgin | duck
+-1 | 3 | year | olds | 
+-1 | youre | not | married | are | you
+-1 | dirt | water | rainwater | is | pretty | nondirty | dirt | doesnt | evaporate | up | into | the | clouds | 
+-1 | can | confirm | is | me
+-1 | the | only | times | ill | ever | vote | are | when | one | of | my | family | members | runs | for | office | next
+-1 | their | awesomeness | scares | most | outsiders | 
+-1 | remindme | 6 | years
+-1 | thatll | do | pig | 
+-1 | ow | great | one
+-1 | i | am | glad | you | said | tried | to | kill | instead | of | killed | us
+-1 | exactly | how | is | it | ignorant
+-1 | remindme | 6 | years
+-1 | remindme | 6 | years
+-1 | and | yet | youre | downvoted | reddit | is | so | consistently | shortsighted
+-1 | cosplaying | as | feminist | man
+-1 | im | going | to | be | the | first | female | to | earn | 1 | cant | wait
+-1 | not | for | profit | agency | fax | machine
+-1 | like | marilyn | manson
+-1 | have | tono
+-1 | what | the | hell | are | you | talking | about | this | is | not | going | to | turn | into | some | feminism | argument | 
+-1 | tips | fedora
+-1 | had | a | fight | with | the | bully | i | won | it | but | got | suspended | so | was | i | the | bully | after
+-1 | depends | how | youre | doing | it
+-1 | because | what | i | eat | cow | poop | what | a | creative | insult | well | done | 
+-1 | no | theyd | rather | go | to | jezebel | or | listen | to | other | ideologues | 
+-1 | bro | job | bro | job | 
+-1 | i | much | rather | prefer | the | double | rainbow | cockslap | urlhere |  | instead
+-1 | get | on | it | bud | 
+-1 | i | called | an | office | local | to | where | he | lives | and | they | charged | me | 2500 | usd | to | time | deliver | a | package
+-1 | it | did | get | a | hd | remake | on | the | ps3 | but | more | updated | graphics | would | be | cool
+-1 | why | does | it | matter | it | is | a | game
+-1 | triggered
+-1 | mba | 116 | inch
+-1 | your | concept | of | the | truth | is | so | skewed | it | can | only | be | described | as | delusional
+-1 | world | at | war | was | the | undoing | of | the | call | of | duty | series | im | happy | with | it | staying | buried | 
+-1 | i | bet | i | did
+-1 | huh | til | i | always | figured | maybe | it | would | make | your | anus | bulb | or | soetching | not | actually | shit
+-1 | gttiny | bonerdad | tells | it | like | it | is
+-1 | its | too | dank | matey
+-1 | guys | he | cant | be | a | racist | dont | you | seegtsome | of | my | best | friends | have | been | black
+-1 | well | your | relentless | negativity | is | 100 | guaranteed | to | not | help | them | lose | weight
+-1 | im | not | even | going | to | argue | with | you | someone | this | stupid | cannot | be | reasoned | with
+-1 | thats | my | jam
+-1 | in | a | way | traveling | can | be | a | nice | way | to | appreciate | the | place | you | call | home
+-1 | nope | you | havent | convinced | meedit |  | so | youre | saying | there | is | stress | in | life
+-1 | if | you | never | wanted | to | be | pregnant | at | the | time | why | didnt | you | get | an | abortion
+-1 | you | just | want | to | bang | them | thats | why | 
+-1 | exactly | the | scene | i | was | thinking | of | when | i | wrote | that
+-1 | i | think | she | mightve | been | a | racist
+-1 | ive | been | on | sony | systems | since | the | ps1 | came | out | i | just | cant | get | used | to | a | mouse | for | gaming | 
+-1 | this | question
+-1 | a | milli | by | lil | wayne | 
+-1 | why | cant | jesus | surfhes | nailed | to | a | fucking | cross
+-1 | youre | on | a | list | now
+-1 | if | you | have | to | ask | you | may | have | a | problem
+-1 | imagine | margret | thatcher
+-1 | in | a | way | traveling | can | be | a | nice | way | to | appreciate | the | place | you | call | home | 
+-1 | not | upvoting | my | reddit | comments | 
+-1 | but | da | collage | edukayshunz | r | expensive | and | i | cant | smoke | weed | all | da | time | ughhhh | oppresion
+-1 | whats | the | nastiest | shit | shes | ever | told | you | im | talkin | bout | nasty
+-1 | elzababistnationofooggcom
+-1 | a | team | signed | vancouver | canucks | jersey |  | urlhere | 
+-1 | clever | reference | i | got | this | one | 
+-1 | trying | to | implement | or | impose | a | death | penalty
+-1 | typical | swarley | 
+-1 | alright | ill | just | tell | ureallyjay | that | you | cant | take | a | joke
+-1 | fuck | it |  | its | a | cat |  | go | get | your | son | a | dog
+-1 | punch | him
+-1 | ye | but | youre | gay | and | you | love | it | 
+-1 | did | you | plug | it | up | his | ass
+-1 | haha | alright | mr | statham
+-1 | pls | op
+-1 | sonic | and | the | secret | rings1010
+-1 | spiders
+-1 | thinking | there | are | mothers | on | reddit | saw | that | in | fact | there | arent
+-1 | what | about | headlight | fluid
+-1 | i | was | thinking | along | these | lines | when | i | read | the | title
+-1 | maybe | theyll | break | their | arms
+-1 | this | is | literally | what | i | typed
+-1 | i | dont | think | this | needed | an | explanation | but | ok | 
+-1 | everybody | pays | for | sex | somehow
+-1 | something | cool
+-1 | ill | ask | my | friends | hey | can | you | please | not | cuss | hilarious
+-1 | it | was | overwhelmingly | arabs | selling | nonarabs
+-1 | im | pretty | sure | those | e | cigarettes | have | a | lot | of | nasty | stuff | in | them
+-1 | how | are | they | the | worst | 
+-1 | sids | would | be | a | pretty | awesome | usernamegamer | tag | for | an | avid | camper
+-1 | soccer | reading | lifting
+-1 | thanks | vincent
+-1 | an | alcoholic
+-1 | didnt | seem | very | thorough | 
+-1 | i | am | a | customer | support | representative | for | comcast
+-1 | plz | no | i | think | brawl | and | sm4sh | look | like | shit | compared | to | melee
+-1 | basically | the | first | episode | of | bottom
+-1 | you | are | fucked | when | you | get | interrogated
+-1 | you | sound | like | a | little | bietchh
+-1 | better | be | prepared | to | line | up | or | pay | a | premium | for | someone | to | secure | your | phone
+-1 | justin | bieber | i | dislike | him | because | he | is | a | fucktard | but | i | respect | his | talent | and | ability | 
+-1 | why | would | you | think | that | is | stupid | its | a | staple | food | of | an | entire | nation
+-1 | did | you | know | your | son | also | hunts | homeless | people
+-1 | have | it | in | my | list | to | watch | ive | heard | it | so | many | times | now | i | gotta | see
+-1 | loli | just | read | what | you | wrote | dont | hate | me | cause | youre | shallow
+-1 | well | first | you | should | stop | kicking | your | ballsthen | you | should | shave | it
+-1 | free | what | are | your | taxes | going | to | be | for | the | rest | of | your | life | 60 | 
+-1 | the | ham | and | pineapple | combo | is | called | hawaiian | in | the | states
+-1 | why | does | jesus | wrap | hamsters | in | duct | tapeso | they | dont | explode | when | he | fucks | them
+-1 | yes | but | most | of | them | are | dogs
+-1 | thank | you | for | your | service | enjoy | this | free | lung | cancer
+-1 | still | trying | to | catch | them | all
+-1 | thanks | peter
+-1 | triggered
+-1 | darudesandstorm
+-1 | new | york | cityas | a | nonus | citizen | it | has | a | very | usvibe | in | it
+-1 | you | cried | over | a | table |  |  | hm |  | good | for | you |  | 
+-1 | this | is | a | good | one
+-1 | people | who | unironically | call | other | people | toxic
+-1 | i | know |  | fuck | that | noise
+-1 | my | education | all | about | those | scholarships | hook | em
+-1 | sounds | like | the | happiest | possible | ending | 
+-1 | i | is | this | a | thing | now | 
+-1 | and | yes | how | is | this | not | at | the | top
+-1 | my | closed | back | athm50s | leak | like | a | motherfucker
+-1 | taken | 4 | directed | by | m | night | shyamalan | we | find | out | liam | is | behind | the | kidnappings
+-1 | you | are | lucky |  | hes | a | racist | bastard
+-1 | the | sithpassionate | beyond | measure
+-1 | thats | the | flash | not | flash
+-1 | plebbit
+-1 | stop | being | an | ass | we | all | know | he | means | wheelbarrow
+-1 | kanye | west
+-1 | wait | just | wait | for | another | 15 | hours
+-1 | dont | know | but | im | 100 | sure | it | lives | either | in | australia | africa | or | brazil
+-1 | pretty | sure | i | had | good | odds | of | getting | that | right | and | i | did | 
+-1 | you | need | to | make | more | pot | brownies | unless | you | had | more | than | one | tray
+-1 | bang | maids
+-1 | i | dont | see | any | us | player | names | here | yet |  | how | abouttimhoward |  | clint | dempsey |  | 
+-1 | they | would | also | have | to | have | at | least | one | leg | to | be | a | one | night | stand | also
+-1 | for | a | real | hawaiian | pizza | try | pineapple | and |  |  |  | spam | its | tasty | 
+-1 | pocket | sand
+-1 | then | your | wife | is | stupid
+-1 | unfortunately | for | you | the | same | isnt | true | for | being | stupid
+-1 | explains | a | lot | about | american | cops
+-1 | not | a | plot | twist | dummass
+-1 | at | least | i | can | go | anywhere | in | all | of | the | us | and | only | have | to | know | one | language
+-1 | its | the | fucking | jews | man
+-1 | god | tier | comment
+-1 | peeing | in | public
+-1 | no | but | i | can | do | with | just | paintball | instead | of | paintball | and | school | shootings
+-1 | gotta | have | le | karma
+-1 | most | of | the | population | would | be | killed | so | many | people | eats | animals | 
+-1 | either | michelle | duggar | or | michelle | obama
+-1 | sure | in | america | asshat
+-1 | its | overrated | anyway
+-1 | oh | thats | funny | michael
+-1 | hawaii | so | overrated | 
+-1 | way | to | be | honorable | and | stuff | s | see | i | can | be | sarcastic | and | witty | too
+-1 | he | already | knew | thatgt |  | im | from | holland | and | it | is | not | common | practice | 
+-1 | i | think | on | my | lifesometimes | it | doesnt | make | senserefrigerator
+-1 | please | shut | up
+-1 | this | is | it | i | found | the | best | one | here | great | job | man
+-1 | wayne | rooney | best | player | in | the | uk
+-1 | pull | out | your | credit | card
+-1 | focus | on | yourself | and | familybecome | a | better | you
+-1 | blowjob
+-1 | herpes
+-1 | a | blowjob |  | 
+-1 | she | was | a | fucking | slut
+-1 | see | but | you | didnt | have | to | inform | me | of | that | it | adds | nothing | to | the | conversation | full | downvote
+-1 | a | dollar
+-1 | reddit | 4chan | and | porn
+-1 | i | had | to | work | it | was | pretty | slow | that | day | 
+-1 | just | finished | assembling | about | 20 | feet | of | ikea | bookshelves
+-1 | thats | a | nice | one | 
+-1 | rshowerthoughts
+-1 |  | found | another | cum | muncher
+-1 | its | gambling | in | a | shiny | bottle
+-1 | do | you | really | not | understand | the | concept | here
+-1 | take | your | meds | nutbug
+-1 | will | be | arriving | shortly | to | perform | routine | inspection | potato | come | with | us
+-1 | riamverysmart
+-1 | the | holocaust | 
+-1 |  |  |  | 
+-1 | how | pure | we | talking | walter | white | standards | or | fat | damon | standards
+-1 | ah | the | anagram | lovers | tokyo
+-1 | 4chan
+-1 | this | is | genius | evil | but | genius
+-1 | whered | you | go | american | seriously | considering | moving | to | europe | here
+-1 | thanks | for | pointing | that | out | edit | i | guess | that | was | not | an | appropriate | place | for | a | pun | 
+-1 | do | it | the | right | way | or | dont | do | it | at | all | 
+-1 | sex | every | night | if | i | want | it | even | marriage | rocks
+-1 | gt | their | precious | snowflake | i | laughed | so | hard
+-1 | feline
+-1 | since | you | got | gold | this | will | now | be | all | over | reddit
+-1 | did | you | get | molested | as | a | child | you | have | a | serious | aversion | to | the | d
+-1 | kitty | oh | fuck
+-1 | i | wouldnt | be | surprised | to | find | something | in | monsterred | bulletc | was | toxic | 
+-1 | tbh | i | thought | that | you | are | a | guy | through | the | whole | story
+-1 | tight | clothing | on | fat | people |  | no | one | wants | to | see | your | rolls |  | to | the | gas | chamber
+-1 | french | cuisine | 
+-1 | pokekin | if | youre | on | tumblr
+-1 | to | stop | posting | this | question
+-1 | jesusim | an | idiot | 
+-1 | are | you | proving | my | point | for | me | here
+-1 | where | do | you | teach
+-1 | relevant | username | 
+-1 | its | not | impossible | for | a | woman | to | do | she | can | abort | or | give | the | kid | up | for | adoption | 
+-1 | why | though | you | know | what | happens | next | its | not | the | first | time | 
+-1 | so | theyre | expected | to | know | less | is | why | more | people | are | graduating |  | is | the | proven |  | 
+-1 | i | hate | everything | about | our | current | society | but | it | can | be | used | to | fix | some | of | its | problems
+-1 | i | cant | pick | just | one
+-1 | well | its | not | like | they | said | no | s
+-1 | are | you | religious
+-1 | that | sub | is | shite
+-1 | iron | sky | the | amount | of | stupidity | in | that | movie | is | amazing | i | love | it | 
+-1 | not | really | i | just | find | this | copypasta | funny
+-1 | how | does | one | teach | reddit | 
+-1 | you | want | him | to | back | up | the | russian | role | in | ww2
+-1 | back | to | back | could | be | headed | for | a | 3peat | if | vladimir | doesnt | settle | down
+-1 | girls | dont | poop | everybody | knows | that
+-1 | yeah | it | is | not | relevant | you | dumb | asshole
+-1 | rpolandball
+-1 | not | me | dont | even | drink | does | that | mean | i | get | all | the | stuff | all | the | drunk | drivers | had
+-1 | what | was | your | answer |  | 
+-1 | stabbed | in | the | birthmark
+-1 | smitty | werbenjagermanjensen
+-1 | truth | 
+-1 | krabby | patties
+-1 | im | talking | about | for | exploratory | purposes
+-1 | the | cum | box
+-1 | knight | mother | fucking | rider | hands | down | followed | closely | by | the | mother | fucking | ateam
+-1 | 4chans | layout | is | infinitely | better | that | reddits | 
+-1 | tl | dr | pharaohs | had | some | guys | build | a | few | tombs
+-1 | my | inconsistent | accent
+-1 | thats | racist | 
+-1 | i | only | used | mla | in | my | freshman | courses
+-1 | great | question | thanks | for | asking | it
+-1 | probably | because | dad | bod | means | i | dont | have | to | worry | about | my | muffin | top | 
+-1 | posting | this | question | on | askreddit | again
+-1 | most | developed | country | in | the | world | yeah | sorry | to | break | it | to | ya
+-1 | twilight | because | vampires | seem | to | just | sparkle
+-1 | nerkberdsorg
+-1 | damnit | not | again | sorry | down | there | 
+-1 | right | out | of | the | shower | soaking | wet | 
+-1 | whatever | you | say | dude
+-1 | reddit | is | probably | not | a | good | cure | for | depression
+-1 | that | is | actually | a | myth | but | they | are | friendly | and | will | not | attack | unless | you | threaten | their | hive
+-1 | gtas | a | kidgtbuffy | the | vampire | slayerim | sorry
+-1 | cigarettes | 
+-1 | anyone | who | would | be | devastated | by | some | strangers | personal | affairs | is | entirely | too | damn | nosy
+-1 | thats | already | forbidden | were | talking | about | the | death | penalty | here
+-1 | time | to | give | your | heart | to | jesus
+-1 | adam | sandler | a | copy | of | how | to | die | on | a | desert | island | and | incredibly | hot | clothing
+-1 | i | was | stabbed | in | my | neck | right | above | my | collar | bone
+-1 | the | holy | ghost
+-1 | if | i | knew | the | plane | was | gonna | crash | i | would | keep | everyone | from | boarding | if | possible
+-1 | someones | lonely
+-1 | he | grumbled | just | after | 1am
+-1 | 200 | karma | but | he | got | gold
+-1 | brand | new | uniforms | urlhere | 
+-1 | no | such | thing | as | vegan | chicken | and | waffles | makes | zero | sense
+-1 | yeah | why | not
+-1 | i | guess | you | dont | understand | jokes
+-1 | i |  | i | cant | i | just | cant
+-1 | yeah | but | theyre | white | and | apparently | its | not | possible | i | be | racist | towards | white | people
+-1 | youre | vile
+-1 | its | literally | in | the | first | sentence
+-1 | you | can | literally | name | your | kid | anything | why | are | there | no | laws | against | that | 
+-1 | perks | of | being | a | boss | 
+-1 | no | growth | hormones | allowed | in | canada | 
+-1 | rlewronggeneration
+-1 | they | made | a | movie | about | that | staring | ricky | gervais | or | some | british | comedian
+-1 | old | people | can | be | hard | of | hearing | and | too | proudstubborn | to | address | it | 
+-1 | their | own | fault
+-1 | the | ghetto | try | to | survive
+-1 | the | one | i | buried | in | the | desert | with | the | asshole | who | made | itwhat | happens | in | vegas
+-1 | cooking | is | good
+-1 | whats | the | perfect | fit | for | ops | mum | in | 2025
+-1 | i | used | to | think | so | too
+-1 | what | about | the | guy | with | the | trident | in | number | 2
+-1 | a | lot | of | stuff | fits | the | total | fucking | bullshit | category
+-1 |  | this | obviously
+-1 | a | 2 | whatasized | with | bacon | grilled | os | toasted | bs | extra | vs | and | sliced | js
+-1 | yeah | sure | lets | make | a | font | so | that | the | poor | idiots | who | dont | get | it | can | feel | better | lovely
+-1 | knock | knock
+-1 | because | some | people | need | to | harden | the | fuck | up
+-1 | read | that | as | 51020 | years | ago
+-1 | no | executed
+-1 | the | sun | is | this | already
+-1 | sophies | choicegutwrenching | tragedy | is | not | really | something | i | leap | to | watch
+-1 | riamverysmart | 
+-1 | so | in | between | those | furry | pompoms | is | a | barbed | cat | cock | yuck
+-1 | a | hamburger | from | braums | with | a | large | chocolate | shake
+-1 | well | time | to | reap | in | the | free | karma | 
+-1 | booze | next | question
+-1 | beer | an | twix | bars
+-1 | yes | because | elevating | a | nonlethal | assault | in | self | defense | to | attempted | murder | is | so | responsible
+-1 | i | feel | bad | for | you
+-1 | mila | jovovich | for | obvious | reasons | 
+-1 | the | dude | who | gave | me | my | first | line | of | coke
+-1 | wow | go | fuck | yourself | rpolandball
+-1 | stabbed | in | the | kidney
+-1 | upvoting | intensifies
+-1 | nice | try | coppers
+-1 | my | specialtiy | is | javascriptjquery | c | vbnet | and | flash | as |  | then | theres | sql | no | more | brainspace
+-1 | anal | done | by | me
+-1 | so | basically | its | kind | of | like | living | in | conservative | america
+-1 | nic | cage
+-1 | are | you | high | or | something
+-1 | rwheredidthesodago | 
+-1 | where | did | they | hide | the | bodies | 
+-1 | ratheism | and | rchristianity | because | theyre | both | cancerous | 
+-1 | or | pompeii | or | atlantis
+-1 | you | have | no | idea | about | farms | or | farm | animals
+-1 | 51020 | my | brain | tried | to | parse | that | into | a | number | for | much | too | long
+-1 | i | feel | this
+-1 | work | 
+-1 | and | yet | some | bitches | cant | even | use | that | properly
+-1 | soylent | urlhere | 
+-1 | love | that | quote |  | 
+-1 | sorry | a | lot | of | reddit | wont | get | this | fuck | face
+-1 | shrapnel | in | the | shoulder |  | probably | got | my | arm | blown | off
+-1 | most | toilets | flush | in | an | e | flat
+-1 | 50 | shades | of | anal
+-1 | ive | said | it | in | multiple | languages | now
+-1 | yes | several |  | 
+-1 | because | theyre | kleptomaniacs | and | theyre | compelled | to | 
+-1 | stuff | and | things
+-1 | tumblr | sjws | 
+-1 | your | mothers | porno
+-1 | east | we | have | the | water | have | fun | watering | california | we | didnt | want | to | anyways | 
+-1 | what | is | your | native | language | 
+-1 | ruwotm8
+-1 | tobacco
+-1 | and | kubricks | the | shining
+-1 | yeah | this | didnt | happen | at | all | 
+-1 | mleader
+-1 | gt | correct
+-1 | can | i | use | the | word | fuck | in | all | its | forms | adverb | verb | adjective | etc
+-1 | you | sign | inside | of | her | vagina | use | your | dick | as | a | pen
+-1 | pokepokepoke
+-1 | how | will | that | help |  | your | post | implies | you | get | chills | from | music
+-1 | my | childhood
+-1 | you | should | do | this | no | matter | where | you | go | in | the | world | people | love | canadians | 
+-1 | thats | so | ridiculous
+-1 | youre | a | bitch
+-1 | bacon
+-1 | not | entirely | christian | but | take | a | look | at | this | urlhere | 
+-1 | its | from | this | bombass | 13ampgod | track | urlhere |  | 
+-1 | either | depending | on | my | mood
+-1 | isnt | alcohol | banned | on | the | planes
+-1 | grant | hbbtbb
+-1 | bust | ya | nuts
+-1 | your | dad | is | a | child
+-1 | i | hope | someone | helps | you | with | your | chains | 
+-1 | spaceballs |  | oh | wait
+-1 | we | would | all | die
+-1 | so | it | takes | inability | to | understand | someone | elses | words | to | listen | to | yours | 
+-1 | could | have | been | worse | shes | actually | pretty | hot
+-1 | you | should | have | been | made | their | king
+-1 | that | would | beg | the | question | as | to | why | you | were | on | gonewild | in | the | first | place
+-1 | kanye | is | totally | right
+-1 | shut | up
+-1 | im | not
+-1 | he | died
+-1 | before | you | start | policing | reddit | read | further | down | my | comments | i | corrected | myself | 
+-1 | probably | wont | earn | your | respect | either
+-1 | yes | cause | i | brush | my | teeth | 
+-1 | when | i | dont | receive | a | text | back
+-1 | if | that | was | a | clever | reference | it | went | right | over | my | head | 
+-1 | just | put | dog | wonder | how | long | ill | last
+-1 | windows | 10 | its | like | connecting | 2 | big | monitors | to | your | mobile | phone | or | tablet | 
+-1 | totally | agree
+-1 | my | best | friend | got | a | free | helicopter | ride | with | his | parents | 
+-1 | so | youre | saying | we | should | neglect | them | until | they | die
+-1 | british | for | pussy | 
+-1 | yes | he | gets | it
+-1 | since | when
+-1 | go | on
+-1 | neither | 
+-1 | the | invisibles
+-1 | vietnamese | beef | noodle | soup
+-1 | waste | of | human | resources | keeping | that | piece | of | shit | alive
+-1 | fine | ill | google | it | dicks | 
+-1 | coyote | ugly
+-1 | sounds | like | you | deserve | it | a | bit
+-1 | texas | bitch
+-1 | since | we | cant | lawfully | torture | him | slowly | this | will | do
+-1 | lol | pussy
+-1 | my | menstrual | cycle | so | i | dont | panic | if | i | miss | one | or | forget | the | next | 
+-1 | about | 3 | mcgangbangs | a | large | coke | hold | the | ice | 
+-1 | i | agree | and | im | an | atheist | 
+-1 | my | dad | told | me | he | loved | me | 
+-1 | well | nvidia | spends | all | its | time | fucking | gamers | over | so | its | only | fair
+-1 | then | youre | still | fat | man
+-1 | curtailing | police | brutality
+-1 | actually | it | was | the | pharaohs | before | the | nazis
+-1 | we | should | chop | off | his | limbs | and | set | him | free
+-1 | nice
+-1 | lol | yes | theres | truth | to | stereotypes | they | arent | magically | made | up | randomly
+-1 | because | thats | not | what | that | sub | is | about | and | you | were | clearly | trolling
+-1 | because | mornings | suck | and | i | like | to | sleep | d
+-1 | you | dont | respawn | 
+-1 | cut | their | vocal | chords
+-1 | my | exgirlfriends | heartactually | it | was | priceless
+-1 | i | got | mine | from | my | dentist
+-1 | dave | the | archbishop | of | banterbury | was | a | cheeky | nandos | 
+-1 | stand | your | ground | law
+-1 | all | of | them | i | cant | very | well | visit | any | sites | before | i | wake | up | can | i
+-1 | loras | and | jon | no | thank | you
+-1 | you
+-1 | give | him | some | action | while | you | are | down | there
+-1 | id | probably | be | a | bit | older | like | 4 | or | 5 | years | older
+-1 | hey | now | there | are | a | few | on | las | vegas | 
+-1 | i | believe | it | technically | is | but | what | do | i | know | my | understanding | of | racism | is | purely | academical | 
+-1 | 2 | live | crew |  | you | know | what | song |  | urlhere | 
+-1 | pcmrs | leaking | againxd
+-1 | tape | your | eyelids
+-1 | hey | its | mr | smoochiecoffee
+-1 | these | dudes | literally | tell | fat | people | to | kill | themselves
+-1 | no | what | im | saying | is | the | university | i | go | to | doesnt | have | dorms
+-1 | funnel | cake | recipes | 
+-1 | all | dad | jokes
+-1 | how | should | i | know |  | maybe | you | were | just | slow
+-1 | nightmare | in | my | ass
+-1 | ive | seen | footage | in | my | ass
+-1 | hows | your | zoophila | relevant
+-1 | hes | lucky | the | fuel | he | dumped | couldnt | melt | steel | beams
+-1 | goat | licking | the | air | oh
+-1 | how | do | we | even | know | its | a | she
+-1 | wait | what | war | is | britain | in | right | now
+-1 | rjews
+-1 | cause | white | people | were | fucking | evil
+-1 | how | many | people | while | high | on | weed | do | you | think | could | effectively | form | any | kind | of | resistance
+-1 | at | least | the | moneys | not | being | wasted
+-1 | since | when | do | kids | care | about | what | someones | name | is | before | making | friends
+-1 | butt | stuff
+-1 | shots | fired | 
+-1 |  |  |  | 
+-1 | what | yeah | okay
+-1 | some | links | on | my | web | page | at |  | urlhere | overpopulation
+-1 | for | me | it | was | when | i | learned | about | the | bilderberg | group
+-1 | ronaldo |  | we | took | the | oil | tanker | here | you | twit | you | will | never | get | a | cab | there | 
+-1 | freudian | slipnot | wellnot | well | at | all
+-1 | probably | everybody | who | died | on | 911 | and | the | resulting | wars
+-1 | oh | so | bing | 
+-1 | when | people | say | acrost | when | they | mean | across | how | does | this | even | happen
+-1 | those | are | not | new | at | all |  | god | forbid | little | kids | feel | like | theyve | accomplished | something
+-1 | so | what | is | your | solution | then
+-1 | believe | you | me | what | does | that | even | mean |  | 
+-1 | everything | happens | for | a | reasondoes | it | does | it | really |  | yeah | sure | it | does
+-1 | just | dont | time | travel | to | the | future
+-1 | you | need | to | have | kids | then | itll | just | flow | from | you
+-1 | sorrynotsorry | its | just | so | obnoxious | 
+-1 | i | know | what | you | meant | but | not | everyone | pronounces | the | long | e | in | fact | most | people | i | know | dont | 
+-1 | i | already | love | your | music | taste
+-1 | invite | them | to | candy | crush | 
+-1 | pengwings | dude | you | successfully | cracked | me | up | take | your | damn | upvote
+-1 | well | you | shouldnt | break | the | rules | of | the | english | language | either | but | you | did | 
+-1 | gt |  | who | installs | carpet | in | a | bathroom | ew
+-1 | my | names | jake
+-1 | who | the | hell | is | this | guy
+-1 | people | who | eat | with | their | mouth | open | oh | god | those | people | are | the | worst
+-1 | if | shes | the | one | paying | shes | doing | it | wrong
+-1 | he | tells | you | that | i | to | keep | your | mind | off | playing | with | your | dick | so | much | you | fool
+-1 | psychologcally | probably | not | physically | i | would | assume | so | 
+-1 | holds | up | spork
+-1 | i | see | your | point | but | educated | people | are | typically | better | critical | thinkers
+-1 | just | the | same | as |  | i | will | care | but | not | that | much
+-1 | femboy
+-1 | good | the | slogan | worked | on | you
+-1 | atavan
+-1 | nooo |  | have | an | internet | hug
+-1 | the | democrats | and | republicans | play | most | us | citizens | like | a | fiddle | 
+-1 | pictures | so | we | can | confirm | youre | telling | the | truth | 
+-1 | i | couldnt | agree | more
+-1 | from | the | same | type | of | person |  | needing | to | find | a | forever | home | for | a | pet |  | 
+-1 | me | too | bitch
+-1 | thread
+-1 | it | actually | started | as | i | could | care | less | but | id | have | to | try
+-1 | because | you | said | so
+-1 | rthathappened | 
+-1 | fuck | wisconsin | enjoy | some | gold
+-1 | so | you | like | dane | cook
+-1 | and | how | do | you | want | me | to | kill | you
+-1 | wanted | to | say | this | and | i | hate | the | downloads | downvotes | on | this | comment | 
+-1 | wait | what | annoys | the | shit | out | of | me
+-1 | so | meta
+-1 | its | also | nonsensical | what | does | it | mean | to | land | among | the | stars | in | the | metphorical | sense | 
+-1 | so | meta
+-1 | i | wold | tell | my | wife | does | this | mean | youre | no | going | to | suck | my | dick | anymore
+-1 | dammit | internet
+-1 | have | you | seen | the | message | board | posts | gold
+-1 | the | cops | are | who | you | call | to | stop | racism
+-1 | im | wearing | lots | of | belts | 
+-1 | you | dont | understand | people | born | with | both | genders | reproductive | parts | 
+-1 | if | by | time | you | mean | your | entire | weekend
+-1 | deeeeeeeeeeeeeeeeeeeeeeez | nuuuuts
+-1 | i | was | not | prepared | for | this | feel | trip
+-1 | jinx | op | plz | nerf
+-1 | outer | party | would | blow | 
+-1 | i | fucking | hate | this
+-1 | it | reeks | of | loneliness | and | lack | of | any | social | life
+-1 | fatass | whos | getting | fitter | everyday
+-1 | or | gone | with | the | wind
+-1 | its | more | often | doe
+-1 | its | so | much | more | beneficial | than | learning | a | foreign | language | imo
+-1 | its | rigged | by | both | parties | has | been | for | decades | and | will | be | long | after | were | gone
+-1 | why | though | im | genuinely | curious | because | its | over | used
+-1 | keep | calm | and | carry | a | gun
+-1 | this | is | sarcasm | no
+-1 | passed | away | why | cant | you | just | say | they | died | 
+-1 | does | poemforyoursprog | count | cause | i | hate | all | of | his | sayings
+-1 | pick | up | sooo | many | women | and | make | them | my | harems
+-1 | laughed | out | loud | at | work | thanks | xd
+-1 | met | n | naam | soos | koeks | ek | het | nie | verwag | dat | jy | smooth | sou | wees | 
+-1 | this | one | is | my | most | hated | phrase | every | time | i | hear | it | i | want | to | shout | fuck | off | as | loud | as | i | can | 
+-1 | usnowman92
+-1 | im | going | to | have | to | go | with | elders
+-1 | iphones | have | excellent | battery | life
+-1 | thats | awesomeerr | no | its | not
+-1 | head | them | off | at | the | pass |  | i | hate | that | cliche
+-1 | but | why | is | gender | malleable | and | who | does | it | hurt | by | changing | races
+-1 | hes | been | dead | since | 1940 | so | urlhere | 
+-1 | isnt | gender | in | your | dna | too | but | that | can | be | changed
+-1 | yeah | the | way | this | was | writtenif | it | was | true | was | shit | if | its | not | rwritingprompts
+-1 | was | gonna | say | it | and | said | lets | look | if | somebody | have | already | written | it | and | saw | you
+-1 | so | meta
+-1 | that | plot | twist | at | the | end | though | 
+-1 | white | neckbeards | think | it | is
+-1 | barney |  | 2 |  | 2 | is | 4 | 2 |  | 2 | is | 4homer | wow | i | can | see | why | this | is | so | popular
+-1 | people | dont | listen | to | lyrics | anymore
+-1 | cones | up | dont | lick
+-1 | its | ingrained | in | their | dna | man | but | good | luck | i | hope | you | find | what | youre | looking | for
+-1 | well | first | of | all | i | love | being | the | little | spoon | and | i | am | like | a | puppy | when | i | am | in | love
+-1 | i | always | make | sure | to | say | thoughts | instead | of | prayers | for | this | reason | exactly | 
+-1 |  | um | 
+-1 | yolo | and | the | word | bae
+-1 | no | you | were | still | a | cunt | somehow
+-1 | how | are | they | racist | theyre | just | sexist
+-1 | giants | giants | giantsbecome | unstoppable
+-1 | the | luba | missile | crisis |  |  |  | 
+-1 | making | a | profit | and | staying | in | business | should | be | every | forprofit | businesss | priority |  | 
+-1 | keep | calm | and | save | up | to | 15 | by | switching | to | geico
+-1 | it | wasnt | one | cataclysmic | event | that | did | it | just | a | lot | of | terrible | events | over | time | 
+-1 | paid | by | the | hour | wont | shit | in | a | public | bathroom | cause | i | prefer | shitting | at | home |  | o
+-1 | judge | not | lest | you | be | judged
+-1 | ke | too | 
+-1 | you | keep | saying | like | i | said |  | what | else | have | you | said | that | might | be | of | interest | to | others
+-1 | good | for | you |  | hope | youre | happy
+-1 | cool | story | bro
+-1 | bitch | you | monster | 
+-1 | no | im | a | miserable | bastard | 
+-1 | i | suppose | thats | a | warranted | stereotype | 
+-1 | stats | say | iceland |  | look | that | one | up
+-1 | that | man | albert | einstein
+-1 | potatoe
+-1 | thats | real | annoying
+-1 | i | too | have | never | personally | experienced | many | things | that | occur | in | comic | strips
+-1 | what | if | what | you | are | choosing | to | do | is | impacting | me | or | someone | i | care | about | in | a | negative | way
+-1 | is | that | a | pun
+-1 | i | mean | just | like | intrusive | thoughts | its | not | creepy | until | you | act | on | it
+-1 | every | where | i | worked | it | gets | you | kicked | out
+-1 | do | people | actually | say | that | in | real | life | 
+-1 | what | cant | you | hear
+-1 | well | if | you | arent | going | to | get | a | response | you | might | as | well | get | a | couple | jokes | 
+-1 | id | be | a | sad | horny | virgin | because | google | 
+-1 | or | any | of | the | other | countries | that | wereare | communist | you | know | like | the | rest | of | the | warsaw | pact
+-1 | its | not | for | me | but | a | lot | of | people | enjoy | rclopclop
+-1 | deez | nutz | in | yo | mouth | bitch
+-1 | tumblr | 
+-1 | herr | wurst | i | love | your | name | also | because | i | am | a | huge | fan | of | a | certain | singerdrag | queen | 
+-1 | i | take | off | every | monday | soo
+-1 | youre | an | ass | stop | being | an | ass
+-1 | kings | baby | wooo
+-1 | thanks | i | like | to | spend | my | karma | more | than | i | like | earning | it
+-1 | call | me | baby
+-1 | i | suppose | cockroach | penises | are | measured | in | mm
+-1 | where | is | your | tangible | proof
+-1 | you | sound | like | an | overweight | middle | aged | woman |  | see |  | now | were | both | wrong
+-1 | ryiff | 
+-1 | cause | men | who | are | tired | of | women | who | keep | bitching | around | act | like | a | dick
+-1 | revenwithcontext
+-1 | it | probably | did | i | am | asian | and | we | always | get | fucked | when | it | comes | to | college | admissions | 
+-1 | deez | nuts
+-1 | wowjust | wow
+-1 | as | much | as | i | want | because | im | hot | as | fuck
+-1 | seriously | did | you | not | study | history
+-1 |  | oops
+-1 | learned | behavior
+-1 | 99 |  | hotnesscrazy
+-1 | i | thought | that | was | replaced | with | said | no | one | ever
+-1 | i | could | care | less | its | couldnt | care | less
+-1 | doesnt | matter | if | its | creepy | if | its | not | illegal | 
+-1 | no | because | im | still | white
+-1 | kingdom | hearts | disney | get | on | it | 
+-1 | star | wars | fanboys | are | the | worst
+-1 | there | is | really | only | one | way | to | find | out
+-1 | i | dont | think | thats | how | it | works | 
+-1 | somewhere | in | texas | would | be | interesting | 
+-1 | i | hate | that | the | links | they | give | are | so | big | 3 | gigs | wtf | my | phone | cant | handle | that | 
+-1 | onomatopoeia | immagonnapeeonya
+-1 | i | dont | hate | anyonei | dislike | lots | of | mofos
+-1 | this | one | guy | hes | such | a | fucking | cunt
+-1 | project | much
+-1 | well | story | time | what | you | know | of | it | anyway
+-1 | um | so | like | what | happened | to | the | guy
+-1 | more | like | bad | parenting | results | in | assholes
+-1 | time | travel | has | already | been | invented
+-1 | yeah | sort | of | like | you | going | through | live
+-1 | in | the | shower | because | im | apparently | great | at | masturbation | 
+-1 | porketarian |  | it | requires | a | lot | of | ritualistic | bacon | eating
+-1 | your | healthcare | is | not | free
+-1 | deez | nuts | ha | gottem | so | annoying
+-1 | aww | thanks | grandma | btw | do | you | have | any | of | those | butterscotch | candies
+-1 | so | if | you | did | know | then | they | would | tell | you
+-1 | because | their | nice
+-1 | my | fav
+-1 | hey | you | are | a | frequent | on | rleagueoflegends | wasssaaaa
+-1 | disappointed | the | top | comment | isnt | taylor | swiftobviously | beyonc | deserved | it | ask | kanye
+-1 | yeah | like | my | waist | size | is | a | 56 | inches | thin
+-1 | my | masturbatorium
+-1 | you | must | be | fun | if | what | i | said | offended | you
+-1 | yolo | because | i | believe | in | reincarnation | not | because | i | hate | everything | new
+-1 | lol | i | would | never | honor | that | piece | of | shit | by | using | the | title | dr
+-1 | you | just | contradicted | yourself | now | admit | you | were | wrong
+-1 | gt | theyre | the | only | thing | keeping | me | goingill | give | you | a | hug | here
+-1 | i | know | how | she | could | get | rid | of | around | 130 | lbs | of | asshole
+-1 | lel | i | get | it | bro | i | just | dont | want | prosociopathlooking | statements | in | my | posting | history
+-1 | aaaand | thread
+-1 | macklemore
+-1 | to | be | honestwhat |  | are | you | lying | to | me | without | that | disclaimer
+-1 | friends | ive | tried | to | watch | it | multiple | times | but | the | humor | just | isnt | there | 
+-1 | this | went | over | my | head | care | to | explain | it
+-1 | looking | at | your | post | history | youre | an | idiot | and | an | asshole | 
+-1 | cheer | upit | annoys | me | because | it | aint | that | simple
+-1 | never | stop | posting | bikini | pics
+-1 | christopher | columbus | fuck | that | guy
+-1 | you | went | personal | really | fast | thats | what | is | terrifying
+-1 | anything | is | a | dildo | if | your | brave | enough
+-1 | just | buy | yourself | a | normal | one | to | start | with | and | work | up | to | more | advanced | models
+-1 | i | could | care | lessbecause | thats | not | fucking | right
+-1 | trigger | triggered | trigger | warning | any | of | that | shit
+-1 | this | type | of | question
+-1 | this | is | the | correct | answer
+-1 | a | dream | within | a | dream | its | a | joke | from | a | southpark | episode
+-1 | i | bet | they | didnt | meet | when | she | was | 18 | closer | to | 16 | and | 21 | yikes | 
+-1 | piracy | is | bad | dont | steal | porn | movies | or | music | people | worked | to | make | that | stuff
+-1 | democidelets | start | the | proper | terminology | circle | jerk | 
+-1 | really | how | many | countries | can | you | name | that | do | not | use | money | and | have | electricity
+-1 | yeah | me | and | my | boyfriend | tried | so | hard | to | like | it | and | we | hated | it | 
+-1 | avocados | bleh | i | hate | the | texture | the | tastejust | ugh | 
+-1 | shut | the | fuck | up
+-1 | all | apple | products | are | garbage
+-1 | pat | sajak
+-1 | how | do | they | know | it
+-1 | russian | accentif | you | give | me | any | more | shit | i | mail | a | barbed | wire | fence | up | your | zadnjica
+-1 | that | man | created | god | 
+-1 | typical | cishet | maleedit | s
+-1 | thats | not | me
+-1 | gt | new | jerseysooo | you | know | snooki | 
+-1 | fucking | nsfl | holy | shit
+-1 | if | there | are | any | good | counterarguments | to | the | points | i | mentioned | i | would | love | to | hear | them
+-1 | he | touched | me | places
+-1 | one | year
+-1 | actually | 70 | is | sixty | and | ten | four | twenties | is | 80 | and | four | twenties | and | ten | is | 90
+-1 | why | didnt | you | just | start | light | smoking | whenever | you | needed | a | break
+-1 | that | is | sooo | cool
+-1 | i | was | banned | because | im | not | actually | forever | alone | lol
+-1 | this |  | urlhere | it | teaches | you | some | amazing | lifr | hacks
+-1 | you | mean | like | a | day | off | work | sure
+-1 | discharge
+-1 | genius
+-1 | you | cant | sit | with | us
+-1 | fuck | her | right | in | the | pussy
+-1 | conspiracies | against | men | all | people | are | carried | out | by | rich | and | powerful | individuals
+-1 | hey | paul |  | patrick | bateman
+-1 | he | would | actually | get | banned | if | he | answered | that
+-1 | nuh | uh
+-1 | were | surrounded | they | have | no | escapeforget | where | i | read | it | tbh
+-1 | star | wars | is | good | but | definitely | a | little | boring | and | way | over | rated
+-1 | bitchfucker
+-1 | screw | those | sun | worshipers
+-1 | yep | even | more | of | a | reason | i | cant | stand | the | place | 
+-1 | oh | it | totally | is | dildusthe | boys | back | home | will | never | believe | this
+-1 | uramblesofftopicor | at | least | i | think | thats | the | account | name
+-1 | james | spader | im | watching | the | blacklist | pretty | much | just | for | him
+-1 | so | butts | run | on | shitty | compilers | and | are | least | efficient
+-1 | fireflydr | whostarbucks | coffeemy | sister | in | law
+-1 | define | come
+-1 | that | would | be | shawts
+-1 | people
+-1 | as | if | there | were | any | other | answer | urlhere | 
+-1 | there | are | different | ways | to | succeed | i | suppose | or | perceptions | of | success
+-1 | yeah | arent | nobel | prizes | for | like | discovering | new | shit
+-1 | yes | i | guess | but | your | paying
+-1 | what | makes | you | say | that
+-1 | tick | dickler | the | clit | licker
+-1 | spend | 2 | million | dollars
+-1 | fishermans | blues |  | the | waterboys
+-1 | well | there | are | two | holes | down | there | and | one | up | front
+-1 | suck | a | bag | of | dicks | with | all | the | good | ones | pulled | out | 
+-1 | be | yourselfbut | only | if | youre | a | cis | heterosexual | white | male | with | a | position | of | power | 
+-1 | hi | george | this | is | going | to | be | our | thing | fyi | whenever | i | see | you | in | a | thread
+-1 | maybe | that | is | why | he | cheated | your | wife | dying | is | pretty | huge | you | know | a | lot | of | stress
+-1 | almost | everything
+-1 | uhh | why | would | you | make | a | calculation | on | paper | when | it | is | usually | just | about | some | cents
+-1 | hmmmmmmmm | i | cant | think | of | anything
+-1 | i | make | around | 500day | being | paid | to | not | remove | my | clothes
+-1 | give | away | a | million | dollars
+-1 | haha | very | nice | meme | haha | 
+-1 | shut | the | fuck | up | isnt | an | insult | we | just | want | peace | and | quiet | sometimes
+-1 | white | dudes | with | rich | parents | especially | ones | on | their | 20s | 
+-1 | cant | link | right | now | but | its | on | youtube
+-1 | im | just | wondering | but | how | would | one | karamawhore
+-1 | forget | everything | mentioned | here |  | urlhere | a8hozegt8w
+-1 | im | pooping | right | now
+-1 | you | dont | have | to | die | to | realize | that
+-1 | this | one | urlhere | 
+-1 | i | dont | want | to | conceptualize | it | i | want | the | subjective | experience | of | it
+-1 | mother | fucking | cock | sucking | son | of | a | bitch | bastard | mostly | used | while | driving | in | jersey
+-1 | also | change | in | momentum | dpdt | as | in | the | displacement | of | x | 
+-1 | mona | lisa
+-1 | he | has | a | wife | though
+-1 | and | can | i | have | some | money
+-1 | the | fact | that | we | still | have | religion
+-1 | alloomehmum
+-1 | boston | marathon | 
+-1 | taxation | is | theft
+-1 | seriously | does | it | actually | bother | you | that | some | people | choose | to | eat | different | things | than | you
+-1 | rationality
+-1 | definitely | a | dude | 
+-1 | what | if | thats | how | she | likes | it
+-1 | worcestershire | 
+-1 | i | mean | a | coffee | sure | does | sound | good | right | now
+-1 | how | do | i | give | someone | directions | to | the | place | that | they | always | are | 
+-1 | tries | to | make | her | remember | she | does | they | dance | she | forgets | again | she | freaks | out
+-1 | obesity | 
+-1 | friends | sopranos | breaking | bad | sex | and | the | city | and | game | of | thrones | 
+-1 | dogs | are | very | intelligent | animals
+-1 | nuclear | power | is | unsafe | and | expensive
+-1 | everyone | who | ever | loved | you | was | wrong | 
+-1 | not | anymore
+-1 | funny | and | terrifying | urlhere | 
+-1 | what | will | cats | evolve | into | like | do | they | get | to | sentience
+-1 | maybe | they | had | an | open | marriage | and | your | mother | was | turned | on | by | the | stories | 
+-1 | the | plural | of | anecdote | is | not | statistic
+-1 | easy | 
+-1 | got | the | reddit | hug | of | death | and | is | ruined | now
+-1 | are | you | samantha | from | sex | and | the | city
+-1 | mostly | to | point | out | to | those | guys | that | they | dont | pass | the | test
+-1 | drugs | 
+-1 | thats | exactly | the | answer | i | wasnt | expecting
+-1 | at | 3 | years | old | that | is | abuse | 
+-1 | your | favorite | football | team | is | overrated | 
+-1 | you | mean | i | read | this | on | reddit | yesterday | cus | this | analogy | is | quoted | every | thread
+-1 | special | move | is | the | white | lotus | 
+-1 | inception | 
+-1 | taxation | is | the | initiation | of | force
+-1 | no | tobacco | sucks | but | i | would | try | some | cuban | cannabis
+-1 | north | dakota
+-1 | right | here | 
+-1 | dude | serious | tag
+-1 | again | i | direct | your | attention | to | my | previous | comment
+-1 | human | lives | are | the | kind | of | thing | you | really | shouldnt | put | a | price | on
+-1 | a | comment | not | about | acid | is | this | opposite | day
+-1 | end | human | trafficking | 
+-1 | its | not | awful | if | you | are | 80 | years | old | and | belong | in | a | retirement | home
+-1 | bush | did | 911 | the | illuminati | is | watching | you
+-1 | get | lost
+-1 | what | did | brad | ever | do | to | you
+-1 | fish | in | northern | minnesota
+-1 | is | your | mother | jealous
+-1 | youre | seriously | that | butthurt | over | something | so | petty
+-1 | i | over | analyze | everything | my | boobs | get | warmswollen | and | i | start | cleaning | random | shit
+-1 | why | is | that
+-1 | can | confirm | have | beard | and | no | fucks | to | give
+-1 |  | this | proves | you | have | no | idea | how | things | actually | work
+-1 | socialism | is | the | only | true | way | to | perfect | and | harmonious | society
+-1 | fuck | you | man | they | did | their | best | to | raise | you | and | keep | you | safe | you | selfish | whiney | bastard | 
+-1 | its | broad | because | this | topic | can | be | widely | discussed | and | dissected | 
+-1 | can | confirm | sitting | on | toilet | right | now | and | my | toilet | paper | is | over | not | under
+-1 | plus | one | of | them | could | be | transgender | its | not | like | youd | necessarily | know | 
+-1 | yes | people | bumping | into | people | at | walking | speed | is | a | huge | danger | and | safety | hazard
+-1 | nosy | types | yeah | i | dont | fuck | with | them | either | 
+-1 | rgonewild | rrule34 | 
+-1 | bill | murray | he | doesnt | know | it | but | were | friends |  | 
+-1 | i | dont | understand | why | youre | being | kinda | a | dick | to | this | guy | it | seems | rather | unnecessary
+-1 | whatever | you | need | to | believe | 
+-1 | the | exorcist
+-1 | hahah | thats | not | fun
+-1 | live | in | california | can | confirm | pee | goes | in | lid | goes | down | flush | when | theres | brown
+-1 | yeah | too | many | ppl | overload | gotta | be | alone
+-1 | die | hard
+-1 |  |  |  |  | 
+-1 | data |  | hyperbole
+-1 | video | games | and | masturbation
+-1 | your | response | was | close | to | that | of | the | one | above | you | please | check | that | out
+-1 | whooooosh
+-1 | no | argument | there | its | just | tainted | by | the | zealots | from | the | local | prominent | religion
+-1 | i | think | mine | is | rather | obvious
+-1 | thats | total | bullshit | addicts | do | recover | and | lead | perfectly | normal | lives |  | 
+-1 | im | pretty | sure | uwhydoges | is | a | man | as | he | has | a | beard
+-1 | kyle | is | that | you | you | beautiful | poetic | bastard
+-1 | as | is | mine | fellow | fellow | lover | of | gennies
+-1 | step | one | to | finding | out | if | the | ocd | is | true | they | will | call | it | cdo
+-1 | your | name | looks | like | the | name | of | some | rpg | character
+-1 | not | use | a | condom
+-1 | have | you | never | heard | of | solitary | confinement
+-1 | intelligent | design | 
+-1 | there | should | be | one | more | 
+-1 | we | all | know | mike
+-1 | gtwat | if | seinfeld | were | modarn | fighting | veidio | game | todaycouldnt | have | sed | et | better | 
+-1 | rpolandball
+-1 | i | dont | think | two | commas | after | wood | are | going | to | improve | the | situation | any | 
+-1 | care | about | opinions
+-1 |  | urlhere | 
+-1 | youre | literally | proving | me | right | actively | i | feel | bad | for | how | pathetic | you | are
+-1 | lmao | how | is | that | a | narcissist
+-1 | i | guess | condoms | can | be | slightly | harder | to | pull | off | sometimes | they | get | stuck | 
+-1 | i | am | sure | you | feel | very | happy | with | yourself
+-1 |  | urlhere | repost | from | rpokemon | i | guess | ash | got | tired | of | pikachus | shit
+-1 | literally | falls | for | like | 9 | seconds | gotta | be | a | record | 
+-1 | eh | ships | are | fun | in | any | fandom | and | destiel | is | a | cute | ship
+-1 | hell | im | fucking | her | and | even | i | hate | her
+-1 | oh | fuck | off
+-1 | i | just | suggested | 90s | nickelodeon | vs | 90s | disney
+-1 | excuse | me | but | its | employees | not | emplyees | 
+-1 | space | exploration
+-1 | alcohol | is | terrible | for | you | especially | compared | to | shrooms
+-1 | that | dog | died
+-1 | this | is | not | the | subreddit | to | post | about | your | personal | problems | 
+-1 | i | understood | some | of | those | words | 
+-1 | brain | surgery | is | done | on | waking | patients | correct
+-1 | dont | mengele | my | words
+-1 | id | like | to | know | what | type | of | proof | youd | be | able | to | furnish | from | a | thought | experiment
+-1 | you | left | your | porch | light | on | bud
+-1 | words | that | should | never | have | been | said
+-1 | prometheus | comes | to | mind | god | awful | film
+-1 | please | teach | me | your | way | of | the | jap | senpai
+-1 | yer | mum | m8
+-1 | note | the | word | attempt | for | example | i | can | attempt |  | to | fly | or | attempt | to | travel | back | in | time
+-1 | white | privilege | 
+-1 | ravioli | ravioli | give | me | the | formuoli
+-1 | you | can | spend | your | money | on | whatever | you | want | to | spend | it | on
+-1 | the | history | of | the | world
+-1 | that | depends | do | i | get | any | advantages | like | some | weight | loss
+-1 | rob | a | bank | 
+-1 | have | a | lot | of | money | invest | it | smart
+-1 | i | guess | anything
+-1 | because | they | no | backbone | i | witnessed | some | pretty | cringeworthy | peer | pressuring | last | night
+-1 | and | it | goes | poppoppop | when | you | shove | em | up | my | asshole | 
+-1 | so | thats | what | acid | is | like
+-1 | finding | something | to | not | be | funny | due | to | extreme | fakeness | means | you | live | a | joyless | life
+-1 | spitting | 
+-1 | honestly | how | is | your | comment | any | better | than | what | you | are | implying | would | get | immediately | posted
+-1 | whata | computer | can | easily | be | 2000 |  | thats | not | enough | money | to | worry | about | destroying | 
+-1 | reported | for | botting
+-1 | that | they | gave | it | back | certainly | is
+-1 | x | rekt |  | not | rekt
+-1 | there | was | plenty | of | context | for | that
+-1 |  | that | wasnt | a | secret | its | a | famous | quote
+-1 | why | are | you | so | obsessed | with | fucking | a | white | girl
+-1 | i | think | youre | looking | too | much | into | my | gibe
+-1 | yeah | if | you | hit | him | like | you | would | a | 10 | year | old
+-1 | found | my | wifes | account
+-1 | actually | the | more | gun | owners | there | are | the | less | crime | 
+-1 | nicki | minaj
+-1 | if | you | cant | afford | to | tip | at | a | restaurant | you | cant | afford | to | go | to | a | restaurant
+-1 | wow | you | became | euphoric | at | 5 | i | tip | my | fedora | to | the | 
+-1 | i | swear | atheism | has | become | its | own | dogma | complete | with | zealots | 
+-1 | gtpreserve | its | cultural | heritagedo | people | seriously | care | about | this
+-1 | i | dont | think | you | deserved | that | gold | 
+-1 | funny | that | is | is | actually | the | leastfunny | gif | ive | ever | seen
+-1 | christmas | morning | being | ruined | urlhere | 
+-1 | if | thats | true | for | you | you | need | to | work | on | your | aim
+-1 | and | who | the | hell | upvotes | a | comment | like | that
+-1 | pretty | sure | we | would | all | be | in | hell | anyway | i | dont | think | it | takes | much | effort | to | end | up | there
+-1 | intelligence | on | my | reddit | is | more | likely | than | you | might | think
+-1 | lol | ur | rite | top | kek
+-1 | hybrid | cars
+-1 | drinking | and | smoking | edit | im | sorry | i | didnt | know | that | these | werent | trends | 
+-1 | have | an | upvote | 
+-1 | im | 23 | now | and | have | learned | they | were | right | about | everything | 
+-1 | well | the | ages | come | and | keep | coming | and | i | feed | the | rules | grounded | runners
+-1 | let | it | the | fuck | go | is | it | doing | you | any | favors | to | be | angry
+-1 | well | youd | lose | your | fucking | paycheck | then | cuz | im | older | than | that
+-1 | how | much | to | get | you | to | use | the | subjunctive
+-1 | your | mum
+-1 | murica
+-1 | amazons
+-1 | you | mean | getting | paid | for | karma
+-1 | you | sound | like | a | bit | of | a | whiny | brat
+-1 | i | think | she | should | metaphorically | be | in | jail
+-1 | its | called | hazard | for | a | reason |  | havent | been | young | in | quite | a | while
+-1 | oh | its | none | of | my | business | what | others | think
+-1 |  | urlhere | that | gif | never | fails | to | make | me | laugh
+-1 | if | you | need | something | find | a | way | to | make | it | yourself | the | day | i | built | my | first | pc | was | a | good | one
+-1 | do | you | also | have | 3m | and | two | girlfriends | that | share | you
+-1 | here | is | one | internet | for | you1 | internet
+-1 | i | only | put | it | on | when | i | have | my | first | few | bouts | with | the | sun
+-1 | thats | not | a | gif | you | dumb | dumb
+-1 | this | this | this | so | much | this
+-1 | oh | well | life | isnt | fair | you | know | this | 
+-1 | beautiful
+-1 | its | legit | but
+-1 | yes | just | now | 
+-1 | somethingisawfulbiz
+-1 | please | break | up | with | him | your | relationship | is | very | fucking | toxic | i | cant | even | 
+-1 | delete | your | account
+-1 | condoms
+-1 | no | one | likes | a | pedant | 
+-1 | the | one | im | in | now
+-1 | miley | cyrus | 
+-1 | wtf | xd
+-1 | i | should | be | leading | the | world | 
+-1 | who | wouldnt |  | 
+-1 | that | man | wouldnt | have | taken | 2 | steps | before | one | of | us | knocked | him | the | fuck | out
+-1 | such | doge | much | coin | wow | urlhere | 
+-1 | that | there | are | many | many | weird | people
+-1 | all | of | dbz | evolution
+-1 | answering | the | questions | in | order | swallow | it | and | suck | a | dick
+-1 | no | im | saving | myself
+-1 | hugs
+-1 | but | would | you | do | it | unprotected | knowing | they | have | all | kinds | of | stds
+-1 | no | only | indicate | when | exiting | a | roundabout | never | when | coming | into | one
+-1 | gtafter | that | i | could | just | pay | for | it | to | go | awaythe | straisand | effect | disagrees | with | your | plan
+-1 | you | dont
+-1 | how | did | you | learn | that | from | his | will
+-1 | oh | my | god | this | threads | are | always | so | depressing
+-1 | not | being | delusional | is | called | being | an | asshole | these | days | fuck | you
+-1 | nothing | was | actually | stolen | and | i | was | 15 | credit | cards | are | insured
+-1 | how | did | martin | luther | king | jr | die
+-1 | gum | whenever | i | get | nervous | i | clench | my | teeth | and | it | seems | that | by | chewing | gum | it | helps | my | nerves
+-1 | truly | gross
+-1 | i | care | about | you | 
+-1 | you | cant | hide | it | forever | though | 
+-1 | beer | sauce | 
+-1 | why | the | hell | does | stephen | hawking | get | one | of | those | voice | things | and | not | me
+-1 | havent | stopped | crying | about | it | then | 
+-1 | if | you | break | the | law | i | dont | give | a | shit | about | your | rights | anymore | 
+-1 | religion | is | absolute | cancer | and | is | one | of | the | most | evils | we | face | in | our | society | 
+-1 | i | love | you | jennay
+-1 | everything | you | buy | improve | you | life
+-1 | anyone | who | chooses | to | believe | in | magic | deserves | a | little | ridicule | 
+-1 | use | the | force | harry | makes | vulcan | hand | sign |  | dr | whoits | wrong | on | so | very | many | levels
+-1 | i | just | dont | tell | the | whole | truth | i | leave | info | out
+-1 | reptilians | open | your | eyes | sheeple | 
+-1 | on | a | phone | in | an | airport | while | still | getting | used | to | dvorak | keyboards
+-1 | the | question | is | whether | ones | stepfathers | roving | penis | is | nature | or | artifice
+-1 | agreededit | i | am | 6 | 5 | it | is | great
+-1 | that | bush | did | 911
+-1 | no | no | smoking | stampede | my | friend | 
+-1 | does | this | make | us | both | sociopaths | or | something
+-1 | thats | specific
+-1 | yeah | and | op | cared | enough | to | post | too
+-1 | oh | look | vivian | james
+-1 | free | as | an | adjective | 
+-1 | ace | of | spades
+-1 | i | was | like | this | in | my | teens | when | mum | would | get | angry | at | me
+-1 | fucking | sicko
+-1 | because | tumblr | has | projected | their | type | of | feminism | and | not | many | people | like | it
+-1 | thats | true | brainfart | forgot | about | free | speech | for | a | sec | 
+-1 | i | stopped | reading | after | you | said | religion
+-1 | ok | nancy
+-1 | sadly | i | can | only | downvote | this | once
+-1 | smart | you | cheater | 
+-1 | that | religion | is | absolute | rediculas | crap | 
+-1 | religion | is | evil
+-1 | get | a | better | browser
+-1 | what | has | one | ever | learned | by | talking | 
+-1 | people | should | not | have | the | right | to | wield | a | gun | outside | of | law | enforcement | and | military | 
+-1 | veganism | is | the | way | forward | for | our | planets | future
+-1 | like | gassing | jews | in | a | chamber
+-1 | pretty | boring | 
+-1 | i | never | said | i | didnt | like | them | or | anything | stop | making | shit | up
+-1 | i | disagree | dont | fuck | her | in | fact | dont | fucker | her | ever | for | the | rest | of | your | life
+-1 | the | most | current | top | secret | briefing | on | defense | postures | towards | a | growing | russianchinese | alliance
+-1 | i | will | never | respect | people | who | get | offended | at | things | that | were | not | donesaid | maliciously
+-1 | its | still | shit | 
+-1 | explain | please | with | sources | if | you | can
+-1 | not | punished | punched | real | hard | in | the | face | with | a | medical | chair
+-1 | which | is | stupid | because | in | dumb | terms | i | cant | remember | anything | before | i | was | like | 3 | years | old
+-1 | nothing | supernatural | 
+-1 | pic | or | it | didntnvm
+-1 | ia | ia | cthulhu | fhtagn
+-1 | no | true | scotsman | and | also | youre | wrong | gender | equality | falls | under | egalitarianism
+-1 | video | games | are | not | art | 
+-1 | nope |  | im | horrible | with | names | and | thus | i | understand
+-1 | using | and | abusing | are | different | thats | the | real | point | 
+-1 | fuck | green | beans
+-1 | no | excuse | for | cheating | here | 
+-1 | sure | but | by | that | point | its | another | living | organism
+-1 | what | about | ted | bundy
+-1 | your | strongest | opinion | is | wrong
+-1 | they | wouldnt | let | her | get | a | face | wash | i | feel | like | ive | said | this | too | many | times | but | just | why
+-1 | capital | punishment | is | unethical | barbaric | and | wrong | 
+-1 | god | does | not | exist
+-1 | dont | know | what | that | is
+-1 | pull | it | out | of | my | savings | or | cash | in | some | stock | 
+-1 | do | you | honestly | believe | a | word | of | that | story
+-1 | you | weeaboos | are | fucking | weird
+-1 | even | when | they | are | in | an | emotionally | abusive | relationship | just | break | up
+-1 | what | if | it | indirectly | harms | you
+-1 | right | on | i | dont | know | any | trans | people | either | and | i | completely | agree
+-1 | yeah |  | me | too | 62 | male
+-1 | idk | man | i | see | a | 18hr | security | guard | sitting | in | his | ass | for | 40 | hours | and | it | boils | my | brain
+-1 | pffftt | this | guy | has | obviously | never | had | stubbs | smh
+-1 | me | irl | 
+-1 | nice | of | you | to | join | me | in | down | vote | hell | hows | it | going | how | about | this | weather
+-1 | willful | ignorance
+-1 | dank | memes | initiative
+-1 | yeah | that | is | what | tjat | jerks | deserved
+-1 | oh | shit | illuminati | 
+-1 | mmmmmmmmmmm
+-1 | why | not
+-1 | ha | what | a | piece | of | crap | 
+-1 | i | read | the | book | about | it | by | the | way | it | takes | like | 2 | minutes | to | find | it | on | wiki
+-1 | whos | trying | to | invalidate | any | opinion
+-1 | its | a | raccoon | 
+-1 | they | feed | frogs | among | other | living | things | 
+-1 | thank | nothing
+-1 | like | it | or | not | intent | is | a | large | part | of | the | law | and | ethics | 
+-1 | my | mind | this | automatic | analysis | and | reduction | 
+-1 | maby | that | was | a | bad | example | how | about | tears | dont | fall | or | something | to | that | effect
+-1 | i | respect | and | can | understand | your | point | of | view | but | i | disagree | with | it
+-1 | this | guy |  | urlhere | 
+-1 | dont | waste | your | money | 
+-1 | you | are | right | its | a | flaw | of | the | united | states | that | they | dont | recognize | as | one
+-1 | trueyou | should | not | hire | more | employees | than | your | business | can | support | thats | basic | business
+-1 | i | look | human | but | i | identify | as | an | apache | attack | helicopter
+-1 | legalize | zoophilia
+-1 | you | can | have | an | opinion | that | is | a | fact
+-1 | believing | that | zoosexuality | should | be | legal | or | my | opposition | to | feminism
+-1 | well | then | i | have | the | right | to | hate | people | with | an | opinion | i | dont | like
+-1 | i | said | it | was | brave
+-1 | we | need | to | kill | off | a | few | humans | here | and | there
+-1 | spot | on | replace | the | word | skeptic | with | denier | and | youve | got | my | signature | under | that
+-1 | all | socialists | should | land | in | jail
+-1 | but | one | is | a | lot | more | common | then | the | other
+-1 | i | give | no | fucks | about | the | nsa | spying | on | me
+-1 | extremist | just | means | that | you | are | really | devout
+-1 | calm | down | there | jesus
+-1 | you | dont | have | to | be | religious | to | be | a | good | person
+-1 | ted | cruz | shouldnt | be | president | he | shouldnt | even | be | employed | 
+-1 | found | charlie | kelly
+-1 | no | uterus | no | opinion
+-1 | inflation
+-1 | i | wasnt | i | was | saying | what | he | did
+-1 | even | rapists | and | pedophiles
+-1 | just | dont | pay | attention | to | the | lyrics
+-1 | completely | irrelevant | as | were | talking | about | the | death | penalty |  | not | lifelong | inmates
+-1 | where | did | i | lie
+-1 | penis | dude |  | vagina | chickedit | downvoted | for | stating | obvious | facts
+-1 | rum | and | coke | please |  |  |  | is | pepsi | okay |  | make | it | a | whiskey | ginger
+-1 | butsquibs | 
+-1 | or | just | one | chick
+-1 | vvttt | vvttt
+-1 | how | old | were | you | when | she | told | you | that | do | you | wish | that | she | hadnt | told | you | 
+-1 | you | must | be | his | dad
+-1 | cheating | doesnt | always | destroy | the | other | partner | 
+-1 | respect | brother
+-1 | people | think | that | means | that | you | undermining | all | of | there | hardwork
+-1 | because | if | youre | capable | of | doing | something | like | that | once | you | might | do | it | again
+-1 | this | man | knows | what | hes | saying | 1
+-1 | theres | not | always | a | chance | that | theyre | innocent | some | cases | have | evidence | beyond | any | doubt | 
+-1 | what | you | think | you | have | a | right | to | impose | your | opinion | on | her | decision
+-1 | limiting | your | caloric | intake | is | not | a | healthy | way | to | manipulate | your | weight | 
+-1 | but | consoles | are | so | much | simpler | i | have | a | ps4 | i | know | that | every | ps4 | game | will | work | on | it | 
+-1 | just | because | there | is | something | wrong | else | where | in | society | doesnt | mean | you | can | do | what | you | want
+-1 | he | wasnt | being | rudeyoure | so | stupid
+-1 | id | do | what | craig | robinson | did | in | hot | tub | time | machine
+-1 | i | believe | circumcision | is | genital | mutilation
+-1 | go | out | and | meet | some | black | or | hispanics
+-1 | this | sounds | like | the | plot | to | one | of | those | cheesy | 90s | films
+-1 | what | groups | other | than | non | citizens | and | felons | arent | allowed | to | vote
+-1 | just | remember | b | we | cant | b | racist | towards | u | whiteys
+-1 | gtthe | consensual | nonconsent | kind | what | 
+-1 | gtprivate | property | of | the | means | of | productiona | car | isnt | a | means | of | producing | its | a | product
+-1 | mmmmm | highfructose | corn | syrup
+-1 | its | the | mens | children | too | idiot
+-1 | agreed | why | does | it | have | to | happen | so | much
+-1 | well | the | other | guy | is | buying | it | so
+-1 | whats | your | response | you | seemed | very | confident | about | what | you | said
+-1 | if | it | were | just | their | kids | i | wouldnt | feel | as | bad
+-1 | no | one | really | thinks | space | is | a | limiting | factor |  | 
+-1 | yeah | i | would | love | to | see | the | proofof | being | alone | in | the | universe
+-1 | it | isnt | tho
+-1 | thats | the | definition | of | socialism |  | no | one | cares | about | personal | belongings
+-1 | i | give | your | opinion | 010 | would | not | recommendthats | just | my | opinion | though | 
+-1 | where
+-1 | rshitvirginssay
+-1 | sure | you | do | 
+-1 | is | the | last | name | bassett | popular | in | wales
+-1 | anytime | i | do | that | i | am | rebuffed | by | some | vague | insistence | of | portuguese | exceptionalism
+-1 | i | hope | you | understand | that | im | not | trying | to | say | being | molested | isnt | horrible
+-1 | his | sack | split | open
+-1 | i | work | 70 | and | sometimes | 80 | hours | a | week | and | i | still | cant | afford | a | proper | life
+-1 | i | wouldnt | exactly | call | 50k | retirement | money
+-1 | but | it | is | a | consideration | socioeconomic | status | has | a | racial | base | 
+-1 | that | lol | is | a | shit | game | computer | master | race
+-1 | lol | nosignedkansas | city
+-1 | also | you | cant | brag | its | one | of | the | things | i | do | best | and | i | can | tell | no | one | 
+-1 | downvote | for | you
+-1 | hahah | soo | salty | i | never | understood | trolls | until | now
+-1 | so | basically | white | peoples | shut | up
+-1 | humanitys | problems | exist | because | of | overpopulationall | of | them
+-1 | it | is | quite | clear | that | you | dont | actually | understand | what | any | of | those | things | are | 
+-1 | strongly | conservative | when | it | comes | to | politics
+-1 | today | i | watched | someone | turn | their | signal | on | then | turn | it | off | then | change | lanes | 
+-1 | what | i | notice | mine | is | less | plump | when | i | take | stimulants | like | adderrall | or | espresso | 
+-1 | it | is | worth | something | just | maybe | not | as | much | as | you | want
+-1 | who | the | fuck | you | want | to | fix
+-1 | girl | whatsupme | if | i | tell | you | will | you | sit | on | it
+-1 | i | like | grandmas | with | big | asses
+-1 | hes | the | asshole | we | deserve | but | not | the | asshole | we | need | 
+-1 | is | there | anything | that | doesnt | have | a | subreddit
+-1 | the | internet | isnt | a | self | aware | shithole | its | just | a | shithole
+-1 | women | deserve | rights
+-1 | no | i | dont | wanna | hear | that | 
+-1 | my | work | ethic | 
+-1 | lichtenstein
+-1 | yeah | but | radiolab | is | mostly | bullshit
+-1 | so | youre | saying | you | are | attracted | to | pretty | women
+-1 | people | are | assholes | so | to | be | on | top | you | have | to | be | a | bigger | asshole
+-1 | wwwgooglecom
+-1 | im | sorry | okay
+-1 | life | um | finds | a | way
+-1 |  | what | are | you | eatingnachos | thats | nacho | cheese | its | mine
+-1 | theyre | not | worth | much
+-1 | guaranteedrepliesjpg
+-1 | not | with | that | attitude
+-1 | as | somebody | who | works | fulltime | from | home | i | dont | find | it | to | be | that | sketchy
+-1 | preach
+-1 | i | dont | want | my | children | to | see | gay | people | sharing | affection | let | me | have | them | downies
+-1 | jet | fuel | actually | can | melt | steel | beams
+-1 | cutting | grass | selling | dope | fixing | tech | 
+-1 | its | cheaper | to | keep | them | in | prison | 
+-1 | unoriginal | post
+-1 | i | dont | get | it | if | its | about | equality | why | is | it | feminism
+-1 | i | dont | live | in | a | country | with | free | healthcare
+-1 | get | er | done | fucking | rednecks | took | it | to | the | extreme | yes | he | is | a | good | comedian | 
+-1 | or | if | somebody | really | loves | you | and | you | dont | feel | the | same
+-1 | this | explains | why | ive | always | thought | that | stuff | tasted | like | shit | 
+-1 | better | to | ask | forgiveness | rather | than | permission
+-1 | computer | room | is | on | the | other | side | of | my | house | i | love | that | you | give | a | shit | what | i | play | lol | 
+-1 | whats | brown | and | stickya | stickspoiler
+-1 | i | cant | express | it |  | i | would | get | too | much | hate | 
+-1 | oh | shit | guardrail | screeeech
+-1 | if | i | had | friends | like | you | or | a | wife | like | your | grandma | that | would | be | the | case
+-1 | looks | better | applying | for | jobs | when | you | already | have | work
+-1 | yes |  | why | would | someone | pay | for | to | do | something | if | it | didnt | suck | at | least | a | little | bit
+-1 | do | you | really | think | thats | what | hes | talking | about | really | 
+-1 | the | downvote | button | is | not | a | disagree | button
+-1 | trial | and | error | aka | improvisation
+-1 | how | are | men | and | women | not | already | equal
+-1 | good | dont | make | me | worry | about | you |  | you | hear | me | 
+-1 | he | could | be | unicycle | bicycles | disabled | cousin | 
+-1 | fuck | israel | 
+-1 | i | have | no | idea | but | its | obvious
+-1 | that | kinda | makes | sense | monogamy | is | too | cruel | a | rule | 
+-1 | im | 63 | and | my | girlfriend | is | 52 | we | should | double | date | 
+-1 | so | you | dont | believe | there | could | be | other | forms | of | life
+-1 | self | defense | always | has | been | a | human | right
+-1 | that | life | is | pointless | and | we | should | all | kill | ourselves
+-1 | milk |  | i | used | to | call | it | yulk
+-1 | gtif | you | arent | 100 | ready | for | a | kid | you | shouldnthave | sex | yet
+-1 | i | thought | so | too | until | i | realized | its | loaded | with | high | fructose | corn | syrup | 
+-1 | moon | people
+-1 | gt | faith | has | nothing | to | do | with | choicethis | might | be | the | most | idiotic | thing | ive | read | all | day
+-1 | theres | nothing | wrong | with | torturing | enemy | combatants
+-1 | i | feel | like | crying | every | time | i | accidentally | get | into | a | default | sub | like | now
+-1 | i | could | still | get | it | done | where | theres | a | will
+-1 | mad | max | hell | yeah | id | be | post | apocalypticly | kicking | everyones | asses
+-1 | just | eat | her | ass | problem | solved
+-1 | death | is | bad
+-1 | gigabit | internet | for | all | 
+-1 | sell | property | space | on | it | to | corporations
+-1 | when | the | pee | splashes | on | the | hot | chick | youre | standing | next | to | chances | ruined
+-1 | ghost | poop
+-1 | the | finnish | easter | food | called | mmmi | urlhere | 
+-1 | virtue | and | happiness | are | of | utmost | and | greatest | importance
+-1 | gt | proper | medical | careyour | use | of | the | word | proper
+-1 | i | bet | fat | people | downvoted | us | they | dont | want | to | lose | their | free | monies
+-1 | methinks | the | lady | doth | protest | too | much
+-1 | you | did | not | even | actually | read | his | comment | did | you
+-1 | soft | foreheads | tend | to | get | in | the | way | of | attractiveness | 
+-1 | you | got | a | nice | ass | maam | im | a | guyfuck | yourself
+-1 | depends |  | do | you | value | furniture | more | than | people | 
+-1 | i | made | a | terrible | mistake
+-1 | burden | of | proof | lies | on | the | people | claiming | god | exists | mate | 
+-1 | blow | it | up
+-1 | take | the | oreo | put | it | in | my | mouth | chew | swallow
+-1 | i | know | what | yours | is | this | thread | 
+-1 | torture | and | child | murder | is | wrong
+-1 | im | secular | prolife | antichoice | oh | my | god | and | people | hate | the | fuck | out | of | me | for | it
+-1 | leave | now | before | its | too | late | 
+-1 | i | am | against | abortion | i | dont | consider | myself | a | feminist | but | i | believe | in | womens | rights
+-1 | i | know | you | cant | fucking | hold | a | bears | arm | unless | you | cut | it | off
+-1 | shameless | plug | for | rmurica
+-1 | they | really | love | their | guns | and | walmart
+-1 | aka | thus | us | propur | inglish | ash | wel
+-1 | imo | just | overweight | people
+-1 | foxtrot | unicorn | charlie | kilo | 
+-1 | the | episode | with | the | fly | in | breaking | bad | 
+-1 | we | can | comfortably | fit | everyone | in | the | state | of | california | what | the | fuck | are | you | talking |  | about | 
+-1 |  | so | just | take | the | compliment | then | its | annoying | otherwise | 
+-1 | id | bang | that | buff | girl | 
+-1 | how | is | grass | fed | meat | and | humanely | raised | meat | bs
+-1 | yes | equal | chance
+-1 | i | dont | know | anything | for | certain | everything | changes |  | it | always | has | and | it | always | will |  | 
+-1 | so | of | course | you | have | some | sort | of | source | for | that | giant | generalization | right
+-1 | so | in | somebodys | view | you | are | the | best | looking | person | in | the | world | 
+-1 | folds | 
+-1 | name | checks | out | all | good
+-1 | i | deny | the | government | the | right | to | use | capital | force | on | its | citizens
+-1 | youre | perspective | will | change |  | wait
+-1 | mk | ultra
+-1 | its | not | unhealthy | to | be | overweight | either | and | thats | something | a | lot | of | people | dont | understand | 
+-1 | fuck | you | 
+-1 | rape | island | 
+-1 | i | hate | the | belgians | not | individually | but | as | a | people
+-1 | when | people | blame | the | 1 | for | the | economy
+-1 | geez | you | really | are | retarded | did | you | show | up | wearing | a | blindfold | or | something
+-1 | picking | up | your | dogs | poop | while | people | are | looking
+-1 | ratting | on | people
+-1 | buddy | im | not | paying | you | for | this | troll | i | didnt | order | it
+-1 | let | companies | bid | to | use | the | surface | as | a | place | to | put | their | logo | 
+-1 | thats | not | a | thing | just | use | legal | drugs | if | thats | what | youre | worried | about | 
+-1 | but | but | but | like | 80 | of | them | are | bad | guys | so | its | okay |  | 
+-1 | because | it | can | be | dangerous | to | children | while | a | healthy | adult | can | deal | with | it | fine | 
+-1 | no | we | have | a | good | understanding | of | it | and | the | answer | is | it | is | not | of | a | health | concern | 
+-1 | yay | another | one
+-1 | didnt | ask | your | opinion
+-1 | and | she | gets | an | abortion
+-1 | gt | in | every | casethats | why | im | mostly | against | it |  | there | must | be | undeniable | proof
+-1 | game | of | thrones
+-1 | but | the | two | of | them | together | are | 1000 | times | worse | than | either | alone |  | a | deadly | cocktail
+-1 | my | job
+-1 | jet | fuel | cant | melt | steel | beams
+-1 | because | feminism | is | a | not | issue | in | my | life | and | the | women | around | me
+-1 |  |  |  |  | 
+-1 | michael | bay
+-1 | so | against | self | harm |  | 
+-1 | granddaughter | of | mr | ed | i | heard
+-1 | not | yet | i | have | to | catch | up | on | the | new | season | 
+-1 | that | took | a | surprisingly | long | time | for | reddit | to | figure | out |  | how | disappointing | we | are | sometimes
+-1 | commonfuckingsensefor | something | that | is | supposed | to | be | common | its | so | har | to | find
+-1 | i | do | live | there
+-1 | if | i | have | kids | im | probably | going | to | circumcise | my | baby | son | 
+-1 | u | r | kidng | rite
+-1 | more | like | grandfathers | lol
+-1 | mac | is | better | than | windows
+-1 | the | scariest | thing | you | can | hear | is | silence
+-1 | death | penalty | for | rapists | and | child | molesters | put | them | all | to | the | head | of | the | line
+-1 | lies
+-1 | try | telling | that | to | someone | who | watches | fox | news | 
+-1 | 2 | chicks | at | the | same | time
+-1 | change | the | company | to | banana | with | a | logo | of | a | banana | with | a | bite | out | of | it
+-1 | i | touch | cookies
+-1 | that | jet | fuel | cant | melt | steel | beams
+-1 | what | the | fuck | has | that | got | to | do | with | anything | 
+-1 | new | zealand | im | going | to | make | hobbitton | american | 
+-1 | saudi | arabia | gas | would | be | much | cheaper | in | the | states | 
+-1 | skdoosh
+-1 | oh | i | understand | fine | i | just | found | your | comment | lame
+-1 | there | is | no | meaning | no | one | will | meet | you | at | the | end | and | say | gah | didnt | you | get | it
+-1 | yeah | that | about | covers | it |  | i | was | thinking | of | caramel | more | as | the | taste | of | golden | sunsets
+-1 | might | as | well | take | the | other | half | of | it | 
+-1 | and | why | do | you | believe | this
+-1 | wow | you | bitch | 
+-1 | an | emerging | global | consciousness | the | potential | shortage | of | chewing | tobacco
+-1 | i | cant | taste | sunsets | sadly | but | i | can | try | to | imagine | the | taste
+-1 | pretty | sure | we | could | figure | out | a | way | to | let | you | keep | those | if | you | became | a | state |  | 
+-1 | germany
+-1 | walking | with | my | hands | in | my | pocket
+-1 | but | its | ok | because | atleast | its | not | a | gasp | white | guy | in | charge |  | that | would | be | horrible | then
+-1 | hate | speech | is | a | bullshit | concept
+-1 | you | could | pass | as | a | really | ugly | girl | if | you | wanted | tomale
+-1 | sounds | like | youre | pretty | stupid
+-1 | jif | is | fucking | peanut | butter
+-1 | it | wont | given | our | sad | and | desperate | lives | we | will | always | need | a | hero | 
+-1 | what | would | be | the | point
+-1 | doesnt | apply | to | today
+-1 | childhood | religious | indoctrination |  |  | is | legalised | child | abuse
+-1 | you | bored | me | i | will | not | respond | in | the | future | unless | your | posts | are | more | interesting | bye | 
+-1 | hes | well | travelled | and | i | dont | mean | he | travels | a | lot |  |  |  |  | 
+-1 | ah |  | right | you | can | only | see | it | with | night | vision | and | shakey | camera | work
+-1 | enable | adblock | 
+-1 | the | rich
+-1 | lord | of | war | i | can | do | that | ive | been | a | salesman | before
+-1 | no | no | no | thats | skys | rim | that | does | belong | to | the | nords
+-1 | oh | my | goodness | its | you | ive | missed | your | comments
+-1 | pcmasterrace
+-1 | found | one |  | urlhere | 0fnjmuurue
+-1 | such | is | life | in | latvia | 
+-1 | no | but | a | fucking | slave | labor | force | doesnt | need | a | weekly | check | up | 
+-1 | do | they | still | do | that
+-1 | your | sarcasm | is | misplaced | because | the | statement | is | true
+-1 | either | is | sexy | imo
+-1 | are | they | both | in | happy | marriages
+-1 | check | your | privilege
+-1 | a | lot | of | teachers | have | this | exact | problem
+-1 | im | 411 | and | my | husband | is | 64 | and | always | insists | on | being | the | little | spoon
+-1 | i | have | a | hard | time | believing | that | theres | a | god | because | of | all | the | evil | in | the | world
+-1 | how | about | immersive
+-1 | what | about | you | do | you | downvote | often | just | curious | 
+-1 | i | never | woulda | guessed | that
+-1 | go | on | give | us | a | sample
+-1 | tattling | even | if | its | the | right | thing | to | do
+-1 | haha | came | here | to | say | this | guy | 
+-1 | you | are | you | just | dont | know | it | yet
+-1 | no | im | really | not | and | even | if | i | was | so | what | society | doesnt | disenfranchise | straight | white | men
+-1 | throw | with | your | nondominant | arm | 
+-1 | legal | documents | have | loopholes | 
+-1 | general | mayhem
+-1 | best | not | see | you | in | boston | then
+-1 | obliviousinaterwoman
+-1 | hey | fuck | you | buddy
+-1 | is | give | it | a | 710 | 
+-1 | the | term | he | was | attempting | to | use | was | vicious | its | a | vicious | cycle | ignorant | prick
+-1 | had | a | pony | tail |  | thought | i | looked | smooth
+-1 | i | can | touch | my | nose | with | my | tongue | 
+-1 | how | the | fuck | is | this | racist | shit | getting | upvoted
+-1 | you | look | beautiful | today
+-1 | you | got | a | pretty | big | dick | for | a | white | boy |  | said | by | a | trashy | blonde | white | girl | 
+-1 | looks | like | somebody | didnt | listen | in | school
+-1 | youre | goddamn | right
+-1 | 397km
+-1 | probably | because | fat | people | are | unattractive
+-1 | my | girlfriend | informs | me | that | its | wearing | your | cell | phone | on | a | belt | clip
+-1 | eh | i | use | a | bedpan | it | allows | for | at | least | an | extra | half | hour | 
+-1 | the | new | mad | max | movie | was | the | absolute | worse | movie | i | have | ever | seen
+-1 | dafuq
+-1 | i | just | lold |  | out | loud | 
+-1 | ill | pay | for | the | first | abortion | dont | worry
+-1 | breaking | the | rules | of | the | geneva | convention
+-1 | dogs | 100 | exist
+-1 | as | a | matter | of | fact | i | go | on | b | at | least | once | a | month | thank | you | very | much | 
+-1 | anything | by | m | night | shyamalamadingdong
+-1 | can | you | melt | steel | beams | wit | dem | dank | memes
+-1 | i | would | care | about | that | if | i | thought | my | reader | would | care | about | it | at | all | either | way
+-1 | best | listened | to | on | one | of | these | urlhere | 
+-1 | read | atlas | shrugged
+-1 | jiji | kikis | delivery | service
+-1 | online
+-1 | just | had | senior | prom | my | group | got | some | nice | pictures | with | one | so | id | say | debatable
+-1 | you | wouldnt | be | disappointed |  | are | you | saying | this | is | good | behavior
+-1 | yo | mr | white
+-1 | no | and | people | will | cry | transphobe | about | it | 
+-1 | fuck | you
+-1 | umm | no |  | the | airlines | should | stop | making | the | seats | 9 | 12 | inches | wide |  | hows | that | fuck | ass
+-1 | if | the | cover | is | better | than | the | original | i | dont | consider | it | a | cover | cash4lyfe
+-1 | i | have | heard | things | about | the | octopus | and | it | scares | the | shit | out | of | me
+-1 | i | do | have | eggplant | and | parmesan | at | home | guess | ill | be | having | that | in | 2 | weeks
+-1 | stuff | happens
+-1 | try | consuming | some | trichocereus | cactus
+-1 | hes | a | hard | ass | 
+-1 | ok | thanks | porsche | king
+-1 | patagoniathe | moonmars
+-1 | not | sure | if | compliment
+-1 | dont | be | a | sunt
+-1 | im | sorry | for | the | nationwide | comment | below | myme
+-1 | make | nerds | frustrated | and | angry | that | shits | funny | to | watch
+-1 | as | fourteen | year | old | being | rejected | by | my | crush | seems | terrible
+-1 | wrong
+-1 | win | really | like | in | a | poker | game | or | something | cause | youre | doing | it | wrong
+-1 | do | you | like | that | you | fucking | retard
+-1 | tightass | aka | strict |  | stuck | up
+-1 | transformers | are | here | theyre | just | stuck | in | car | form
+-1 | or | that | was | specifically | weird
+-1 | so | he | has | a | tight | ass | or | hes | a | tight | ass
+-1 | want | some | eyebleach | you | should | totally | look | up | blue | waffles | its | super | interesting | 
+-1 | did | you | get | some | doe
+-1 | see | username | 
+-1 | its | not | a | superstition | to | those | who | actually | believe | it
+-1 | age | of | adelinenot | a | bad | life | immortal | and | have | tons | of | money
+-1 | california | because | fuck | california | 
+-1 | ratheism | leaking
+-1 | hippos | kill | 3000 | motherfuckers | a | year | 
+-1 | i | am | antitranshumanism | 
+-1 | yes | i | can | and | i | did
+-1 | because | theres | a | little | piece | of | cake | next | to | your | name | when | it | is | your | reddit | cake | day
+-1 |  |  |  | look | forward |  |  | dread
+-1 | for | now
+-1 | i | find | expectations | tend | to | block | the | flow | of | life | 
+-1 | aaaaaaaaaaaaaand | weve | gone | meta
+-1 | thyrion
+-1 | this | has | been | said | already | but | they | also | brutally | murder | baby | seals | with | urchins | 
+-1 | being | skinned | alive | with | 80 | grit | sandpaper
+-1 | that | is | hilarious
+-1 | this | account | seems | so | forced | that | its | not | funny | 
+-1 | you | only | have | 1 | link | karma
+-1 | midnight
+-1 | google | is | hard
+-1 | how | many | people | have | you | killedwhere | did | you | bury | bodieswhy | did | you | do | that
+-1 | that | hes | a | hardass | 
+-1 | sastiel | ftw
+-1 | a | month | or | so
+-1 | i | think | he | was | trying | to | you | dont | have | to | try | to | look | good
+-1 | my | grandpas | aneurysm
+-1 | hurt | me | said | the | masochist | no | said | the | sadist
+-1 | truuuu
+-1 | chuck | norris
+-1 | selfhydrating | 
+-1 | harley | quinn | i | have | a | weird | fascination | with | psychopaths
+-1 | are | you | sure | you | wouldnt | just | say | it | was | some | kind | of | conspiracy | to | make | you | breathe | chemtrails
+-1 | club | promoter | 
+-1 | theyre | not |  | it | would | just | put | them | within | my | range
+-1 | it | would | be | all | motivating | in | the | morning | and | chill | after | dinner
+-1 | finals
+-1 | and | thats | why | youre | a | sad | walrus
+-1 | so | civilization | ghandi
+-1 | wow | look | at | the | size | of | that | thing
+-1 | congratulations
+-1 | pop | rocks
+-1 | my | terrible | job | and | not | yet | having | the | career | i | want | anything | that | deals | with | programming
+-1 | dolores | umbridge | just | kidding | mine | would | have | to | be | bilbo | baggins | 
+-1 | corellary | i | think | i | think | therefore | i | think | i | am
+-1 | if | i | lost | friends | they | didnt | have | my | back | to | begin | with
+-1 | im | glad | to | have | saved | so | many | souls
+-1 | vanilla | chai | latte | my | girlfriends | favorite | 
+-1 | the | duel | deck
+-1 | fedoras | unless | youre | a | cute | young | girl | or | an | old | black | man | singing | the | blues
+-1 | midori | i | fucking | love | the | taste | of | midori | not | that | id | be | tasting | my | own | semen | or | anything
+-1 | owning | an | ipad | 
+-1 | pourquoi | estce | que | six | a | peur | sept | parce | que | sept | huit | neuf | 
+-1 | i | didnt
+-1 | hello
+-1 | what | the | person | of | life
+-1 | 1010 | made | me | laugh | would | recommend | 
+-1 | but | everyone | would | be | equally | as | in | danger | if | nuclear | war | would | happen
+-1 | i | feel | higher | than | a | giraffe
+-1 | haha | u | guys | make | me | laugh
+-1 |  |  |  | 
+-1 | and | if | you | take | potassium | cyanide | all | of | those | cells | will | die
+-1 | what | matters | is | that | i | tried | 
+-1 | id | have | wrapped | my | finger | in | wads | of | cash
+-1 | cook | with | wine | or | something
+-1 | a | tight | ass | means | he | is | very | strict | and | serious | all | business | and | no | humor
+-1 | mredditor
+-1 | it | is |  | couldnt | make | it | to | the | end | though
+-1 | i | wish | i | had | words | to | help | you | have | you | looked | into | counciling
+-1 | the | value | of | patience
+-1 | mind | you | politically | incorrect | humor | might | land | you | in | the | hospital | if | badly | timed
+-1 | are | you | like | 14 | is | that | the | best | you | can | do | call | me | a | name
+-1 | hitler
+-1 | its | not | rape | because | nobody | exists | 
+-1 | youre | a | loser | lol
+-1 | i | heard | it | was | 89 | actually | heard | they | strangled | the | dad | because | he | was | wouldnt | agree | to | it
+-1 | i | would | have | gladly | obliged
+-1 | thats | disgusting | get | a | real | pet
+-1 | yeah | super | cool | to | raise | children | around | drugs | and | drunks | 
+-1 | unless | youre | a | girl
+-1 | his | mom | thought | the | same | thing
+-1 | at | whatever | said | school | deems | worthy | of | admittance |  | 
+-1 | just | wear | and | collect | them | i | do | adjust | them | if | its | running | too | fast | or | slow | but | thats | about | it | 
+-1 | shots | fired
+-1 | glenn | beck | and | rush | limbaugh | id | make | them | fuck | each | other | and | then | i | would | jizz | on | their | faces | 
+-1 | you | know | what | you | fucking | stay | there | ill | bring | over | some | cake
+-1 | i | feel | bad | for | even | knowing | who | bree | olson | is | haha
+-1 | bad | ass
+-1 | lena |  | because | dunham
+-1 | is | of | potato | and | malnourishbut | of | more | malnourish | 
+-1 | i | dig | it | 
+-1 | sperm | i | am | your | father
+-1 | hm | no | i | think | its | 6cosxsinx | you | can | have | a | celery | stick | if | you | want | though
+-1 | that | americans | are | very | manipulatable
+-1 | spinach | tastes | incredibly | metallic | to | me
+-1 | not | trying | to | pedophilic | but | mmmm | im | loving | leslie | burke | bridge | to | terabithia
+-1 | disabled |  | violent | psychopath
+-1 | they | all | fucking | suck
+-1 | well | i | hope | you | trim | your | bush | then |  | 
+-1 | ill | admit | it | its | me | now | give | me | my | money | bitch
+-1 | paul | blart | mall | cop
+-1 | they | are | a | hardworking | person | cant | deny | credit | where | credit | is | due | 
+-1 | actually | the | suicide | rate | is | highest | among | middle | aged | men | 
+-1 | youre | adopted
+-1 | thats | some | cutting | edge | humour | you | have | there | mr | thurmond
+-1 | america
+-1 | or | an | accident | 
+-1 | theyre | soooooooooo | comfy | though
+-1 | dickbutt | on | the | otherside
+-1 | an | anime | student | was | he | a | stenchy | nerd
+-1 | is | it | because | women | make | 77 | cents | for | every | dollar | s
+-1 | lol | yeah | dont | float | through | my | comment | history | im | not | very | normal | 
+-1 | ur | legs
+-1 | or | a | hard | ass | as | in | hes | a | hard | ass
+-1 | deez | urlhere |  |  | nuts
+-1 | tom | cruise
+-1 | with | care | and | as | little | as | possible
+-1 | in | the | butt
+-1 | lets | be | honest
+-1 | kiss | them | off | till | they | dont | come | around | anymore | i | have | time | or | patients | for | that | shit
+-1 | miss | a | free | throw | 
+-1 | beinga
+-1 | pants | hanging | low | enough | to | show | your | undiesshorts | small | enough | to | show | off | your | butt | cheeks | 
+-1 | college | lifeit | is | wilder | than | the | movies
+-1 | i | work | in | a | pussy | factory | so | yeah
+-1 | the | movie | napoleon | dynamite
+-1 | my | friend | is | a | thug | something | something
+-1 | thered | be | a | lot | more | black | people | 
+-1 | its | not | for | me
+-1 | pitch | black
+-1 | thats | still | less | of | a | pain | in | the | ass | than | having | kids
+-1 | this | one | has | made | me | the | most | happy | 
+-1 | i | just | downvoted | this | because | my | brother | does | this | dicks
+-1 | hmmnot | sure | if | this | is | offensive | to | people | in | alabama
+-1 | luke | i | am | your | father | 
+-1 | also | a | big | rape | culture | apparently
+-1 | talk | when | you | dont | need | to
+-1 | every | account | on | reddit | is | a | bot | except | you | 
+-1 | i | know | i | was | just | saying | that | it | still | would | exist | if | it | were | never | used | as | a | building | material | 
+-1 | id | sell | the | naming | rights |  | so | its | now | the | state | farm | moon | 
+-1 | the | dead | body | of | the | asshole | who | killed | me
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | threaten | to | destroy | it | until | i | was | paid | billions | then | build | a | moon | city | for | my | mates
+-1 | how | do | you | know | its | 3
+-1 | you | are | worth | nobodys | time | like | a | poopie | head
+-1 | no | you | are | looking | for | a | responseanswer | which | is | not | really | what | raskreddit | is | for
+-1 | does | she | by | chance | teach | in | an | inner | city | school
+-1 | gt | a | man | executed | with | an | iq | of | 46oh | you | mean | a | retard
+-1 | wouldnt | you | like | to | know
+-1 | sounds | like | you | have | a | bright | future | ahead | of | you
+-1 | jet | fuel | cant | melt | steel | beams
+-1 | backdoor | sluts | 2
+-1 | overused | try | again | 
+-1 | someones | butthurt
+-1 | yes | im | a | big | fan | of | readit | i | especially | love | how | nobody | references | masturbation | on | readit
+-1 | negative | comment | 010 | try | again | 
+-1 | counter | strike | 
+-1 | lets | find | out | will | be | back | soon | with | answers
+-1 |  | urlhere | 
+-1 | oblivion
+-1 | can |  | does
+-1 | edit | thanks | for | the | gold
+-1 | what | a | thoughtprovoking | response | typical | 
+-1 | this | animated | short | urlhere | 
+-1 | using | the | upvote | downvote | system | incorrectly |  | 
+-1 | in | all | seriousness | just | play | with | them | a | little | during | sex
+-1 | 1010 | urlhere | 
+-1 | came | for | this
+-1 | cogito | ergo | sum
+-1 | dont | you | mean | overweight | homosexual
+-1 | 881010 | ha | got | emm
+-1 | i | know | a | girl | from | finland | conspiracy | debunked
+-1 | whoa | take | it | easy | on | yourself | dutch
+-1 | relevant | username | 
+-1 | so | sheldon
+-1 | rob | a | bank
+-1 | rephrased | reddit | how | many | of | you | are | stuckup | bitches
+-1 | youre | doing | gods | work
+-1 | well | if | it | is | it | will | be | way | more | expensive |  | that | much | at | least | i | can | guarantee
+-1 | sploosh
+-1 | nope | and | that | pencil | looked | pretty | damn | sharp
+-1 | mostly | from | american | mouths
+-1 | thin | wallets
+-1 | because | they | scared | boys
+-1 | as | far | as | i | can | remember | bionicles | movie | game | 
+-1 | same | thing
+-1 | i | cant | stand | her | if | pitch | perfect | 2 | never | comes | out | the | world | will | be | a | better | place
+-1 | nothing | 
+-1 | how | could | anyone | like | that | movie | its | like | a | masterclass | on | overselling | it
+-1 | this | is | your | commentsthis | is | your | comments | on | wives
+-1 | dammit | marie | theyre | minerals
+-1 | murica | cause | fuck | yeah
+-1 | teaching | somebody | something | and | then | seeing | them | use | it | in | a | practical | application
+-1 | uh | what
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | any | good | tips | on | how | to | get | into | something | like | that
+-1 |  |  |  | 
+-1 | ouww | liamaoo
+-1 | eh | youd | be | amazed | how | far | being | funny | goes
+-1 | terriosm | 
+-1 | youre | fuckin | gay
+-1 | thats | not | what | a | disappointment | is
+-1 | scunthorpe | problem | 
+-1 | that | 911 | wasnt | an | inside | job
+-1 | social | security | and | the | very | idea | of | retirement | are | luxuries | you | wont | have
+-1 | if | you | have | a | problem | with | it |  | leave | i | wont | give | a | shit | 
+-1 | the | internet | is | for | porn
+-1 | this | is | actually | the | first | time | i | can | recall | this | question | being | asked | though | 
+-1 | backdoor | sluts | 9
+-1 | oh | youre | from | atlanta | theres | a | lot | of | black | people | there | right
+-1 | gt | i | adopted | my | dog | from | a | laboratorythe | highly | prized | lab | lab
+-1 | only | insecure | people | want | privacy
+-1 | buy | a | ponymaybe | even | two | ponys
+-1 | how | did | you | know | that | oo
+-1 | broscience
+-1 | fuck | off | i | speak | american | not | that | pussy | british | crap
+-1 | edit | content | deleted | i | missed | an | important | clause | from | the | subject
+-1 | because | facts | urlhere | contentuploads201309factsgif
+-1 | dont | be | that | guy
+-1 | play | leek | of | legeds
+-1 | lol | i | dont | think | people | can | get | fleas | i | dont | think | fleas | can | bite | through | our | skin
+-1 | yes | its | pretty | obvious | that | they | arent | being | 100 | serious | 
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | he | deleted | it | before | i | could | spread | the | word | of | brodin | 
+-1 | relevant | username | bush | is | life
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | this | is | deep | man
+-1 | meh | 99 | of | species | that | have | ever | existed | on | this | earth | have | gone | extinct
+-1 | french | kisses
+-1 | gt | found | the | baby | boomercute | but | no
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | me | why | dont | you | like | josehim | well | hes | a | fucking | mexican
+-1 | gt | uselesswater | confirmed | unlimited | and | free | resource
+-1 | get | the | fuck | back | to | work | 
+-1 | do | you | mean | the | muscular | type | or | the | fat | type | or | both
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | condescending | attitude | unethical | 
+-1 | can | you | elaborate | on | that
+-1 | life | is | like | a | box | of | chocolates |  |  |  | 
+-1 | its | almost | like | all | those | different | people | have | similar | likes | and | interest | 
+-1 | every | account | on | reddit | is | a | bot | except | for | you
+-1 | bob | gets | diarrhea | and | then | gets | stuck | in | his | neighbors | bathroom | because | it | stinks | so | bad
+-1 | gtextremely | lowso | not | zero
+-1 | hot | air | balloons | dont | have | wind | resistance |  | my | high | school | physics | teacher
+-1 | youll | never | know | im | still | waiting | for | that | sammich | though | 
+-1 | just | the | fatties | actually
+-1 | not | if | religious | people | still | think | the | need | to | mindlessly | procreate | cause | god
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | play | stupid | games | win | stupid | prizes
+-1 | speak | for | yourself | im | a | byte
+-1 | im | not | a | racist | but
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | utrollabot | thesilveravenger
+-1 | read | other | books | and | see | how | they | write | dialogue
+-1 | bees
+-1 | im | just | here | to | not | get | fined | also | am | bot
+-1 | man | this | is | perfect | copywriting
+-1 | what | is | it
+-1 | you | mean | geek | squad
+-1 | rgonwild
+-1 | the | gang | solves | the | helium | crisis
+-1 | its | like | being | more | hygienic
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | gay | marriages | abortion | and | drugs
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | no | their | poor | are | comparable | to | the | average | ethiopian | city | life | is | a | bit | better | obviously
+-1 | pour | him | a | glass | of | bleach
+-1 | what | the | what
+-1 | itt | beggars | are | become | choosers
+-1 | yeahkappa
+-1 | this | comment | is | too | far | down | 
+-1 | was | titanic | a | successful | movie |  | my | mother
+-1 | i | also | love | cats | 
+-1 | you | landlubbers | are | tougher | than | i | thought
+-1 | no | im | not | some | kind | of | drugs | are | bad | dude | just | ecstasy | is | not | a | good | idea | 
+-1 | 98 | anyoneedit | im | sorry
+-1 | any | middle | schoolers | saying | the | nword
+-1 | but | if | the | entire | next | generation | lacks | social | skills | is | it | really | a | lack | of | social | skills
+-1 | the | woodland | spa | in | lancashire
+-1 | the | british | will | grow | dogcollars | and | leashes
+-1 | so | everyone | who | doesnt | do | what | you | do | is | selfabsorbed | great | attitude
+-1 | every | account | on | reddit | is | a | bot | except | you
+-1 | i | like | that | our | gun | culture | in | the | usa | seems | to | get | everyone | elses | panties | twisted | up | in | a | bunch | 
+-1 | is | holding | up | the | pinkey | finger | really | fuck | you | in | some | countries
+-1 | gtits | shite | for | people | on | low | income | not | wealthy
+-1 | the | only | nongluten | free | steak | would | be | chickenfried | steak
+-1 | mine | has | lately | been | do | you | want | the | real | or | scripted | answer | im | so | clever
+-1 | username | relevent
+-1 | so | the | pencil | is | the | vagina | in | this | situation | makes | sense | 
+-1 | which | one | is | which
+-1 | if | its | so | redundant | why | do | we | keep | asking | this | question
+-1 | what | is | your | job
+-1 | well | not | with | that | attitude
+-1 | a | deep | connection | and | understanding | of | the | universe
+-1 | baking | soda | and | vinegar
+-1 | almost | as | if | stereotypes | arent | a | real | thing | and | fall | apart | when | confronted | with | actual | people | 
+-1 | i | did | and | im | questioning | who | the | fuck | cares
+-1 | i | am | one | such | pauper | but | i | still | have | dreams | goddammit | 
+-1 | im | an | ignorant | slut | thanks
+-1 | fuck | club
+-1 | i | know | its | not | physical | but | its | hugely | important | to | me | dogs | are | love | dogs | are | life
+-1 | cumming | on | this | post
+-1 | think | of | it | as | a | stupid | tax | ricky | the | stupider | you | are | the | more | you | pay
+-1 | pretty | much | every | episode | on | the | hbo | show | vicefuck | it | is | depressing
+-1 | cmon | man | spoilers
+-1 | i | went | outside | 
+-1 | yeah | itll | be | president | cruz | no | matter | what | really | 
+-1 | more | snapchat | and | tumblr | than | twitter
+-1 | tumors | dont | have | souls | as | soon | as | theyre | conceived
+-1 | mcdonalds
+-1 | ill | meet | you | there | good | talk
+-1 | well | we | know | it | cant | be | finland
+-1 | they | really | are | lazy | 
+-1 | that | would | be | pretty | mental | can | imagine | it | now |  | 
+-1 | jesus | christ | was | is | a | living | person | ftfy
+-1 | right | thats | why | no | one | is | addicted | to | heroin
+-1 | that | their | previous | generations | destroyed | the | planet | for | profit | 
+-1 | when | i | caught | on | fire
+-1 | puss
+-1 | my | friend | genuinely | believes | we | are | alone | in | the | universe
+-1 | deez | nuts
+-1 | probably | should | have | used | context | at | which | point | thats | not | ignorant | 
+-1 | but | you | said | it | was | free |  | why | the | lies | edit | i | was | being | pedantic
+-1 | really
+-1 | how | is | that | rude
+-1 | theres | a | difference | between | a | medical | reason | and | hurr | durr | gluten | free | is | better | though
+-1 | to | be | fair | i | think | thats | just | plain | stupidity
+-1 | i | think | its | disgusting
+-1 | there | is | no | such | thing | as | bisexual | menwomen | just | people | still | somewhat | trapped | in | the | closet
+-1 | holy | shit | really | glutenfree | has | really | gone | above | ridiculous
+-1 | im | a | she | 
+-1 | tippingin | places | like | japan | it | can | be | seen | as | degrading
+-1 | but | youll | inherit | the | houses |  | no
+-1 | dont | bother | garbage | posts | below
+-1 | remember | we | strangers | have | the | best | candy
+-1 | any | bollywood | movie
+-1 | unexpected | cumclusion | cumpilation
+-1 | you | got | kids | or | planning | to | have | kids
+-1 | i | usually | say | ive | been | worse | its | usually | true | and | it | isnt | a | very | common | response
+-1 | thats | amazing
+-1 | the | money | store
+-1 | la | isnt | a | desert | its | a | mediterranean |  | 
+-1 | youve | done | it | at | least | 5 | times | dude
+-1 | a | fact | that | makes | you | happy
+-1 | i | respond | with | ive | been | told | that | i | am | fantastic | its | true | i | have | just | not | every | time
+-1 | search | your | question
+-1 | mad | max | fury | road | that | was | amazing |  | 
+-1 | its | not | obligatory | to | make | an | edit | ahhhh
+-1 | whats | nwa
+-1 |  | member | prolly | sahr | saw | as | in | i | saw | it | literly
+-1 | thanks | for | the | visual | image |  | no | serious | thanks
+-1 | cant | blame | him | for | his | response | tbh | she | started | it
+-1 | eventually | those | you | wish | dead | will | die
+-1 | gracias
+-1 | me | too | thanks
+-1 | lol | you | might | just | have | to | get | over | that | one
+-1 | a | very | unpopular | website | that | is | full | of | people | who | love | cats | and | dank | memesyou | guessed | it | 4chan
+-1 | read | the | prompt | buddy
+-1 | nothing | all | women | are | beautiful | and | perfect | just | the | way | they | are
+-1 | hes | saying | that | she | hasnt | had | sex | you | stupid | fuck | 
+-1 | nope | thanks | for | playing | try | again | 
+-1 | camaro | or | impala
+-1 | im | busy | tomorrow | how | about | never | is | never | good | for | you
+-1 | way | to | be | us | centric
+-1 | ah | fair | enough | looks | like | v | for | victory | but | it | isnt
+-1 | i | dont | know
+-1 | paul | blart | mall | cop
+-1 | you | mean | dwight
+-1 | rrazorfree
+-1 | words | cannot | bring | it | down
+-1 | we | spread | meth | on | all | the | food | try | leaving | now
+-1 | white | people | becoming | a | minority | and | the | fall | of | the | united | states | because | of | it
+-1 | i | dont | have | a | foot | phobia | men | just | have | ugly | feet
+-1 | i | dont | think | you | understand | how | the | internet | works
+-1 | new | orleans | when | people | say | orleens | ugh | no
+-1 | what | the | fuck | are | you | talking | about | you | moron
+-1 | it | doesnt | even | snow | in | canada | at | christmas | time | in | some | places | 
+-1 | she | doesnt | care | shes | a | vapid | whore
+-1 | potentially | however | the | world | doesnt | revolve | around | you | alone | 
+-1 | bill | collectors
+-1 | marijuana | pokemon | and | left | 4 | dead | on | 360
+-1 | commenting | in | the | hopes | of | being | gilded |  | shits | nervewracking
+-1 | want | to | come | sit | on | my | lap | and | bounce
+-1 | somewhere | in | or | near | my | timezone | two | weeks | is | too | fucking | short | for | jetlag
+-1 | was | she | hot | tho | 
+-1 | they | died | peacefully | in | their | sleep | holding | hands
+-1 | when | the | servers | start | working | again
+-1 | not | for | much | longer
+-1 | a | couple | pounds | you | are | like | 20 | pounds | overweight
+-1 | you | dont | deserve | the | downvotes | but | no | you | havent | made | it | son
+-1 | marryingpartnering | up | with | the | right | person
+-1 | meat | just | color | it | green | and | it | is | vegitarian
+-1 | this | is | the | type | of | garbage | that | pollutes | society | 
+-1 | probably | because | youre | fat | 
+-1 | apple | edit | confirms | reddit | cant | take | a | light | joke
+-1 | ass | and | titties | dude | 
+-1 | overdue | bills
+-1 | humans | are | just | a | virus | the | planet | will | win | in | the | end | you | can | count | on | it
+-1 | our | music | studio | is | in | the | spare | room
+-1 | fly | eagles | fly
+-1 | as | in | my | sincere | apologies | i | wish | this | event | would | have | progressed | in | another | direction
+-1 | gt | wearing | tshirts | into | your | thirties | makes | you | look | ridiculouswhat | a | superficial | cunt
+-1 | oh | i | sorry
+-1 | if | i | was | attracted | to | their | physical | characteristics | probably | 
+-1 | alternatively | just | know | that | west | virginia | is | the | most | northern | of | the | southern | states
+-1 | how | old | are | you
+-1 | ur | fat | mum
+-1 | cliquegtclick
+-1 | gt | they | got | knives | and | gunsweve | got | those | in | spades | too
+-1 | ones | with | a | decent | iq | do
+-1 | no | worries | man | nobody | cares | but | you
+-1 | they | probably | meant | institutionalized | racism |  | for | some | reason | they | really | like | broad | semantics
+-1 | teaching | salma | hayek | how | to | kiss | 
+-1 | worked | in | it | for | five | years | up | here | in | canada
+-1 | i | want | to | downvote | you | but | this | means | more | bacon | for | me | so | its | ok | i | guess | 
+-1 | iron | sound | it | out | all | you | want | its | not | pronounced | that | way
+-1 | a | cigarette | 
+-1 | fat | people | on | mobility | scooters | with | disability | benefits
+-1 | call | the | wambulance | 
+-1 | the | american | pronunciation | of | craig | theres | no | fucking | e | in | craig | guys | come | on | 
+-1 | clocks | with | out | clocks | there | will | be | no | time | 
+-1 | prius
+-1 | handguns
+-1 | that | isnt | being | racist | thats | just | stating | a | fact
+-1 | i | think | claire | danes | does | a | pretty | good | job | in | especially | the | first | season | of | homeland
+-1 | anything | beyond | 11 | youre | not | that | nationality
+-1 | you | do | realize | food | comes | from | agriculture | right
+-1 | its | wrong |  | wars | are | started | over | economics |  | every | time
+-1 | so | if | im | looking | for | a | good | time | in | jordan | look | for | a | slut | with | a | big | grin | on | her | face |  | got | it
+-1 | please | let | this | take | off | on | reddit | 
+-1 | listen | to | this |  | urlhere | importantbeekw
+-1 | if | british | wine | drinkers | are | the | worst | youve | seen | wait | until | you | see | us | on | a | stag | do
+-1 | we | dont | need | to | we | can | just | pay | the | chinese | to | do | their | job | 
+-1 | my | private | schools | were | fine
+-1 | would | you | like | to | compare | salaries
+-1 | pretty | good | fish | are | biting | more | than | usual | 
+-1 | what | how | does | being | short | make | someone | unnattractive
+-1 | so | you | drive | a | cab
+-1 | bad | memories
+-1 | amphetamines
+-1 | or | planned | accordingly | and | got | a | job | in | a | field | that | pays | well | 
+-1 | well | to | be | fair | you | can | eat | paper | money | it | just | wont | sustain | you | 
+-1 | yikes |  | enjoy | your | 6 |  | you | clearly | need | it | more | than | the | server | 
+-1 | hello | is | a | greeting | not | a | conversation
+-1 | my | liege
+-1 | that | santa | claus | and | the | easter | bunny | were | not | real |  | 
+-1 | you | just | said | what | i | was | trying | to | in | a | much | simpler | and | more | well | rounded | way | i | suck | at | words
+-1 | haha | it | was | bond | to | happin
+-1 | this | sounds | awful
+-1 | climbers | chalk | cant | have | enough | of | iteither | that | or | worbla
+-1 | reasons | to | live
+-1 | selfie | sticks | god | damn | stupid | things
+-1 | women | dont | know | what | they | want
+-1 | why | dont | you | do | the | same
+-1 | fake | eyelashes | flat | butt | pointy | nose | being | overweightto | me | at | least
+-1 | have | an | upvote
+-1 | very | new | but | goblin | by | tyler | the | creator
+-1 | what | if | they | say | in | holybook | it | says | i | should | be | nice | to | everyone | is | that | ignorant
+-1 | with | my | ears
+-1 | so | i | take | it | you | watch | fox | news
+-1 | fuck | wasps | burn | them | all
+-1 | passive | hate | or | aggressive | hate | is | still | hate |  | you | may | think | it | doesnt | affect | you | but | it | does |  | 
+-1 | kill | monsanto
+-1 | i | realized | that | socially | pot | does | more | harm | than | i | realized | 
+-1 | ops | mother
+-1 | but | hes | australian
+-1 | our | leaders | are | lizard | people | wake | up | sheeple
+-1 | relevant | user | name
+-1 | movie | director | and | a | pilot | 
+-1 | especially | the | rave | reviews | for | such | a | shitty | film
+-1 | how | to | be | president
+-1 | your | awesome
+-1 | cadillac | ranch | amarillo | tx | 
+-1 | unobtainium | 
+-1 | what | if | theyre | steel | beams
+-1 | real | men | dont | use | that | shit
+-1 | bullshit | where | was | this
+-1 | besides | you | feeling | the | obsessive | need | to | click | downvote | after | each | response
+-1 | a | song | that | wont | come | out | for | hundreds | hopefully | thousands | of | years
+-1 | fucker | said | he | had | two | huskies | and | a | ps3 | when | it | first | came | out | 
+-1 | how | to | keep | their | fucking | mouths | shut
+-1 | hahaha | i | like | you | little | pony | you | got | pony | spunk
+-1 | the | thought | of | moths | flooding | my | room | 
+-1 | have | a | shit | life | try | to | throw | yourself | off | a | building
+-1 | where | did | i | put | that | dynamite | again
+-1 | i | would | watch | that | over | the | original | movie
+-1 | because | im | a | loser
+-1 | kill | monsanto | 
+-1 | everyone | knows | you | cant | melt | the | fbi | with | jet | fuel
+-1 | oh | yea | the | bad | day | thing | but | you | really | pissed | off | daavalon | there | too
+-1 | boston | sucks | fuck | the | stadium | rock | fuck | the | classic | rock | fuck | corporate
+-1 | led | zepplin | by | led | zepplin
+-1 | cant | melt | steelbeams | 
+-1 | hallo | my | frriend | do | you | vant | to | enzhoy | some | jalapenos | togethahr
+-1 | who | the | hell | wants | that
+-1 | god | damn | you | guys | are | following | me | everywhere | and | its | crusty | 
+-1 | thats | dank | brah
+-1 | rick | roll | the | world
+-1 | bt | corn | is | basically | an | entire | crop | of | pesticides
+-1 | does | it | suck | out | your | chum | like | a | pushpop
+-1 | haha | i | just | learned | what | that | means | and | you | sir | are | using | it | correctly | s
+-1 | apple | products | 
+-1 | yes | go | blame | the | us | like | they | are | the | only | ones | not | doing | anything
+-1 | chum | loads
+-1 | itt |  | johnny | cashs | cover | of | hurt
+-1 | iirc | thats | from | an | old | christian | parable | camel | through | the | eye | of | a | needle | and | all | that | 
+-1 | gt | since | i | got | married | a | few | years | agocongrats
+-1 | i | see | you | are | well | versed | in | the | pesticide | industry | 
+-1 | youre | getting | so | big
+-1 | perkier | boobs | 
+-1 | didnt | pablo | picasso | go | to | calarts | he | was | class | of | 2009 | if | i | recall | correctly
+-1 | soo | youre | single
+-1 | every | single | one
+-1 | i | dont | know | i | dont | care
+-1 | what | dads | 
+-1 | no | hes | a | giants | fan | 
+-1 | i | said | some
+-1 | arent | you | cool
+-1 | or | dank | memes
+-1 | im | doing | research | since | mars | you | could | give | me | some
+-1 | my | kid | brother | used | to | get | all | my | handmedown | levis
+-1 | wait | i | thought | that | whole | sport | was | scripted | 
+-1 | citation | needed
+-1 | great | big | boobies | 
+-1 | ready | for | the | fist | 
+-1 | ha | type | for | the | win | thanks | kind | redditor | 
+-1 | nope | you | cant | its | one | of | the | reasons | the | uk | has | such | a | low | murder | rate | 
+-1 | the | helicopter | i | built | one | in | my | basement | but | i | couldnt | get | it | out | so | i | took | it | apart
+-1 | inheritance | caravan | through | europe | for | the | rest | of | my | life
+-1 | internet | service
+-1 | brush | bsixbd | jxbs | jdv | heyyyy
+-1 | my | reality |  | i | own | it | and | if | i | disappear | everything | else | disappears
+-1 | cuz | when | you | have | money | you | dont | need | to | be | tall | 
+-1 | youre
+-1 | raspberry | iced | tea | is | pretty | good | so | ill | be | fine
+-1 | i | wanted | to | kill | the | shit | out | of | ramsey | so | fucking | hard
+-1 | well | thats | just | straight | up | offensive | towards | overweight | people | why | you | gotta | be | like | that
+-1 | 90 | of | all | dirt | under | your | nails | is | feces
+-1 | rwomenliftingmen | nsfw
+-1 | i | dont | know | man | some | bridges | are | pretty | awesome |  | urlhere | 
+-1 | what | hidden | room | is | inside | the | vatican | a | jerking | off | into | a | pool | made | of | childrens | tears | 
+-1 | pupu | works | great | for | me
+-1 | bobby | pins | the | squiggly | wiggly | part | goes | on | the | bottom
+-1 | my | sexuality
+-1 | thanks | obama
+-1 | masturbate
+-1 | anonymous | gold |  |  |  | 
+-1 | i | must | get | to | philadelphia | as | quickly | as | possible
+-1 | you | need | a | hug
+-1 | you | must | be | fun | at | parties
+-1 | ye | bali | dvd | 099 | cents | 480p
+-1 | jet | fuel | cant | melt | steel | beams | 
+-1 | so | are | you | enjoying | all | that | karma | you | earned | by | stealing | from | a | comedy | video | and | lying | about | it | 
+-1 | oh | my | god
+-1 | i | call | them | a | creep | what | i | really | mean | is | try | harder
+-1 | none | they | all | fucking | suck
+-1 | boohoo
+-1 | its | friday | friday | gotta | get | down | on | friday | im | so | sorry | 
+-1 | zero | comments | fuck | i | love | you | reddit
+-1 | a | while | i | let | a | few | out | accidentally | in | front | of | her | she | just | laughed | 
+-1 | shitty | job |  | no | thats | why | im | going | to | get | valuable | skills | 
+-1 | well | what | the | fuck | 
+-1 | climate | change
+-1 | not | manny | there | are | literally | dozens | of | us
+-1 | oh | you | studio | audience | laughter
+-1 | i | thought | that | was | fact | actually
+-1 | cook | at | home | most | nights
+-1 | who | gives | a | shit | if | you | get | away | with | it | and | its | not | a | class | relevant | to | your | major
+-1 | ethiopians | sure | dont
+-1 | except | gmo | crops | have | led | to | a | 10 | times | increase | in | the | use | of | herbicides | and | pesticides | 
+-1 | its | patrick
+-1 | we | dont | all | ride | horses | everyday | in | texas | only | most | of | us
+-1 | anyone | who | judges | someone | based | on | minor | changes | in | table | manners | is | petty
+-1 | so | all | dutch | have | aspergersasd
+-1 | if | you | are | an | attractive | woman | that | is
+-1 | even | less | plausible | the | air | friction | alone | would | crush | it
+-1 | what | toys | for | bad | girls | or
+-1 | have | fun | getting | removed
+-1 | hahah
+-1 | good | quality | oatmeal
+-1 | dude | they | said | ignorant | not | ingenious | 
+-1 | not | even | clicking | on | the | link | do | you | live | in | the | south
+-1 | found | the | mormon
+-1 | like | english | puns | but | in | japanese
+-1 | zjays
+-1 | gerrards | last | game | at | anfield | 
+-1 | rrandomactsofblowjob
+-1 | found | the | hipster
+-1 | how | to | learn | open | resources | like | khan | academywhat | to | learn | computer | science
+-1 | five | stages | is | a | myth
+-1 | yeah | but | foolishness | is | not | heritable | its | memetic | not | genetic
+-1 | its | just | the | french |  | they | are | nuts | about | food | culture | 
+-1 | hard | to | say | those | phones | retail | for | at | least | 600
+-1 | if | they | did | not | have | the | capability | to | shoot | down | a | plane | why | even | bother | sending | them | up
+-1 | found | the | jew | 
+-1 | um
+-1 | concerts
+-1 | high | school
+-1 | currently | quitting | biting | nails | its | hard | as | fuck
+-1 | just | google | it | man | the | literal | definition | is | middle | class | 
+-1 | you | want | to | ask | what | canadians | think | of | india | 
+-1 | found | the | whale
+-1 | wrong | its | 831am
+-1 | im | a | mobster | and | my | dogs | named | imma | fuck | your | girl | while | you | watch | if | you | dont | get | my | money
+-1 | hi | guys | sorry | not | native | speaker
+-1 | that | theyre | stupid | and | in | the | wrong | house
+-1 | know | what | it | means | doesnt | make | it | any | more | of | a | real | thing
+-1 | human | rights | violations
+-1 | well | if | you | have | a | problem | with | it | pay | for | my | shit | yourself | 
+-1 | eh | religion | has | done | more | 
+-1 | being | appreciated | and | loved | despite | of | great | faults | 
+-1 | stop | using | cell | phones | and | destroy | signal | towers | 
+-1 | dre | everone | acting | like | the | forgot | about | dre
+-1 | you | can | 
+-1 | i | disagree | with | your | choice | but | help | you | by | saying | the | book | of | genesis
+-1 | fuck | off | kid
+-1 | reggeaton
+-1 | dont | jerk | off | on | the | bus | its | generally | frowned | upon | i | found | out | the | hard | way | 
+-1 | gt | not | all | women | are | into | dark | humorracist
+-1 | bowling | for | columbine | was | a | complete | load | of | shit
+-1 | isnt | there | some | rule | where | this | question | can | never | be | asked
+-1 | theyre | hardly | forgotten | if | we | have | a | post | asking | the | same | damn | question | every | month
+-1 | sit | back | and | smile | 
+-1 | dr | dre | because | they | forgot | about | dre
+-1 | id | hope | not | 
+-1 | ahhhh | i | am | gona | catch | hellblackie
+-1 | i | can | bayerly | hear | you | over | the | death | rattle | of | a | billion | bees
+-1 | the | plan | to | get | my | dog | to | swallow | semen | is | coming | on | a | treat
+-1 | dorsias
+-1 | moonman
+-1 | dorsias
+-1 | cant | see | downsides | they | have | no | claim | on | my | assets | and | wont | give | birth | to | a | money | pit
+-1 | dave | matthews | band
+-1 | invade | other | countries | in | the | name | of | democracy | not | so | nice | for | the | occupied | countries | 
+-1 | bitchso | much | sexist | undertone
+-1 | those | two | views | are | in | line | though | we | all | have | secrets | and | thats | why | the | nsa | spying | is | abhorrent
+-1 | boris | johnson | urlhere | 
+-1 | dont | drink
+-1 | oldbutgold
+-1 | ayy | lmao | urlhere | 
+-1 | it | was | stolen | once |  | bam | instant | publicity
+-1 | pee | in | bed
+-1 | what | latter | relationshipsdoes | that | answer | your | question
+-1 | the | walking | dead
+-1 | i | can | never | understand | the | irish
+-1 | i | had | a | llama | named | susan | she | was | sacrificed | last | week
+-1 | you | should | probably | check | the | link | i | posted | above | 
+-1 | sex | 
+-1 | the | ritual | mutilation | of | the | sexual | organs | of | infant | boys | oh | sorry | i | mean | circumcision
+-1 | yeah | you | can | give | me | gold | op | i | would | guess | who | gave | it | to | me | sangersongs
+-1 | still | too | many
+-1 | no | pesticides | are | herbicides | fungicides | insecticides | and | biocides | wtf | is | a | pest
+-1 | i | wear | work | boots | in | 49 | degree | heat | its | not | that | bad | cotton | socks | and | sensible | shoes | are | fine
+-1 | the | taste | of | beer
+-1 | ah | i | see | and | what | if | i | told | you | it | was | a | serious | question
+-1 | pretty | rude | to | talk | about | the | queen | like | that
+-1 | your | welcome | bro
+-1 | 1 | need | i | say | more
+-1 | chemtrails
+-1 | i | know | they | teach | us | that | other | countries | do | that
+-1 | yeah | i | knew | you | wouldnt | reply
+-1 | human | sized | trex | 
+-1 | is | this | something | like | im | 2 | chinese | and | that | part | being | an | illegal | immigrant
+-1 | the | hills | are | alive | with | the | sound | of | music
+-1 | kids | arent | things | 
+-1 | when | i | look | at | your | username | we | could | very | well | be | in | the | same | country
+-1 | or | a | scalpel | glad | you | arent | my | doctor
+-1 | jet | fuel | cant | melt | steel | beams
+-1 | i | fucking | hate | antivirus | programs | they | should | be | banned
+-1 | 1 | it | is
+-1 | police | officer | 
+-1 | original | pressings | like | first | issue | those | things | will | be | worth | a | fortune
+-1 | 2 | girls | 1 | cup
+-1 | macallan | 25 | year | thank | me | later
+-1 | mobbing | female | coworkers | that | are | chubby
+-1 | but | mostly | cats
+-1 | she | had | a | baby | recently | 
+-1 | fuck | that | they | suck | and | they | lost
+-1 | being | a | communistim | a | communist | should | have | the | same | reaction | as | im | a | nazi
+-1 | youre | carbon
+-1 | seems | a | bit | pointless | to | own | a | driving | range | just | to | have | people | play | with | your | balls | 
+-1 | why | all | the | downboats | 
+-1 | i | make | my | own | luck | 
+-1 | nice | try | big | business
+-1 | jet | fuel | can | melt | steel | beams | 
+-1 | i | would | find | it | more | offensive | if | buttocks | werent | inherently | funny
+-1 | gtarizona | and | new | mexico | are | conservative
+-1 | its | a | real | problem | 
+-1 | dont | turn | around | just | runedit | wrong | word
+-1 | favourite | pokemon
+-1 | moist | moist | moist | moist | moist
+-1 | 100 | dicks | for | 1 | million | dollarsits | an | old | askreddit | joke
+-1 | this | wins
+-1 | how | much | karma | ive | accumulated | in | three | months | 
+-1 | to | not | die
+-1 | no | fatty | it | is | notits | because | im | not | interested | in | what | you | have | to | say
+-1 | someone | found | the | puzzlebox
+-1 | billybob | eagleshots
+-1 | exploitinghurtingkilling | animals | for | food | entertainment | profit | etc
+-1 | im | so | real | when | i | lie | my | nose | grows
+-1 | im | not | i | need | more | people | in | my | life | like | i | need | to | be | shot | in | the | balls | 
+-1 | omg | yes | people | are | such | pigs
+-1 | its | really | not | that | great
+-1 | probably | not | under | a | conspicuous | rock | right | next | to | the | shoreline | of | a | boat | dockarya
+-1 | and | yogapants
+-1 | read | the | title | of | the | thread | and | have | a | guess
+-1 | replied | to | the | wrong | thing
+-1 | is | morality | involved | when | it | comes | to | shoplifting | there | are | many | parallels | 
+-1 | yep | no | problem
+-1 | jaysus | well | played
+-1 | to | see | past
+-1 | yeah | thats | the | joke | 
+-1 | no | idea | do | telledit | think | i | scared | the | little | child | off | 
+-1 | im | constantly | cracking | your | mom | jokes | with | my | son | hilarious | 
+-1 | such | is | life
+-1 | fucking | exactly
+-1 | invading | iraq | after | 911 | 
+-1 | your | destine | to | be | a | cat | manlady | 
+-1 | im | sorry | but | whats | save | worthy | of | this | i | obviously | cant | see | whats | funny
+-1 | your | mom
+-1 | it | will | force | any | jammed | up | programs | to | restart | 
+-1 | dont | forget | all | the | folks | still | alive | that | saw | hitler | and | have | attested | to | his | existence
+-1 | canned | slaughter
+-1 | i | think | you | need | to | study | physics | a | bit | more | this | isnt | that | difficult | 
+-1 | big | bang | theory
+-1 | youre | close | ive | found | nappies | before | also | toenails
+-1 | i | dont | think | this | actually | is | socially | acceptable
+-1 | all | of | them | i | think | im | the | only | non | gamer | on | reddit
+-1 | invincibility | 
+-1 | because | earth | is | not | a | box
+-1 | because | then | i | might | be | willing | to | suck | on | their | nipples | while | they | arent | looking
+-1 | its | for | kids | 
+-1 | i | watched | the | first | 15 | minutes | the | script | is | trying | to | be | edgy | and | turned | out | to | be | just | meh
+-1 | my | father | then | i | ask | if | i | can | watch | and | have | some | popcorn
+-1 | its | geek | blackface
+-1 | ukile8998 | im | told | your | starbucks | coffee | is | ready
+-1 | the | amount | of | laugh | tracks | used | in | it | 
+-1 | i | dunno | i | like | hugs | i | guess
+-1 | not | sure | what | you | meant | you | caught | me | at | a | rather | depressed | moment | at | my | end | sorry
+-1 | being | fat
+-1 |  |  | 
+-1 | the | most | important | thing | i | got | out | of | all | that | was | canesmmmmmsauce | 
+-1 | standard | london
+-1 | certain | companys | in | the | uk | have | banned | certain | porn | sites
+-1 | now | that | i | think | about | it | i | would | probably | be | fat | as | well | if | i | didnt | have | a | fast | metabolism | 
+-1 | right | makes | sense
+-1 | what | kind | of | shit | advice | is | this | have | fun | having | no | friends | you | sad | judgmental | person
+-1 | simple | drug | possession | 
+-1 | to | prevent | this | i | always | ask | my | lady | smoker | friends | to | hand | me | their | butts | he | he
+-1 | why | is | that | 9428367 | idiots | liked | gangnam | style | that | doesnt | make | it | a | good | song | 
+-1 | sex | i | dont | like | it | 
+-1 | ok |  | 
+-1 | what | shit | have | you | gotten | into | op
+-1 | do | you | want | to | help | or | enableeither | way | just | leave | me | alone
+-1 | ears | open | mouth | shut
+-1 | if | it | counts | as | recent | im | going | to | go | with | something | by | pink | floyd
+-1 | whats | a | miatayes | im | too | lazy | to | google | it
+-1 | sometimes | you | just | want | to | fuck | up | someones | day | you | know | share | the | love | misery
+-1 | die | satan
+-1 | keep | wearing | them | 
+-1 | who | the | fuck
+-1 | nohis | family | disowned | him
+-1 | thatsthejokecom
+-1 | just | think | it | can | only | be | worse | if | youre | a | manlet | 
+-1 | by | side | of | the | road |  | do | you | mean | in | somebodys | garage | its | okay | man |  | you | can | tell | me | 
+-1 | kill | a | lot | of | people | then | befriend | the | inmates | at | jail
+-1 | your | mom
+-1 | i | honestly | dont | understand | how | anyone | could | pick | ashley | over | kaiden | boobs | or | no | boobs
+-1 | you | know | the | stonehenge | you | can | visit | is | a | replica | the | original | is | in | ruins
+-1 | the | american | style | is | dumb | as | fuck | figures | sorry
+-1 | wealth | and | penis | size | in | the | good | way | not | the | small | way
+-1 | crazy | or | at | least | thats | what | i | have | heard | 
+-1 | any | assassins | creed | after | 3 | black | flag | and | unity | were | absolutely | terrible | 
+-1 | hi | thirsty | im | dad | 
+-1 | horocruxes | involve | more | than | just | killing | theres | usually | some | rape | and | torture | involved | 
+-1 | you | will | probably | get | gold | for | that | comment
+-1 | a | girl | sticking | her | fingers | in | her | pants | and | then | smelling | her | fingers
+-1 | i | dont | even | know | what | thats | supposed | to | mean
+-1 | not | really | funny | the | second | time | 
+-1 | piercings | and | tattoos | i | instantly | judge | them | to | have | made | poor | life | choices | 
+-1 | more | like | the | sharks | they | choke | early | in | the | playoffs
+-1 | boring
+-1 | good | for | you | 
+-1 | rpicturesofiansleeping | dont | you | judge | me
+-1 | suits | everyone | has | to | love | that | showif | you | havent | seen | it | be | prepared | to | be | litt | up
+-1 | im | 52 | i | like | tall | guys | but | ill | take | anyone | 5 | or | so | inches | taller | than | me
+-1 | gtexisted | for | 1000 | yearsthats | exactly | what | he | said
+-1 | sterilize | em
+-1 | its | anime
+-1 | i | would | insert | it | into | one | of | the | myspace | servers | 
+-1 | i | have | a | job
+-1 | brian | blessed
+-1 | gtits | a | mia | marioftfy
+-1 | can | i | get | an | opposite | one
+-1 | who | watches | burn | notice
+-1 | a | 1500 | year | old | pigs | head
+-1 | how | satisfying | was | it | when | we | the | audience | knew | that | hank | was | dead | before | she | did | though
+-1 | i | dont | get | it
+-1 | its | that | thing | that | you | talk | about | with | girls | to | get | them | into | bed
+-1 | can | i | tweak | their | sexuality
+-1 | abortion | its | 2015 | fyi
+-1 | really | cool | concept | that | ended | poorly | 
+-1 | what | is | this | facebook
+-1 | groping | your | so | while | you | wait | in | line | at | amusement | parks
+-1 | context | 
+-1 | yep | thats | what | reactionary | dimwits | do | 
+-1 | mixed | race | relationships | 
+-1 | maybe | hes | talking | about | dna | dudes | into | banging | his | sisters | you | need | to | be | a | match
+-1 | nobody | gives | a | shit | about | pokemon
+-1 | were | not | 2 | months | old | we | know | how | to | laugh
+-1 | less | demand | means | you | charge | more | why | are | antiques | so | expensive
+-1 | didnt | get | that | far | lost | it | at | the | fly | episode | so | stupid
+-1 | babies | came | out | of | the | butthole
+-1 | i | got | proper | sex | education | at | catholic | school | 
+-1 | yeah | who | wants | social | justice | anyway | yuch | screw | basic | human | rights | you | know
+-1 | i | had | sex | with | her
+-1 | no | id | like | a | definition | of | shaming | please | googlemoogle | it | while | i | sit | here | and | fucking | color
+-1 | maybe | league | of | legends
+-1 | rthebuttoni | told | him
+-1 | im | not | im | asking | you
+-1 | the | reboot | doesnt | count | as | the | same | show
+-1 | yeah | if | you | can | afford | to | go | out | you | can | afford | 5 | for | a | babysitter
+-1 | beware | of | old | ladies | once | the | baby | is | out | they | do | a | lot | of | strange | things | to | babies
+-1 | wow | that | insult | was | laughable | 
+-1 | wait | till | you | find | out | how | much | the | part | costs | for | that | cable | are
+-1 | i | think | i | should | be | able | to | own | a | nuclear | war | head | then
+-1 | ur | mums | snatch | m8
+-1 | mohammed | greets | to | uk
+-1 | cunthooks
+-1 | sounds | like | sarcasm | to | me | grandpa
+-1 | are | you | from |  | for | edinafucking | cake | eaters | or | iceland
+-1 | wwwredditcomrthebutton
+-1 | incredibly | wellmade | show | with | fantastic | actors | that | still | manages | to | be | boring | to | watch
+-1 | this | is | what | would | actually |  | happen | in | my | case
+-1 |  | cuntymcgigglesappropriate | response |  | nice
+-1 | and | their | reasoning | for | needing | itwhat | do | you | believe | most | peoples | reasoning | is |  | 
+-1 | is | 2 | cat | 2pacs | cat
+-1 | smoke | weed | every | day
+-1 | whoever | is | blowing | me | at | the | timeright | now | no | one
+-1 | meta | as | fuck
+-1 | the | history | was | the | worst | part | it | was | very | lazy | and | full | of | things | that | really | didnt | make | sense
+-1 | did | you | make | that | up | just | now
+-1 | do | you | want | to | try | again | but | with | something | less | stupid
+-1 | spoiler | alert | bro
+-1 | i | think | trey | parker | and | matt | stone
+-1 | gtput | her | foot | up | my | ass |  |  |  | that | 70s | show | reference | niiiiice
+-1 | daughtry | is | by | far | the | best | singer | of | the | past | 40 | years | 
+-1 | ive | never | deleted | a | post | before | but | cool
+-1 | second | page | of | google | xd
+-1 | dont | do | meth | kids | urlhere | 
+-1 | overkill |  | motrhead
+-1 | fattery
+-1 | the | library | 
+-1 | i | got | a | new | fan | keeps | me | pretty | cool
+-1 | i | thought | this | until | i | was | 10
+-1 | same | thing | with | soap | foam
+-1 | tricky
+-1 | but | he | didnt | do | anything | wrong | as | far | as | the | law | is | concerned
+-1 | gummy | bears
+-1 | mr | walker | took | pictures | of | my | nono | parts | for | art | class
+-1 | kingcool1818 | hypothetical | zombie | question | involving | infinityoh | to | be | 12 | again
+-1 | not | wary | at | all | my | girlfriend | thinks | them | gays | are | sicko | and | keeps | them | from | stealing | me | 
+-1 | the | writers | had | apparently | never | met | a | mexican | person | in | real | life | before | jessie | is | annoying | 
+-1 | its | called | a | pocket
+-1 | its | pretty | pathetic | how | being | offended | is | becoming | the | great | american | pasttime
+-1 | hapotatolool
+-1 | last | and | every | time | i | watched | the | movie | up
+-1 | your | mum
+-1 | do | you | want | to | start | a | riot
+-1 | truth | hurts | doesnt | it | next | time | keep | your | mouth | shut | mayo | bitch | lmao
+-1 | no | and | thats | a | pretty | asshat | thing | to | do
+-1 | isnt | that | true | for | many | legendaryspecial | pokemom | too | though | 
+-1 |  | urlhere | 
+-1 | ive | not | seen | a | motherfucker | spell | definitely | correctly | in | about | a | year
+-1 | top | or | afk
+-1 | theyre | alot
+-1 | weird | al | says | it | best | urlhere | vpodc
+-1 | theys | just | people | nothing | special | got | my | ass | kicked | at | pool
+-1 | found | the | american
+-1 | only | if | you | are | an | emotionally | immature | twat
+-1 | off | he | will | take | off
+-1 | cod | and | bf | fans | somehow | become | world | leaders
+-1 | im | not | yet | sure | but | none | of | the | above | is | my | favorite | so | far
+-1 | it | already | has | the | government | just | doesnt | want | you | to | know | about | itps | you | didnt | hear | it | from | me
+-1 | good | one | feds
+-1 | i | actually | hate | to | see | it | in | public
+-1 | yep | i | pretty | much | read | only | authors | i | know | are | good | or | fantasy | bestsellers | at | this | point
+-1 | but | not | when | its | you | being | abusive | to | fat | people | thats | always | deserved | no | matter | what | right
+-1 | the | a | needs | to | be | capitalized
+-1 | sex | with | a | fat | girl | 
+-1 | disappointed | that | no | one | said | your | moms | vagina | come | on | reddit
+-1 | tea | wasnt | originally | meant | to | be | sweet | ive | been | lied | to | my | whole | life
+-1 |  | this | would | be | a | funny | story | if | you | were | a | guy | 
+-1 | it | was | hyperbole | to | prove | a | point | learn | nuance
+-1 | thats | already | something | thats | not | socially | acceptable | 
+-1 | you | are | not | alone
+-1 | reagan | braces | for | massive | backlash
+-1 | its | time | to | graduate | to | blunts | my | friend
+-1 | tagged | as | telling | me | about | wrightpatterson | afb | 
+-1 | i | used | to | be | afraid | of | fat | people | i | thought | their | stomach | creases | were | mouths | and | would | eat | me
+-1 | lights
+-1 | dude | mind | if | i | use | that | for | a | story
+-1 | i | wouldnt | have | one | 
+-1 | if | he | can | be | understood | as | a | matter | of | consensus | yes | 
+-1 | where | the | fuck | you | people | find | videos | like | that
+-1 | did | you | mean | the | simpsons
+-1 | only | if | he | were | fingering | a | minor |  | he | might | have | been | fingering | some | other | minor | though
+-1 | toddlers | and | tiaras | and | here | comes | honey | booboo
+-1 | yeah | steer | clear | of | rthebutton | because | its | fucking | stupid
+-1 | id | hide | about | 10 | of | ops | dicks | but | then | again | he | cant | last | more | than | 10 | seconds | 
+-1 | youre | absolutely | right | its | harsh | but | its | true
+-1 | almost | true | he | will | waste | it | give | all | your | gold | to | meeeeeeeeee
+-1 | if | the | jews | had | all | accepted | jesus | 2000 | years | ago | hitler | wouldnt | have | had | jews | to | kill | in | wwii | 
+-1 | ok | man | it | was | a | joke |  | youve | taken | this | way | too | seriously |  | chill | out
+-1 | maybe | you | had | too | much | coffee | amirite | 
+-1 | not | if | its | not | upvoted | started | off | with | a | downvote
+-1 | ketchup | has | to | be | heinz | for | me
+-1 | kiss | my | daughterbefore | she | was | born | check | if | internet | was | alive
+-1 | i | want | to | punch | you | so | bad
+-1 | i | just | took | over | this | guys | account | 
+-1 | masterbating | 
+-1 | please | put | a | serious | tag | otherwise | people | will | answer | untruthfully
+-1 | yeah | i | work | in | shoes | sometimes | i | just | cry | over | how | badly | people | wreck | my | department | 
+-1 | grenades | mostly
+-1 | pretend | to | agree | so | they | stop | talking
+-1 | that | rip | was | straight | cheddar | bro | c | bar | down | 
+-1 | this | is | the | softest | thing | ive | ever | read
+-1 | a | fedora | 
+-1 | um | okay
+-1 | come | on | the | ide | should | be | picking | up | shit | like | that
+-1 | this | could | be | any | number | of | hobbies
+-1 | ops | mom
+-1 | im | pro | choice | some | people | shouldve | been | abortions
+-1 | do | the | grumpy | cat | face | or | show | them | a | picture | of | it
+-1 | go | to | community | college
+-1 | dont | buy | invicta
+-1 | supposedly
+-1 | how | he | know | you | werent | an | old | black | man | also |  | he | was | faking | it | all | along | 
+-1 | i | just | meant | to | clarifywe | dont | usually | talk | about | human | breeds | but | surely | they | exist | right | 
+-1 | yes | avoiding | stupid | people | is | going | to | lower | my | iq | got | itlay | off | the | aerosol | gomer | 
+-1 | ew | filthy | purple
+-1 | you | two | know | how | many | games | have | heals | and | crit | chance
+-1 | yeah | ive | noticed
+-1 | nonsense |  | youre | just | picking | and | choosing | what | you | agree | with
+-1 | one | day | i | will | be | rich | enough | to | do | this
+-1 | another | classic | passive | aggressive | line
+-1 | uh | pics
+-1 | i | do | t | 
+-1 | when | does | the | narwhal | bacon
+-1 | eh | something | about | gods | work
+-1 | i | am | hot | grill | so | i | fuk | teecher | and | get | gud | mark
+-1 | and | back | across | siberia | and | to | africa
+-1 | insane
+-1 | tighty | whitey | does | nothing | for | the | butt | and | u | see | the | goods | better | in | briefs | 
+-1 | all | c | code | compiles | with | a | c | compiler | its | c | code | 
+-1 | idk | what | theyd | be | called | but | they | would | have | dick | fingers
+-1 | huehuehuehuehuehuehue
+-1 | vegemite | 
+-1 | obviously | a | joke
+-1 | i | am | the | biggest | music | snob | alive
+-1 | ctrlf | grapesno | results | foundwhat | is | wrong | with | you | people
+-1 | the | last | of | us
+-1 | circus | peanuts | i | have | yet | to | find | someone | that | shares | my | love | of | them | 
+-1 | on | the | other | hand | shitty | employees | theres | a | balance
+-1 | texas | only | drunks
+-1 | you | didnt | talk | to | him |  | he | was | lonely
+-1 | childbirth | 
+-1 | i | did | look | it | up | i | found | it | to | be | completely | idiotic | 
+-1 | canadian | here | us | freedom
+-1 | comain | format | next | to | highlander
+-1 | felicia | day | were | going | to | have | an | intelligent | race | damn | it
+-1 | wow | the | mras | are | brigading | this | thread | real | hard
+-1 | finally | we | can | agree | neither | me | or | you | are | right | or | wrong
+-1 | being | fat
+-1 | this | is | a | hella | gnar | thread | brah | 
+-1 | its | not | bad | do | it
+-1 | pshno | one | respects | the | serious | tagno | one
+-1 | unless | your | parents | are | rich | it | isnt | a | bad | idea
+-1 |  | michael | scott
+-1 | i | thought | that | god | was | real | but | realized | that | it | was | an | idiotic | concept | when | i | was | ten
+-1 | i | once | searched | up | ops | facebook | account
+-1 | i | voted | this | thread | up | once
+-1 | hello | world
+-1 | oh | i | dont | care | but | its | a | hot | topic | among | internet | disc | folks | at | least
+-1 | reno | 911 | supriseumwe | have | an | officer | down
+-1 | i | dare | you | to | project | to | loudly | 
+-1 |  | critting | not | crit | hitting | xx
+-1 | the | year | 3000
+-1 | your | ex | wife | hauh | hauh | hauh | hauh | high | five
+-1 | good | onedo | you | think | being | overweight | is | good
+-1 | not | old | enough | yet
+-1 | cumming | to | porn
+-1 | did | you | even | read | the | thread | 
+-1 | surreptitiously
+-1 | you | always | accuse | me | of | trolling | when | i | never | do | what | is | your | problem | 
+-1 | its | called | subtlety
+-1 | how | do | you | figure | 
+-1 | degauss | the | md5 | with | a | 4096 | rsa | chain | and | that | should | depth | first | propagate | the | heisenbug
+-1 | maybe | to | make | them | feel | good | about | themselves | 
+-1 | i | hate | bacon | 
+-1 | you | cant | just | shout | unconstitutional | what | part | of | the | constitution | do | you | think | it | violates
+-1 | everyone | is | entitled | to | their | own | opinion
+-1 | men | and | women |  | as | opposed | to | other | genders
+-1 | read | before | you | click
+-1 | while | some | of | the | fight | scenes | were | good | some | of | them | were | wwelevel | obvious | fake | 
+-1 | are | you | my | cousin | cuz | that | bitch | sounds | like | my | mom
+-1 | that | we | had | 17 | world | wars
+-1 | op | troll | much
+-1 |  | urlhere | lyingsymptomordisease
+-1 | not | faker
+-1 | if | it | was | unidentified | then | how | do | you | expect | us | to | know | what | we | saw
+-1 | thats | racist | against | cavemen
+-1 | god | it | was | so | obvious | that | youre | from | fph | i | would | have | bet | a | 100 | on | it
+-1 | shit | that | would | suck
+-1 | seen | this | so | many | times | but | never | saw | it |  | is | there | a | video
+-1 | threads | talking | about | ending | not | full | story
+-1 | hmmm | doesnt | seem | to | load | on | my | bacon | reader | app | 
+-1 | dressing | liberally
+-1 | have | only | been | brewing | beer | for | a | few | months | and | still | know | what | that | means
+-1 | right | next | to | the | mien | kamf | section | right |  | insert | john | oliver | 
+-1 | yeyaa | 
+-1 | nuke | america | 
+-1 | its | so | fetch
+-1 | right | you | would | have | told | everyone | by | now
+-1 | justin | beiber
+-1 | chief | keef
+-1 | amon | amarth
+-1 | not | a | brewer | understood | every | word | disqualified
+-1 | what | nooo | really | s
+-1 | i | dont | know | what | whatsapp | does | what | does | it | have | to | do | with | appointments
+-1 | what | a | bitch | 
+-1 | not | my | arch | enemy | thats | for | sure | probably | any | celebrity
+-1 | i | want | the | truth
+-1 | hahahahahahaha
+-1 | first | response | that | i | may | actually | agree | with
+-1 | you | ever | had | one | of | those | boogers | that | you | just | cant | flick | off | your | finger
+-1 | the | post | that | led | to | hear | even | specified | pushing | it | once | ha | purples
+-1 | my | entire | life | has | conditioned | me | to | believe | this | is | a | trap
+-1 | fishing | 
+-1 | three | dimensions | is | more | forgiving
+-1 | not | being | an | asshole | to | women
+-1 | eat | a | wooden | door
+-1 | ded | gaem
+-1 | nah | just | the | gop
+-1 | virtual | reality | the | whole | concept | is | amazing
+-1 | well | maybe | you | are | now | but | your | question | certainly | isnt | specifying | 
+-1 | get | bernie | sanders | to | be | president
+-1 | that | jet | fuel | cant | melt | steel | beams
+-1 | i | dont | use | google | sorry | i | dont | trust | it | for | my | own | reasons | 
+-1 | a | habit
+-1 | my | grandmother | with | cancer | walked | in | and | wanted | me | to | help | her | bake | a | pie
+-1 | just | get | your | girlfriend |  | so |  | boyfriend |  | etc | and | go | louder
+-1 | relevant | username | i | left | you | another | one | open | a | few | comments | down
+-1 | if | one | were | a | myaoginist | and | hated | women
+-1 | your | mother
+-1 | holy | shit | you | must | be | ugly
+-1 | correlation |  | causation
+-1 | hmmmm | sew | their | mouths | shut | 
+-1 | monitoring | this | thread | closely
+-1 | i | get | that | reference | 
+-1 | i | dont | play | video | games
+-1 | signifying | goes | back | centuries
+-1 | oh | shit | yeah | especially | the | later | ones | which | can | extend | oh | man | thats | gonna | get | her | so | wet
+-1 | but | its | not | fair | that | i | got | arrested | for | stealing | a | car
+-1 | step | 1 | someone | breaks | instep | 2 | blast | them | awaystep | 3 | enjoy | life
+-1 | okay | my | bad | not | old | as | in | elderly | but | significantly | older | its | creepy | 
+-1 | that | is | so | fetch
+-1 | incessant | horrendous | flatulence | 
+-1 | you | had | one | fuckin | task
+-1 | itt | a | bunch | of | stories | that | belong | on | rthathappened | 
+-1 | went | to | sleep | woke | up | next | to | him | we | are | still | together
+-1 | i | blacked | out | and | woke | up | cluelesslife | continues
+-1 | seattle | says | that | too | sorry
+-1 | what | is | so | hard | to | understand | about | this | thread | you | really | think | publix | is | only | in | one | state | 
+-1 | on | it
+-1 | didnt | patrick | say | something | like | this | in | an | episode | of | spongebob
+-1 | he | thought | he | saw | a | chance | to | post | a | spooky | made | up | story | on | reddit
+-1 | life | of | piingstory | of | mathematician | with | poor | bladder | control
+-1 | if | you | dont | make | a | few | enemies | youre | a | coward | or | worse | 
+-1 | memepronouncing | them | before | as | mehmeh | until | my | brother | corrected | me
+-1 | you | make | many | a | good | point | my | friend | this | is | a | crucial | election | on | many | levels | 
+-1 | well | that | settles | it | im | doing | this | next | relationship
+-1 | did | it | have | hooves | where | his | feet | should | be
+-1 | panties | bunched | up | there | sweetcheeks
+-1 | not | really
+-1 | there | is | no | language | or | culture | in | existence | where | any | of | that | makes | senseyou | are | the | troll
+-1 | earth | is | teeming | with | of | nonhuman | sentient | life | 
+-1 | i | dont | make | the | rules
+-1 | and | i | heard | him | mumble | to | himself | as | he | climbed | back | in | op | should | have | used | a | serious | tag
+-1 | only | moderately | more | exciting | than | the | prequels
+-1 | she | was | technically | lying | though | 
+-1 | fuck | you
+-1 | okay | cool | i | bet | your | a | ham
+-1 | you | should | cross | post | this | to | the | mensrights | sub
+-1 | so | you | cannot | have | a | good | body | and | be | sexually | objectified
+-1 | k | my | body | is | hot | so | fuck | you
+-1 | no | thanks | i | only | like | girls | with | a | bmi | 1824
+-1 | so | there | would | be | likea | 3 | year | check | up | 
+-1 | gt | defenitlywow | dude | 
+-1 | thats | well | creepy
+-1 | i | saw | a | light | in | the | sky | far | awayi | coudnt | identify | it | as | a | plane | so | its | a | ufo | logic
+-1 | no | because | i | dont | want | to | 
+-1 | yes | i | use | to | eat | less | but | now | i | eat | a | lot | more | than | that
+-1 | now | this | is | bravery
+-1 | the | holy | mountain | urlhere | 
+-1 | kidz | bop
+-1 | itt | masturbation | and | marijuana
+-1 | is | that | a | reference | or | something | can | you | explain | it | please
+-1 | wait | shit | thats | weldingmooom
+-1 | not | in | ebonics | tho
+-1 | by | insisting | that | im | insane | and | need | to | be | committed | indefinitely | 
+-1 | modern | warfare | 2 | that | game | was | great | and | could | have | been | amazing | if | it | was | looked | after
+-1 | dude | california | is | not | the | south | its | its | own | entirely | different | thing |  | 
+-1 | thats | how | it | starts
+-1 | well | russel | is | an | interesting | name | for | your | love | muscle
+-1 | fucking | no | okey | capitalism | 
+-1 | at | least | buy | a | cup | as | well
+-1 | no | he | will | be | known | as | the | man | who | destroyed | the | food | chain | 
+-1 | pet | me | right | meow
+-1 | and | do | penguins | have | them
+-1 | r |  | l |  | j
+-1 | aww |  | you | won | my | heart
+-1 | kdramas |  | i | love | that | stuff | 
+-1 | it | just | seemed | too | grey | for | me | it | was | too | moody | good | overall | but | i | never | just | enjoyed | it
+-1 | u | wot | m8
+-1 | doesnt | understand | how | this | just | happens | eurosbingo | there | we | go | 
+-1 | making | people | laugh | by | looking | at | them
+-1 | hahahaha | i | know | right
+-1 | the | last | time | i | dated | was | over | 3 | years | ago | as | far | as | i | know | my | ex | is | dead
+-1 | you | have | toilets | in | a | grocery | store
+-1 | steven | hawking | vs | christopher | reeves
+-1 | rip | in | pieces
+-1 | interestingi | wish | you | luck
+-1 | is | there | a |  | way | to | get | them | all |  | if | so | ill | take | that | one
+-1 | you | became | a | husband
+-1 | are | you | male | or | female
+-1 | females | in | the | military | where | you | at
+-1 | fades | to | greyscalethuglife
+-1 | he | previously | mentioned | he | was | in | an | open | relationship | 
+-1 | more | like | his | girl | fucks | other | guys | while | he | sits | at | home | being | cucked | fucking | pathetic
+-1 | how | does | that | change | things
+-1 | and | considering | most | countries | in | the | world | use | kilometres | its | really | confusing | to | us
+-1 | i | would | like | to | read | that | monstrous | wall | of | text |  | but | i | value | my | eyesight
+-1 | id | didnt | make | my | name | my | friend | made | this | account | for | me
+-1 | what | did | you | do | with | the | ejaculate |  | 
+-1 | you | got | rekt | too | cause | they | use | the | american | dollar | 
+-1 | i | didnt | know | my | dad | knows | how | to | play | guitar
+-1 | noice | that | gay | manager | is | a | bro | im | jealous | as | fuck
+-1 | people | who | have | been | born | into | the | right | gender | to | advance | your | careers | did | it | work | out
+-1 | i | can | make | posts | on | reddit | that | never | get | upvotes
+-1 | this | is | the | kinda | thing | i | came | here | hoping | to | find
+-1 | well | yeah | that | happens | at | the | gay | bar | but | thats | it | 
+-1 | boris | johnson
+-1 | and | my | axe | haha
+-1 | creationism | astrology | and | generally | everything | linked | with | esoterism
+-1 | shes | right | tho | free | speech | is | a | govt | thing | nothing | to | do | with | a | privately | owned | website
+-1 | corgi | puppiesbecause |  | urlhere | 
+-1 | this | is | the | correct | answer
+-1 | i | hope | we | are | was | she | blonde | and | short | and | into | neurobiology
+-1 | it | seems | fake | because | it | is | fake | i | can | smell | that | kind | of | turd | a | light | year | away
+-1 | he | was | still | big | part | of | it | both | got | what | they | deserved
+-1 | wait | so | if | youre | gay | a | woman | or | invalid | then | the | government | wont | help | you | pay | for | university
+-1 | reflection | is | gay
+-1 | we | shouldnt | call | them | sluts | for | doing | random | bj | we | should | encourage | it
+-1 | that | top | story | reads | like | complete | and | utter | bs | anyway | 
+-1 | good | guy | gayg
+-1 | as | i | replied | to | a | similar | commentfine |  |  |  |  |  | better
+-1 | not | being | a | racist | rapist | axe | murdereri | know | i | have | such | high | standards
+-1 | least | preisthood | and | anything | to | do | with | religionmost | scientist
+-1 | youre | an | adult | who | rides | a | bike | to | work | lololol
+-1 | someone | down | here | is | going | to | be | likeso | i | was | driving | around | town | when | i | saw | a | child
+-1 | that | women | are | oppressed | cmon | both | genders | are | oppressed | equally
+-1 | an | object | in | motion | stays | in | motion | unless | being | acted | upon | by | an | unbalanced | force | 
+-1 | sacraligous | 
+-1 | about | 96kmh | just | take | the | mph | number | and | multiple | it | with | 16
+-1 | he | says | hes | irish | but | ive | never | heard | someone | say | bloke | in | ireland
+-1 | penisobviously | people | dont | get | the | joke
+-1 | because | you | play | the | game | by | their | rules
+-1 | what | a | fucking | waste | of | life | that | kid | is | i | hope | someone | beat | the | shit | out | of | him | for | it
+-1 | do | you | know | what | a | rhetorical | question | is
+-1 | only | one | graffitus
+-1 | asshole
+-1 | can | confirm | as | a | nongamer | i | do | not | get | this
+-1 | cut | off | dick | ate | prayed | toddled | off | to | see | the | doctor |  | in | precisely | that | order
+-1 | well | i | know | where | i | am | avoiding | now | at | least | you | seemed | to | come | out | fine | on | all | 3 | 
+-1 | the | new | song | by | frank | turner | get | better
+-1 | lol | rgunsarecool | 
+-1 | is | this | a | slut | shaming | thing
+-1 | canadas | biggest | fan
+-1 | gehs | juwrt | felsha | 
+-1 | can | i | get | a | tldr | i | dont | think | ill | have | enough | time | for | that | and | by | the | time | i | do | ill | forget
+-1 | yes | it | is | safe
+-1 | jet | beams | cant | melt | steel | fuel | 
+-1 | pokey | bum | wank
+-1 | you | cant | deny | the | truth
+-1 | paying | for | drinks | paying | cash | we
+-1 | his | name | is | wreak
+-1 | i | have | to | agree | killing | babies | is | no | cool | thing
+-1 | stag | and | doe | is | a | combined | bachelorbachelorette | party
+-1 | lolololol
+-1 | 810 | with | rice | 
+-1 | i | dont | get | why | youre | being | downvoted | tbh | everyone | has | an | opinion
+-1 | parents | on | the | haystack | nuff | said
+-1 | very | good | with | words
+-1 | i | heard | that | if | you | put | two | human | hearts | together | in | a | certain | way | it | makes | the |  | 
+-1 | were | talking | about | real | schools
+-1 | realistically |  | none
+-1 | and | yet | somehow | she | was | never | fired
+-1 | stuart | little | cant | beat | my | meat
+-1 | how | is | this | fact | nsfw
+-1 | ps1 |  | crash | bandicoot | 
+-1 |  | urlhere | 
+-1 | holy | fuck | dude | i | dont | even | know | how | to | respond | this
+-1 | does | this | look | infected | whips | out | dick
+-1 | ive | never | heard | of | them | being | lazy | in | my | opinion | they | are | very | hard | workers
+-1 | wore | down | my | shoes | on | the | road | less | traveled
+-1 | rfullcommunism
+-1 | its | the | thought | that | counts
+-1 | rthathappened | 
