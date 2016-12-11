@@ -12,8 +12,8 @@ To run the multiclass classifier run:
 
 ## Feature Extraction
 To generate the unigrams, bigrams, and trigrams navigate to 'CSCI4830FinalProject/Feature\_Extraction/scripts'
-To run:
-	python pyton feature_extraction.py
+>To run:
+>	python feature\_extraction.py
 
 Unigram data located at:
 	CSCI4830FinalProject/Feature\_Extraction/unigram_data
