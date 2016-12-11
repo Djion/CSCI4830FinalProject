@@ -78,7 +78,7 @@ def bigram_generator(onlyfiles):
 			output.append(gram)
 			
 		create_file = "../bigram_data/bigram_"+file_name 
-		with open(create_file,'wb') as myfile:
+		with open(create_file,'w') as myfile:
 			myfile.write('\n'.join('%s,%s' % x for x in output))
 
 
@@ -107,6 +107,6 @@ def unigram_generator(onlyfiles):
 
 if __name__ == "__main__":
 	f = get_files()
-	unigram_generator(f)
+#	unigram_generator(f)
 	bigram_generator(f)
-	trigram_generator(f)
+#	trigram_generator(f)
