@@ -1,0 +1,64 @@
+This is BibTeX, Version 0.99d (TeX Live 2016)
+Capacity: max_strings=35307, hash_size=35307, hash_prime=30011
+The top-level auxiliary file: example_paper.aux
+The style file: icml2016.bst
+Database file #1: example_paper.bib
+Warning--entry type for "github" isn't style-file defined
+--line 11 of file example_paper.bib
+Warning--entry type for "vowpalWabbit" isn't style-file defined
+--line 19 of file example_paper.bib
+Warning--entry type for "sciKit" isn't style-file defined
+--line 28 of file example_paper.bib
+Warning--entry type for "redditCite" isn't style-file defined
+--line 37 of file example_paper.bib
+Too many commas in name 1 of "Alex Ring, Richard Dyer, Cameron Tierney, Joshua Zepf" for entry github
+while executing---line 1352 of file icml2016.bst
+Too many commas in name 1 of "Alex Ring, Richard Dyer, Cameron Tierney, Joshua Zepf" for entry github
+while executing---line 1352 of file icml2016.bst
+Too many commas in name 1 of "Alex Ring, Richard Dyer, Cameron Tierney, Joshua Zepf" for entry github
+while executing---line 1434 of file icml2016.bst
+Too many commas in name 1 of "Alex Ring, Richard Dyer, Cameron Tierney, Joshua Zepf" for entry github
+while executing---line 1434 of file icml2016.bst
+Warning--empty year in github
+You've used 4 entries,
+            2773 wiz_defined-function locations,
+            612 strings with 5246 characters,
+and the built_in function-call counts, 1220 in all, are:
+= -- 103
+> -- 40
+< -- 4
++ -- 16
+- -- 12
+* -- 62
+:= -- 189
+add.period$ -- 12
+call.type$ -- 4
+change.case$ -- 16
+chr.to.int$ -- 4
+cite$ -- 9
+duplicate$ -- 60
+empty$ -- 129
+format.name$ -- 16
+if$ -- 256
+int.to.chr$ -- 1
+int.to.str$ -- 1
+missing$ -- 0
+newline$ -- 28
+num.names$ -- 16
+pop$ -- 49
+preamble$ -- 1
+purify$ -- 12
+quote$ -- 0
+skip$ -- 57
+stack$ -- 0
+substring$ -- 8
+swap$ -- 4
+text.length$ -- 0
+text.prefix$ -- 0
+top$ -- 0
+type$ -- 44
+warning$ -- 1
+while$ -- 12
+width$ -- 0
+write$ -- 54
+(There were 4 error messages)

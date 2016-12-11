@@ -1,0 +1,28 @@
+\begin{thebibliography}{4}
+\providecommand{\natexlab}[1]{#1}
+\providecommand{\url}[1]{\texttt{#1}}
+\expandafter\ifx\csname urlstyle\endcsname\relax
+  \providecommand{\doi}[1]{doi: #1}\else
+  \providecommand{\doi}{doi: \begingroup \urlstyle{rm}\Url}\fi
+
+\bibitem[Alex~Ring()]{github}
+Alex~Ring, Richard~Dyer, Cameron Tierney Joshua~Zepf.
+\newblock Project github repo.
+\newblock URL \url{https://github.com/Djion/CSCI4830FinalProject}.
+
+\bibitem[Langford(2016)]{vowpalWabbit}
+Langford, John.
+\newblock Vowpal wabbit, 2016.
+\newblock URL \url{https://github.com/JohnLangford/vowpal_wabbit/wiki}.
+
+\bibitem[Reddit(2016)]{redditCite}
+Reddit.
+\newblock The converstation starts on reddit, 2016.
+\newblock URL \url{https://about.reddit.com/}.
+
+\bibitem[Scikit-learn(2016)]{sciKit}
+Scikit-learn.
+\newblock Support vector machines, 2016.
+\newblock URL \url{http://scikit-learn.org/stable/modules/svm.html}.
+
+\end{thebibliography}
