@@ -78,8 +78,7 @@
 ]
 
 \begin{abstract} 
-The purpose of this document is to provide both the basic paper template and
-submission guidelines. Abstracts should be a single paragraph, between 4--6 sentences long, ideally.  Gross violations will trigger corrections at the camera-ready phase.
+In this paper, we describe our attempts to develop a classifier in order to predict whether or not a reddit comment will be upvoted or downvoted. We assembled a corpus of all comments from the AskReddit subreddit from May, 2015. After cleaning up and formatting the data, each comment was encoded as an example with each word as a feature and its score?s position within various thresholds as the label. We tested multiple models using bigrams, trigrams, and unigrams, including support vector machines and different forms of regression through Vowpal Wabbit. Ultimately, our models achieved barely over 50\% accuracy when trained on an evenly split set of positive and negative examples.
 \end{abstract} 
 
 \section{Intro}
@@ -208,26 +207,20 @@ Squarred Loss & 91.26\% & 56.60\% \\
 
 As you can see, our accuracy with Vowpal Wabbit is rather high when using all of the data, but barely above half when using smaller, evenly split data. We can also observe that the choice in loss function had minimal effect on accuracy.
 
-\section{Results}
-
 \section{Analysis} 
-In both of our models, we see accuracy that?s barely better than flipping a coin when using evenly split data. However, our Vowpal Wabbit model was extremely accurate when trained and tested on all of the available data. While this discrepancy in accuracy may be the result of an insufficient quantity of training data from shrinking the set of negative examples, one theory we proposed is that the high number of negative examples in the corpus causes the model to have a very strong negative bias. Thus, it predicts a negative label most of the time, which happens to be very accurate on heavily negatively biased data. Further testing would be necessary to confirm or reject this hypothesis. 
+In both of our models, we see accuracy that?s barely better than flipping a coin when using evenly split data. However, our Vowpal Wabbit model was extremely accurate when trained and tested on all of the available data. While this discrepancy in accuracy may be the result of an insufficient quantity of training data from shrinking the set of negative examples, one theory we proposed is that the high number of negative examples in the corpus causes the model to have a very strong negative bias. Thus, it predicts a negative label almost all of the time, which happens to be very accurate on heavily negatively biased data. Further testing would be necessary to confirm or reject this hypothesis. 
 
-Another possibility for for the inaccuracy of our models could be due to the fact that it might not be entirely possible to identify a positive or negative comment solely based upon what language was used. Instead, comments most likely acquire upvotes based upon the relevance of the comment in the context of the subject being discussed. This however, would be a considerably harder value to quantify. But if we had more time on the project, one approach we would consider is attempting to identify the subject matter of all the comments by using a parse tree. We would then group together all comments that are discussing similar subjects based upon the nouns that they contained. Once comments had been clustered together, we would 
+
+Another possibility for for the inaccuracy of our models could be due to the fact that it might not be entirely possible to identify a positive or negative comment solely based upon what language was used. Instead, comments most likely acquire upvotes based upon the relevance of the comment in the context of the subject being discussed. This however, would be a considerably harder value to quantify. But if we had more time on the project, one approach we would consider is attempting to identify the subject matter of all the comments by using a parse tree. We would then group together all comments that are discussing similar subjects based upon the nouns that they contained. Once comments had been clustered together, we would attempt to make a more accurate prediction for each comment by taking into account the context of the other comments it?s grouped with.
+
+
+Initially the AskReddit subreddit was chosen because it provided us with the largest amount of raw data from the dataset. The nature of AskReddit is a question and answer style system in which users can ask unrelated questions and other users can answer them with stories and relevant information. Looking back it may have been more appropriate to choose a subreddit that was more focused in its subject matter. Choosing a smaller community that was focused on the same thing, the Pokemon subreddit would be an example, may have provided us with a clearer subject matter in which to target our classifier. Because the threads in AskReddit are so different from one another, we suspect that the prediction was so inaccurate because the various threads on AskReddit have nothing to do with one another, the upvoted comments in one thread may have been downvoted in another thread. Where as a more focused community is more likely to have some sort correlation between threads. In the future we would certainly choose a more focused dataset. 
+
+\section{Conclusion}
+Both the logistic regression classifier and the SVM resulted in classification accuracy barely better than a coin flip. This could be due in part to the nature of the data that we selected and the features that were used.The Logistic Classifier resulted in 56.6\% accuracy with all loss methods, while the SVM topped out at around 51\%. In the future we would like to attempt to improve this accuracy by tightening the focus of the data and attempting to use the subject matter in the classification. 
+
 
 % Acknowledgements should only appear in the accepted version. 
-\section*{Acknowledgements} 
- 
-\textbf{Do not} include acknowledgements in the initial version of
-the paper submitted for blind review.
-
-If a paper is accepted, the final camera-ready version can (and
-probably should) include acknowledgements. In this case, please
-place such acknowledgements in an unnumbered section at the
-end of the paper. Typically, this will include thanks to reviewers
-who gave useful comments, to colleagues who contributed to the ideas, 
-and to funding agencies and corporate sponsors that provided financial 
-support.  
 
 
 % In the unusual situation where you want a paper to appear in the
