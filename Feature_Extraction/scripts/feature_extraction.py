@@ -107,6 +107,6 @@ def unigram_generator(onlyfiles):
 
 if __name__ == "__main__":
 	f = get_files()
-#	unigram_generator(f)
+	unigram_generator(f)
 	bigram_generator(f)
-#	trigram_generator(f)
+	trigram_generator(f)
