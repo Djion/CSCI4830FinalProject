@@ -9,3 +9,17 @@ To run the binary classifier run:
     python svm.py
 To run the multiclass classifier run:
     python multiclass_svm.py
+
+## Feature Extraction
+To generate the unigrams, bigrams, and trigrams navigate to 'CSCI4830FinalProject/Feature\_Extraction/scripts'
+To run:
+	python pyton feature_extraction.py
+
+Unigram data located at:
+	CSCI4830FinalProject/Feature\_Extraction/unigram_data
+
+Bigram data located at:
+	CSCI4830FinalProject/Feature\_Extraction/bigram_data
+
+Trigram located at:
+	CSCI4830FinalProject/Feature\_Extraction/trigram_data
