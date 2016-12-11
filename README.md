@@ -18,10 +18,10 @@ To generate the unigrams, bigrams, and trigrams navigate to 'CSCI4830FinalProjec
 >	python feature\_extraction.py
 
 Unigram data located at:
-	CSCI4830FinalProject/Feature\_Extraction/unigram_data
+>	CSCI4830FinalProject/Feature\_Extraction/unigram\_data
 
 Bigram data located at:
-	CSCI4830FinalProject/Feature\_Extraction/bigram_data
+>	CSCI4830FinalProject/Feature\_Extraction/bigram\_data
 
 Trigram located at:
-	CSCI4830FinalProject/Feature\_Extraction/trigram_data
+>	CSCI4830FinalProject/Feature\_Extraction/trigram\_data
